@@ -1,0 +1,45 @@
+# kohat kömur madenlerinin yeri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür ve Linyit Madenlerinin Yer Altı İşlerinde Meydana .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Kömür ve Linyit Madenlerinin Yer Altı İşlerinde Meydana .
+Kömür ve Linyit Madenleri İş Kazası 21 Mayıs 2018 Resmi Gazete Sayı: 30427 Çalışma ve Sosyal Güvenlik Bakanlığından: BİRİNCİ BÖLÜM Amaç, Kapsam, Dayanak ve Tanımlar Amaç ve kapsam MADDE 1 – (1) Bu Usul ve Esaslar; 31/5/2006 tarihli ve 5510 sayılı Sosyal Sigortalar ve Genel Sağlık Sigortası Kanununun geçici 66 ncı maddesi kapsamında 10/6/2003 (dâhil) tarihi ile 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Kömür Madenleri Ve Üreticilerinden ve .](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Yüksek Kaliteli Kömür Madenleri Ve Üreticilerinden ve .
+Yüksek Kaliteli Kömür Madenleri Ve Üreticilerini Kömür Madenleri Ve Tedarikçilerini ve Kömür Madenleri Ve Ürünleri en iyi fiyatta Alibaba'da bulun. Sevkiyata Hazır Ticaret
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür madenlerindeki tehlike](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Kömür madenlerindeki tehlike
+Maden Mühendisleri Odası Genel Başkanı Mehmet Torun, kömür madenlerinde metan gazının patlaması sırasında 800 dereceye ulaşan ısının açığa çıktığını bildirdi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![kömür madenleri çin En İyi Fiyatlarda](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## kömür madenleri çin En İyi Fiyatlarda
+Tek bir yerde dayanıklı ve yüksek kaliteli kömür madenleri çin edinin. Çimentolama süreçlerinde en iyi sonuçlar için, kömür madenleri çin sadece Alibaba'dan satın alın. Sevkiyata Hazır Ticaret Fuarı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür ve Linyit Madenlerinin Yer Altı İşlerinde Meydana .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Kömür ve Linyit Madenlerinin Yer Altı İşlerinde Meydana .
+Kömür ve Linyit Madenlerinin Yer Altı İşlerinde Meydana Gelen İş Kazası Sonucunda Hayatını Kaybeden Sigortalıların Yakınlarının Kamuda Sürekli İşçi Kadrolarına Atanmalarına İlişkin Usul ve Esaslar 21 Mayıs 2018 PAZARTESİ Resmî Gazete Sayı : 30427 Çalışma
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![kömür ve linyit madenlerinin yer altı işlerinde meydana .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## kömür ve linyit madenlerinin yer altı işlerinde meydana .
+GİRİŞ:21.05.2018 tarihi itibarıyla Sosyal Sigortalar ve Genel Sağlık Sigortası Kanununun geçici 66 ncı maddesi kapsamında 10/6/2003 (dâhil) tarihi ile 13/5/2014 tarihi arasında kömür ve linyit madenlerinin yer altı işlerinde meydana gelen iş kazası sonucunda ölen 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) BATILI SEYYAHLARA GÖRE XIX. YÜZYILIN İLK .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## (PDF) BATILI SEYYAHLARA GÖRE XIX. YÜZYILIN İLK .
+BATILI SEYYAHLARA GÖRE XIX. YÜZYILIN İLK YARISINDA AFGANİSTAN ŞEHİRLERİ Ferhat ÇİFTÇİ Eylül 2018 Afyonkarahisar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür madenleri paha biçilemez tarihi bölgeleri yok ediyor](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Kömür madenleri paha biçilemez tarihi bölgeleri yok ediyor
+Avrupa Çevre Bürosu'nun (European Envirionment Bureau) yayın aracı META, kömür madenlerinin kültürel mirasa etkisi üzerine bir makale yayınladı. Bu konuda örneklere yer verilen ve Elif Cansu İlhan tarafından çevrilen makale'de Sırbistan ve Almanya'dan örneklerin yanında Türkiye'den Muğla ve Konya örnekleri de yer alıyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür Ve Linyit Madenlerinin Yer Altı İşlerinde Meydana .](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Kömür Ve Linyit Madenlerinin Yer Altı İşlerinde Meydana .
+Dayanak Tanımlar a) İstihdam hakkı sahibi: 10/6/2003 (dâhil) tarihi ile 13/5/2014 tarihi arasında kömür ve linyit madenlerinin yer altı işlerinde meydana gelen iş kazası sonucunda
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür Madenlerini Kapatalım, Patates Üretelim' - .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Kömür Madenlerini Kapatalım, Patates Üretelim' - .
+3/12/2014· Orada kömür madenlerinin yerini bilim ve teknokent alanları aldı. Madenler teknokent oldu." dedi. Soma, Ermenek faciaları Türkiye'de yapılan kömür madenciliğini bütün yönleriyle 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür Madeninde Ne Yapıyoruz?](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Kömür Madeninde Ne Yapıyoruz?
+Kömür madenlerinin bir kısmı yüzeye çok yakın bir kısmı ise yeraltındadır. Ancak her ikisi de her yıl çok sayıda madencinin hayatını kaybetmesine ve çevrede yaşayan insanların özellikle bebeklerin sağlığının olumsuz etkilenmesine neden olmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

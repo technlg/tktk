@@ -1,0 +1,41 @@
+# bilyalı değirmen ilkesi göruntu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bilyalı Değirmen BD100](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Bilyalı Değirmen BD100
+Bilyalı değirmen BD 100. Laboratuvar ölçekli bilyalı değirmenlerimiz mikronize öğütmede yaş ve kuru öğütme yapabilmektedir. Seramik bazlı ürünler dahil birçok ürün öğütmesinde kullanılabilinir. seramik öğütülecek ürünlere demir karışmaması için farklı seçenekli öğütme kablarımız mevcuttur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ERSEL Ağır Makine San. ve Tic. A.Ş.](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## ERSEL Ağır Makine San. ve Tic. A.Ş.
+ Bilyalı değirmenler ölçülerine göre şase üzerinde veya beton üzerinde montaj edilir.  Çalışan aksamlar dış etkenlere karşı korunmuştur.  İç kaplama parçaları kolay değiştirilebilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![EGE AY MAKİNA Bilyalı Değirmen](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## EGE AY MAKİNA Bilyalı Değirmen
+BİLYALI DEĞİRMEN EGEAY makina bilyalı değirmenleri ölçülerine göre şase üzerinde veya beton üzerinde montaj edilir. Çalışan aksamlar dış etkenlere karşı korunmuştur. İç kaplama parçaları kolay değiştirilebilir. Otomatik yağlama sistemi ile yağlama 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BİLYALI DEĞİRMENLERDE HIZIN PERFORMANSA OLAN .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## BİLYALI DEĞİRMENLERDE HIZIN PERFORMANSA OLAN .
+Değirmen içerisinde bilyaların yığılması veya plakanın taşı yıcı etkisi sayesinde, bilyaların birbirine çarparak oluşturdu- ğu kuvvetlerin sistematik olmamasından dolayı bu kuvvetler
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bilyalı Değirmenler – Emsa Makine](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Bilyalı Değirmenler – Emsa Makine
+Bilyalı Değirmenler. Bilyalı Değirmenler 35 mesh (425 mikron) ve daha ince öğütme sistemlerinde kullanılır. Değirmen ham madde de giriş boyutları sert madenlerde altı milimetre iken yumuşak ve orta sertlikteki madenlerde yirmi beş milimetreye kadar çıkabilmektedir. Prosese göre kapalı veya açık devre olarak kullanılabilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bilyalı değirmen - YouTube](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Bilyalı değirmen - YouTube
+29/6/2020· The next video is starting stop
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bilyalı Değirmenler - Remas Redüktör ve Makina](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Bilyalı Değirmenler - Remas Redüktör ve Makina
+Genellikle 150 mikron altı ürün elde edilmek istenildiği zaman bilyalı değirmenler tercih edilmektedir. Değirmen içerisinde değirmen gövdesinin dönmesi ile birlikte çarpma ve sürtme kuvvetleri oluşmaktadır. Bilyalar noktasal temas yüzeyi ile bu kuvvetleri iletir. Bu şekilde değirmen içersinde kırma ve öğütme kuvvetlerinin bir dağılımı sağlanır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KARIŞTIRMALI BİLYALI DEĞİRMENLER - MADENCİLİK](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## KARIŞTIRMALI BİLYALI DEĞİRMENLER - MADENCİLİK
+Değirmen içinde gerçekleşen öğütme, stres yoğunluğu ve stres sayısı olarak adlandırılan iki parametre ile tanımlanmaktadır. Her stres yoğunluğu için ürün inceliği ile özgül enerji tüketimi arasında belirli bir ilişki bulunmaktadır. Karıştırmalı bilyalı değirmenlerde
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bilyalı Değirmen Remas Redüktör ve Makina](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Bilyalı Değirmen Remas Redüktör ve Makina
+Bilyalı değirmende bilyalar çarpma ve sürtünme kuvvetleri noktasal temas yüzeyi ile iletir. Bilyalı Değirmenler Son zamanların en çok tercih edilen değirmen çeşitlerinden olan bilyalı değirmen genellikle 150 mikron altı ürün elde edilmek istendiğinde başvurulan yöntemlerden biridir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bilyalı değirmen](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Bilyalı değirmen
+Bilyalı değirmen. Farklı kapasitelerde Laboratuvar ölçekli değirmenlerimiz isteğe göre alümina veya paslanmaz iç astar ile öğütülecek ürününüzde safsızlık minimuma düşer. Alt çekmece ve elek sayesinde, öğütme tamamlandıktan sonra bilyalar ve öğütülmüş ürün kolayca ayrılabilinir. Değirmen motorlarımız redüktörlü olup maksimum kapasitede rahat bir 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,125 @@
+# kudretli afrika kırıcılar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![EKAonline-2011](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## EKAonline-2011
+Bu gün Türkiye'nin birçok şehrinden işçiler olarak Ankara'da toplanmış bulunuyoruz. Türkiye'deki meslek odaları ve sendikalar tarafından organize edilen bu miting "Tüm temel haklarımız için, insanca yaşamı savunuyor, eşit, özgür, demokratik bir Türkiye istiyoruz" talebiyle yapılıyor." talebiyle yapılıyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kaplanpenche | Adanaspor Taraftar Güncesi](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Kaplanpenche | Adanaspor Taraftar Güncesi
+Öyle büyük ve kudretli. Büyüklüğünü ve kudretini tarih kaydetti, Yıllar sonra hatırlatacak. Tam 3 yaşında Gezi. Toprağından doğmuş Anadolu Devrimi. Sanma ki çocuk. Şimdiden bir dev. Zira etkileri hala Tsunami Umuttu Gezi. Silkinen bir halkın umudu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Dinsel İnançlar ve Düşünceler Tarihi | gizem berber .](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## (PDF) Dinsel İnançlar ve Düşünceler Tarihi | gizem berber .
+Bir yandan ikona kırıcılar kutsal tasvirlerin simgesel işlevini bilmiyor veya görmezden geliyorlardı; diğer yandan birçok ikona sever iko na tapımını kendi çıkarları için veya bazı kilise kurumlarının itibarını, üstünlüğünü ve zenginliğini sağlamak amacıyla kullanıyorlardı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Seyahatnâmelerde İzmit ve Çevresi by Manavos - Issuu](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Seyahatnâmelerde İzmit ve Çevresi by Manavos - Issuu
+1609, William Biddulph Biddulph William, Afrika ve Asya'da bir çok yer gezdikten sonra 1609 yılında Anadolu'ya gelerek Bithynia ve Trakya'dan sonra Karadeniz'e geçmiştir.85
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Türk Makina Tarihi by Orta Anadolu İhracatçı Birlikleri .](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Türk Makina Tarihi by Orta Anadolu İhracatçı Birlikleri .
+ARSLAN B. SANIR 1948 yılında Ankara Gazi Lisesinden, daha sonra Haziran 1954 döneminde İstanbul Teknik Üniversitesinden Makina Yüksek Mühendisi olarak mezun olmuş, 1 Eylül 1954 tarihinden 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dogu Roma](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Dogu Roma
+bütün bu özgürlükçü satırları yazarken Afrika'dan Amerika'ya köle ticareti yapan bir şirketin  ismi sonradan İngiliz Kraliçesi Viktorya ve Rus Çariçesi Katrina ile birlikte tarihin en kudretli kadınlarından biri olarak anılacak olan İmparatoriçe Teodora 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![[PDF] . AM i. t'tö. B U S! UMl H O M İ. f E. ru!î. .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## [PDF] . AM i. t'tö. B U S! UMl H O M İ. f E. ru!î. .
+1 ru!î B U S! UMl H O M İ f E t'tö I R P f T u â ;p N G R E b l.mfh! 1GİWİ IvaİGİTiaİ ^toy im e m ö
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Afrika Kedileri Orijinal Fragman - YouTube](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Afrika Kedileri Orijinal Fragman - YouTube
+Afrika Kedileri Orijinal Fragman
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tarih Vakfı-İstanbul 1 - PDF Free Download](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Tarih Vakfı-İstanbul 1 - PDF Free Download
+Tarih Vakfı-İstanbul 1
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sadece Afrikada Görebileceğiniz 8 İNANILMAZ Şey - .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Sadece Afrikada Görebileceğiniz 8 İNANILMAZ Şey - .
+30/7/2020· Afrika, içerisinde inanılmaz ilginç şeyleri barındırıyor. Afrika gezisi yapmak isteyeceksiniz ve afrikaya uçak bileti safari veya tatil için gitmek isteyecek
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Afrika Kıtası, İkiye Ayrılacak Şekilde Yarılıyor! - Evrim Ağacı](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Afrika Kıtası, İkiye Ayrılacak Şekilde Yarılıyor! - Evrim Ağacı
+Doğu Afrika Rift Vadisi sistemi, bunun an itibariyle olduğu yerlere bir örnektir. Doğu Afrika Rift Vadisi, kuzeyde Aden Körfezi'nden başlayarak, 3.000 kilometre boyunca uzanır ve güneyde Zimbabwe'ye kadar ulaşır. Bu vadi, Afrika plakasını eşit olmayan iki parçaya
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![EKAonline - 2010s](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## EKAonline - 2010s
+Ortadoğu ve Kuzey Afrika'da böyle bir etkinin yaratılmış olması ABD açısından Türkiye ortaklığını önemli hale getiriyor. Yine Mısır'da AKP ile aynı siyasal gelenekten olan İhvan Hareketi'nin "Özgürlük ve Adalet Partisi" adında parti kurup İktidarın en büyük ortağı olması yukarıda bahsettiğimiz ortaklığın arka .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ha Joon Chang-Sanayileşmenin Gizli Tarihi](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Ha Joon Chang-Sanayileşmenin Gizli Tarihi
+Afrika 1870 ile 1913 arasında yılda % 0,6 büyürken; Asya'da (Japonya dışında) kişi başına gelir % 0,4 büyüyordu.11 Aynı de ğerler, Batı Avrupa için yıllık % 13, ABD için % 1,8 idi.12 Özel likle not edilmesi gereken husus, aynı dönemde, o zamana kadar nın en
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Süs Eşyası Yapımında Kullanılan Açık Sarıdan Kızıla Kadar .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Süs Eşyası Yapımında Kullanılan Açık Sarıdan Kızıla Kadar .
+Her ne kadar Roma İmparatoru Julius Caesar (Sezar) milattan önce 46 yılında takvimin başlangıcını Ocak ayı olarak ilan ettiyse de, 16. yüzyılın ortalarına kadar Avrup
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![2011 - Eylül](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## 2011 - Eylül
+12 Eylül darbesi, onlarca insanın öldüğü, hapishanelerde onlarca yılın geçirildiği ve her anlamda bedelini işçi sınıfının ödediği, burjuva gericiliğinin gerçek yüzlerinden biridir. Burjuvazi şimdilerde ise bu darbeyi yine kendi siyasi amaçları doğrultusunda "12 Eylül ile hesaplaşıyoruz!" propagandasını kullanarak, işçi sınıfını kandırmakta, darbe 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ARKAİK YAZILAR](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## ARKAİK YAZILAR
+Picasso'yu etkileyen Afrika maskları bu tablodaki kadınların yüzünde de hissedilmektedir. Bu tabloda anlatılmak istenen cinsellik değildir. Picasso tiksindiği hayatın çirkinliğini, çürümüşlüğünü, kadının çıplaklığıyla dürüst bir şekilde resme aktarmış, tepkisini resimle göstermiştir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Afrika/Kızılderili Bibloları - May Gift Shop](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Afrika/Kızılderili Bibloları - May Gift Shop
+Afrika/Kızılderili Biblo Dekoratif biblolar yaşam alanlarınızı şekillendirirken kullanabileceğiniz tasarım ürünlerinden. Biblo modellerimiz arasında yer alan Afrika ve Kızılderili Biblolar ile mekan tasarımlarınıza yeni bir hava katabileceğiniz gibi şık mekanlara da sahip olacaksınız. May Gift Shop
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Full text of "dini Bilgiler" - Internet Archive](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Full text of "dini Bilgiler" - Internet Archive
+An icon used to represent a menu that can be toggled by interacting with this icon.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![AFRİKA by ırmak kurtulus](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## AFRİKA by ırmak kurtulus
+AFRİKA GİRİŞ AFRİKA, yüzölçümü ve nüfus yoğunluğu açısından dünyanın en büyük ikinci kıtasıdır. Kendisine bitişik kabul edilen adalar ile birlikte 30 milyon km²'lik alanı ile dünya yüzölçümünün %6'sını ve dünya üzerindeki toprakların %24,4'ünü kapsar. 1 milyar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![6 by Leon Trotsky - Issuu](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## 6 by Leon Trotsky - Issuu
+KADINLAR GÜNÜ HATIRASI Mart 2007 - 3 Sayı 6, Mart'07, 2.5 ytlSayı6,Mart'07,2.5ytl
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TANRI'NIN YERYÜZÜNDEKİ İŞARETLERİ by Heisenberg .](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## TANRI'NIN YERYÜZÜNDEKİ İŞARETLERİ by Heisenberg .
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cogito Dergisi - Sayı 50 - Bahar 2007 (Bellek: Öncesiz, .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Cogito Dergisi - Sayı 50 - Bahar 2007 (Bellek: Öncesiz, .
+Cogito Dergisi - Sayı 50 - Bahar 2007 (Bellek: Öncesiz, Sonrasız) Bir okurundan Cogito'ya teşekkürler  Ben bir Cogito okuruyum. İlk sayısından bu yana bütün sayılarının da müdavimiyim
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ARKAİK YAZILAR](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## ARKAİK YAZILAR
+Gustave Courbet, realist akımın öncüsü ve ateşli savunucusu olarak, birçok resminde, olayları olduğu gibi aktarmış ve sanata bakışını şu kelimelerle ifade etmiştir: ' İlkelerimden kıl payı olsun sapmadan, vicdanıma bir an olsun yalan söylemeden, birisinin hoşuna gitmek veya kolay satabilmek için bir karış tuval olsun boyamadan, hep yalnızca kendi sanatımla 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![T. A. Z.: The Temporary Autonomous Zone | Ali Rahimli](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## T. A. Z.: The Temporary Autonomous Zone | Ali Rahimli
+üzerinde kamalar, kudretli rüşvetler bırakır gider. Propagandasının ıtırı ontolojik anarşizmin sabıkalı  törene katılıyoruz; mütevazi, yarı-harabe bir türbe – tek ışık kaynağı meşaleler – tuhaf ve neredeyse Afrika senkoplu davullar eşliğinde ilahiler 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Afrika o Kadar da Küçük Değil – Açık Bilim](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Afrika o Kadar da Küçük Değil – Açık Bilim
+Özellikle Gine'de olmak üzere, Afrika'da çok fazla okul olsa da hiç eğitim ya da öğretim yok. Sadece özel okullarda eğitim var ancak o da ciddi miktarda para gerektiriyor. Bizlerin aileleri ise fakir ve paraya ancak bizi beslemek için ihtiyaçları var. Buna ilave olarak, futbol, basketbol ya da tenis oynayabileceğimiz bir spor okulu da yok.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Afrika kıtası ayrılıyor mu? - YouTube](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Afrika kıtası ayrılıyor mu? - YouTube
+Afrika kıta Videomuzda son günlerde sıklıkla gündeme gelen afrika kıtasının durumundan ve önceden kesfedilmiş olan zealandia kıtası adlı oluşumdan bahsettik.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Afrika/Kızılderili Bibloları](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Afrika/Kızılderili Bibloları
+Afrika/Kızılderili Biblo Dekoratif biblolar yaşam alanlarınızı şekillendirirken kullanabileceğiniz tasarım ürünlerinden. Biblo modellerimiz arasında yer alan Afrika ve Kızılderili Biblolar ile mekan tasarımlarınıza yeni bir hava katabileceğiniz gibi şık mekanlara da sahip olacaksınız. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Biyobozunur Seçeneklerde Sipariş Afrika kumaş desenleri .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Biyobozunur Seçeneklerde Sipariş Afrika kumaş desenleri .
+Afrika kumaş desenleri ekonomiktir ve bakımı kolaydır. Uzun süre kullanıldıktan sonra bile yırtılma eğilimi göstermezler ve yıpranmazlar. Bu ürünler, işleri yaparken veya açık hava etkinlikleri sırasında giymek için ideal kılan yüksek emici özelliklere sahiptir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En Az Mısırlılar Kadar Gizemli Afrika Medeniyetleri | Storia](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## En Az Mısırlılar Kadar Gizemli Afrika Medeniyetleri | Storia
+Songhaylar Afrika'nın batısında binlerce kilometrelik alana yayılmışlardı. 15. ve 16. yüzyıllarda büyük bir güce ulaşan imparatorluk, diğer Afrika medeniyetleri gibi zenginliğinin büyük bir kısmını ticaret ile elde etmişti. 200.000 kişilik orduları ile oldukça güvenli bir 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Siirt Üniversitesi bilimin ışığında](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Siirt Üniversitesi bilimin ışığında
+Konstans, Afrika'da ilerlemekte olan Müslümanları ve İtalya'daki Lombardları göz önünde bulundurarak devletin merkezini Sicilya'nın Sirakuza kentine taşıdı. İmparator hiçbir iş yapmadığı gibi bazı davranılanıyla da etrafındakileri rahatsız ettiği için kendi adamları .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Islam Ansiklopedisi Cilt 4 - PDF Free .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Islam Ansiklopedisi Cilt 4 - PDF Free .
+Murad ile bilhassa Fâtih'i metheden şairin kudretli bir sanatkâr olarak gösterilemeyeceğini; Fâtih'in Aşkî'ye olan teveccühünü onun sahip olduğu başka meziyetlerde aramanın .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

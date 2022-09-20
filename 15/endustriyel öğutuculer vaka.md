@@ -1,0 +1,41 @@
+# endustriyel öğutuculer vaka
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ağır otizm vaka değerlendirmesi | Pozitif Gelişim](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Ağır otizm vaka değerlendirmesi | Pozitif Gelişim
+Çocuğun adı soyadı: B.C. / Erkek Yaşı: 6 yaş Aldığı tanısı: %90 Ağır otizm İlk gözlenen davranışları Göz kontağı hiç yok. Sürekli ağlıyor. Bazen ağlamaları kesintisiz 3-4 saat sürüyor. Hiçbir şekilde komut almıyor. Öfke nöbetleri fazla. Ve sürekli elini ısırıyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![VAKA İLETİŞİM SANAYİ VE TİCARET ANONİM ŞİRKETİ | .](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## VAKA İLETİŞİM SANAYİ VE TİCARET ANONİM ŞİRKETİ | .
+VAKA İLETİŞİM, EVLİYA ÇELEBİ MAH.REFİK SAYDAM CD.HALİÇ APT.23 / 8 BEYOĞLU BEYOĞLU İSTANBUL
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vaka İncelemesi Örneği - YouTube](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Vaka İncelemesi Örneği - YouTube
+About Press Copyright Contact us Creators Advertise Developers Terms Privacy Policy & Safety How YouTube works Test new features
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vaka 1 – Otomobil Parça distribütörü Malzeme Yöneticisi .](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Vaka 1 – Otomobil Parça distribütörü Malzeme Yöneticisi .
+Parts Emporium şirketi geçmişte hayal kırıklıklar yaşamış iki oto tamircisi, Dan Block ve Ed Sprigqs taratman kurulmuş toptan otomobil parçaları distribütörüdür. İlk kurulduğunda Block'un garajında hizmet veren firma, Chicago un güney yakasında eski terkedilmiş 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vaka örnekleri | Değişik terapi yöntemlerine ait ilginç vaka .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Vaka örnekleri | Değişik terapi yöntemlerine ait ilginç vaka .
+Psikoterapi sürecinde fotoğrafların kullanımı ile ilgili vaka örneklerine göz atmadan önce şu yazılar ilginizi çekebilir: Fototerapi: Fotoğrafların terapide kullanımı Psikoterapi sürecinde fotoğraflarla yapabileceğiniz 10 farklı etkinlik Vaka örneği 1 - Pandomim
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vaka.nu](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Vaka.nu
+Välkommen. Den här sidan använder du för att installera och starta ditt passersystem VAKA.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vaka incelemesi | Duygu karmaşası yaşayan danışan | .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Vaka incelemesi | Duygu karmaşası yaşayan danışan | .
+Vaka incelemesi: İkircikli duygular. Yazar. tuba. -. 14 Ocak 2018. 0. 12377. Orta yaşlarda kadın danışan geçtiğimiz hafta içerisinde işyerindeki bir arkadaşı ile şiddetli bir tartışma yaşıyor. Bu çatışma kendisinde farklı duygular uyandıyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vaka Haberleri - Son Dakika Yeni Vaka Gelişmeleri](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Vaka Haberleri - Son Dakika Yeni Vaka Gelişmeleri
+Vaka haberi sayfasında en son yaşanan vaka gelişmeleri ile birlikte geçmişten bugüne CNN Türk'e eklenen vaka haber başlıkları yer almaktadır. Son dakika vaka haberleri de dahil olmak üzere toplam 408 haber bulunmuştur. Uzman isim tarih verdi: 'Vakalar 15 Nisan'dan itibaren düşecektir'. Son dakika: Türkiye'de vaka sayısında rekor artış!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vaka Analizi by cansu akyuz - Online presentation tools | .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Vaka Analizi by cansu akyuz - Online presentation tools | .
+Vaka Analizi Adımları. 1.Vakayı çevreleyen verilerin ele alınması. 2.Anahtar konuların tanımlanması. 3.Çözüm olarak yapılabilecek alternatif eylemler listesinin hazırlanması. 4.Listelenen alternatif eylemler listesinin ele alınması ve değerlendirilmesi. 5.En uygun eylemin tavsiye edilmesi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![VAKA YÖNETİMİ ve BAKIM PROTOKOLÜ](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## VAKA YÖNETİMİ ve BAKIM PROTOKOLÜ
+Bu süreç bir vaka yöneticisi tarafından or-ganize edilir. Hekim, hemşire, sosyal hizmet uzmanı ya da sağlık ekibinin herhangi bir üyesi vaka yöneticisi olabilir. Ancak vaka yöneticisinin klinik bakım, kurumsal dinamikler, finans sis-temleri ve toplum kaynakları gibi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

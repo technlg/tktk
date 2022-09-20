@@ -1,0 +1,101 @@
+# i̇lköğretim kırıcı uretimi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İLKÖĞRETİM . | ŞİRİN BİRLER](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## İLKÖĞRETİM . | ŞİRİN BİRLER
+İLKÖĞRETİM HAFTASI GÜZEL SÖZLER · İlköğretim geleceğin temelidir. Bilgisiz insan, meyvesiz ağaca benzer. · Milletimizi gerçek saadete ulaştıracak irfan ordusudur. · İlköğretim davası, insan olma, ulus olma davasıdır. Öğrenim, aklın gücünü geliştirir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tortum Medya](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Tortum Medya
+Dağcılar Tortum'a Hayran Kaldı. GÜNDEM admin1 Jan 31 2021, 12:33 am Jan 31 2021, 12:33 am <p>Erzurum Valiliği, Erzurum Büyükşehir Belediyesi, Erzurum Teknik Üniversitesi İzmir Dokuz Eylül Üniversitesi ve Tortum Belediyesi'nin destekleriyle bu yıl 7'ncisi düzenlenen festivale, 6 ülkeden 33 dağcı katıldı.Türkiye'nin yanı sıra Rusya, Fransa, İtalya, Romanya, Ukrayna'dan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![#Emniyet Ve • Raw Ranked Sites](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## #Emniyet Ve • Raw Ranked Sites
+Polis Akademisi Başkanlığı Emniyet Teşkilatına insan hak ve özgürlüklerine saygılı, toplumun huzur ve güvenliğini sağlamada yeterli donanıma sahip, yüksek verimlilik seviyesinde çalışan ve çalıştırabilen amir ve memur yetiştirmek Doğuş Elektrik - Elektrik ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İlköğretim – Okul Zamanı](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## İlköğretim – Okul Zamanı
+İlköğretim yaşındaki çocuğunuz eve güvenle ulaşıp, evinizin kapısını açıp girme sorumluluğunu alabilecek yaşta ve olgunlukta olması size hem maddi olarak kazandırıyor, hem de çocuğunuzun öğretimin yanı sıra gelişimiyle ilgili de mesafe kaydetmiş Eğer ki siz 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![dursun ali suratoğlu](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## dursun ali suratoğlu
+giydirme, cephe, cephe sistemleri, cephe kaplama ve alüminyum, ışıklık, güneş kırıcı, korkuluk, kış bahçesi  bilgi birikimi ile, alüminyum cephe giydirme sistemleri konusunda detaydan bütüne
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sorun Söyleyelim | Nevzat Erdağ](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Sorun Söyleyelim | Nevzat Erdağ
+b) İşçinin, işveren yahut bunların aile üyelerinden birinin şeref ve namusuna dokunacak sözler sarfetmesi veya davranışlarda bulunması, yahut işveren hakkında şeref ve haysiyet kırıcı asılsız ihbar ve isnadlarda bulunması. c) İşçinin işverenin başka bir işçisine
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kariyerim İlköğretim – Okul Zamanı](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Kariyerim İlköğretim – Okul Zamanı
+22 ÖZEL BENİM KARİYERİM İLKÖĞRETİM OKULU 388,606 23 ÖZEL BÜYÜK İLKÖĞRETİM OKULU 388,485 24 TAHSİN ŞAHİNKAYA İLKÖĞRETİM OKULU 386,006 25 ÖZEL YENİMAHALLE PINAR İLKÖĞRETİM OKULU 385,947 26 ÖZEL BİLİŞİM 27 ÖZEL
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İlköğretim Okul Yöneticilerinin Görüşlerine Göre Öğrencilerin .](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## İlköğretim Okul Yöneticilerinin Görüşlerine Göre Öğrencilerin .
+Bu araştırmada amaç, ilköğretim okul yöneticilerinin görüşlerine göre öğrencilerin istenmeyen davranışlarını ve bunlarla baş etme yöntemlerini belirlemektir. Araştırma .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![NACE KODU Listesi - Türk Ticaret Rehberi](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## NACE KODU Listesi - Türk Ticaret Rehberi
+suyu, şıra, şalgam suyu, gazlı içecekler vb. dahil, içme suyu hariç) 47.25.03 Belirli bir mala tahsis edilmiş mağazalarda içme suyu perakende ticareti (şişelendirilmiş veya damacanaya konulmuş olanlar dahil, pantolon askısı, şemsiye, baston, vb. (güneş şemsiyeleri 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İLKÖĞRETİM | AÇIKÖĞRETİM OKULU](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## İLKÖĞRETİM | AÇIKÖĞRETİM OKULU
+Daha fazla bilgi için gönderiyi ziyaret edin. Gizlilik ve Çerezler: Bu sitede çerez kullanılmaktadır. Bu web sitesini kullanmaya devam ederek bunların kullanımını kabul edersiniz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Maden Ve Kaynak Suyu Uretimi Bursa arası için en uygun .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Maden Ve Kaynak Suyu Uretimi Bursa arası için en uygun .
+Maden Ve Kaynak Suyu Uretimi Bursa arası için en uygun adresler - (Yaptığınız arama 167 sonuç getirdi.), Bölgede uzman bir kişi veya işletmeyi kolaylıkla bulun : Maden Ve Kaynak Suyu Uretimi Bursa arası için en uygun adresler, Bu sayfada : Özkaynak, Sırma 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İlköğretim – Yediiklim Okulları](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## İlköğretim – Yediiklim Okulları
+İlköğretim Orta Okul Anadolu Fen Lisesi Dijital Dersler 1. Sınıf 1-A Canlı Ders 1-B Online Ders 1-C Online Ders 1-D Online Ders 1-E Online Ders 2. Sınıf Canlı Ders 3. Sınıf Canlı Ders 4. Sınıf Canlı Ders 5. Sınıf Canlı Ders 6. Sınıf Canlı Ders 7. Sınıf Canlı Ders 11.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![odp-tr30/results.txt at master · faraday/odp-tr30 · GitHub](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## odp-tr30/results.txt at master · faraday/odp-tr30 · GitHub
+ODP TR-30: Turkish dataset for search result clustering (SRC) studies, extracted from Open Directory Project (ODP), as in ODP-239. - faraday/odp-tr30
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) KADIN EMEĞİ.pdf | sinem utanır](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## (PDF) KADIN EMEĞİ.pdf | sinem utanır
+Abstract Concepts such as woman's role in the producti- on and reproduction of social life, woman's labor and economical value of woman's labor constitute a major part of discussions made by feminist approach that in- vestigates the patriarchal
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Firmalar Rehberi](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Firmalar Rehberi
+Asil Servis<br />Asil Şadi İnşaat Harita Emlak Dekorasyon<br />Asil Teknik<br />Asil Teknik Klima<br />Asil Tekstil İth İhr San. Ltd. Şti.<br />Asil Tekstil Mak San. Tic. Ltd. Şti.<br />Asil Telefon Telekominikasyon San. Tic. Ltd. Şti.<br />Asil Telekom<br />Asil 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ilköğretim – DAVUT TÜRKAN](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## ilköğretim – DAVUT TÜRKAN
+İlköğretim, eğitimin ilk aşamasıdır. Okul öncesi eğitimin ardından gerçekleştirilir. Genellikle çoğu ülkelerde, çocuklar için ilköğretim zorunludur, ancak bu işlem sadece ebeveynlerin isteği ile gerçekleştirilebilir haldedir. Bunun ardından gelen orta öğretim, bir bakıma 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Eskisehir.Net | Şehrin Sitesi](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Eskisehir.Net | Şehrin Sitesi
+[{"Name":"Mutfak Elemanı","URL":"mutfak-elemani-60997","ID":60997},{"Name":"Tezgahtar","URL":"tezgahtar-63295","ID":63295},{"Name":"Tezgahtar","URL":"tezgahtar-63310 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Uncategorized arşivleri - aziz kerim](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Uncategorized arşivleri - aziz kerim
+Sosyal mecrada şiddeti kınayanların, gerçek hayatta şiddeti meşrulaştırdığı dünya. — Ceylan Yıldızoğlu (@ceylanyldzglu) March 7, 2021 Her inek için 10 otlatma vergisi çıktığında gülüp susanlar sıra sizde her kuyumcu 500 gr Altını kamu bankalarına yatıracak.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) KURTUBA AKADEMİ SOSYAL BİLİMLER VI. ULUSAL .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## (PDF) KURTUBA AKADEMİ SOSYAL BİLİMLER VI. ULUSAL .
+KURTUBA AKADEMİ SOSYAL BİLİMLER VI. ULUSAL ÖĞRENCİ SEMPOZYUMU "BİR DİNAMİK OLARAK GENÇLİĞİMİZ"
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) YENİ BİR BAKIŞ AÇISI OLARAK YURTTAŞ .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## (PDF) YENİ BİR BAKIŞ AÇISI OLARAK YURTTAŞ .
+Özet İletişim teknolojileri alanındaki gelişmeler geleneksel gazetecilik ve yayıncılık konusunda algıyı değiştirmektedir. 2007'de Iphone (cep telefonu) üzerine kamera eklenmesi yeni bir akımın habercisi olmuştur. Bu akım, "mobil fotoğrafçılık",
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İLKÖĞRETİM OKULLARINDAKİ OKUL YÖNETİCİLERİNİN TAKIM .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## İLKÖĞRETİM OKULLARINDAKİ OKUL YÖNETİCİLERİNİN TAKIM .
+As a result of the research, features of the school directors to be percieved as the team leader are found as follows: team leadership, motivation, team spirit, risk- taking and vision. The research was conducted on 300 classroom teachers working at public schools in Sultanbeyli District of Istanbul.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İLKÖĞRETİM](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## İLKÖĞRETİM
+İLKÖĞRETİM Hızlı Arama Hızlı Ürün Arama Detaylı Arama En Populer Olanlar Berk Tek Başına Ekmek Almaya Gid  CİYYAKK BU SES DE NE BÖYLE? KONG KONG DAMDAKİ GORİL 2 Can Arkadaş Kıskançlık Afacanlar Çetesi- Büyük 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BURSA AR GÜVENLİK Firmaları, Firma Arama](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## BURSA AR GÜVENLİK Firmaları, Firma Arama
+Bursa Başarı Merkezinde İlköğretim-Lise-Yetişkinler için çeşitli eğitimler ve seminerler verilmektedir. (Anlayarak Hızlı Okuma,  chef seftalı nektarin bodur ayva bodur kıraz yarı bodur erik klasik meyve fidanı incir fidanı cesitli meyve fidan uretimi bursa serme 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İLKÖĞRETİMDE MATEMATİK ÖĞRETİMİ](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## İLKÖĞRETİMDE MATEMATİK ÖĞRETİMİ
+İlköğretim 1-8. sınıflarda matematik ders sayısı haftada 4 saattir. Süre sınırlı olsa da, sorun ders saati sayısından değil yanlış öğretim yöntemlerinden kaynaklanmaktadır. Bugünkü haliyle sadece ders saatlerinin artırılması pratik bir yarar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) THE TRANSFER OF CULTURAL MEMORY FROM .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## (PDF) THE TRANSFER OF CULTURAL MEMORY FROM .
+Jan Assmann describes the concept of memory by means of the individual (inner level), communicative (social level) and cultural (cultural level) triad, on the premise that memory is a phenomenon needing to be read in relation to time and identity.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

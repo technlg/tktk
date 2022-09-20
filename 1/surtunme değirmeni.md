@@ -1,0 +1,73 @@
+# surtunme değirmeni
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Molent G50 El değirmeni | Sayfa 30 | Kahve Kulübü - Ev .](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Molent G50 El değirmeni | Sayfa 30 | Kahve Kulübü - Ev .
+Comandante c40 kullaniyorum. Dusuk kliklerde bendede surtunme sesi var. Ayriyetten bendede statiklenme oluyor. Her ogutum sonrasi kavonozu cikardiktan sonra klik yerinde epey kahve partikulu kaliyor statiklenmeden oturu. Bu durum kahve cekirdegine gore
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Comandante C40 Nitro Blade | Sayfa 12 | Kahveler.Net : .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Comandante C40 Nitro Blade | Sayfa 12 | Kahveler.Net : .
+Cevap: Comandante C40 Nitro Blade Merhaba, Bende bu değirmeni pourover için al ayı düşünüyordum. Hakkında yurtiçi-yurtdışı kötü geri bildirim
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sozen Degirmenleri Tombul Kahve Değirmeni | KahhveCom](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Sozen Degirmenleri Tombul Kahve Değirmeni | KahhveCom
+Değirmeni ayırdığınızda gövdenin ortasındaki ayar vidasını göreceksiniz. Değirmenin içindeki anahtarla vidayı sıkarak ya da gevşeterek değirmeni ihtiyacınız olan öğütme boyutuna göre ayarlayın. Hazneye kahve çekirdeği koyup değirmeni tekrar birleştirin, sonrasında değirmeni çevirerek .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![sürtünme kuvveti | Ece Eğitim Ve Ders Gereçleri Ltd. Şti.](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## sürtünme kuvveti | Ece Eğitim Ve Ders Gereçleri Ltd. Şti.
+Su Değirmeni Yenilenebilir Enerji Basit Makineler Deneyi – Demonte 85,50 KDV dahil Sepete Ekle Eğik Düzlemde Sürtünme Deney Modeli 4 Adet Ağırlık Dahil – Demonte 313,50 KDV dahil Ürün kategorileri Anatomik Modeller Ve Cihazlar Coğrafya Model 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sürtünme Çubuğu Ebonit -- Infinity Adet Fiyati - .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Sürtünme Çubuğu Ebonit -- Infinity Adet Fiyati - .
+Sürtünme Çubuğu Ebonit -- Infinity Adet Fiyati 4.7 TL ile İpsizcambaz'da. Ebonit sürtünme çubukları, elektrostatik deneyler için kullanışlıdır ve elektroskobu doldurmak için kullanılabilir. 25 cm uzunluğunda 8 .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Akder - Akışkan Gücü Derneği - 100 metre hidrolik .](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Akder - Akışkan Gücü Derneği - 100 metre hidrolik .
+Büyük bir güç ünitesi ile çok sayıda valf bloğunu beslemek, her valf bloğu için ayrı ayrı güç ünitesi tesis etmeye göre avantajlı olduğu durumlar olabilir. Bu tip tesislerde kaçınılmaz olarak basınçlı hidrolik hatların, pilot basınç hatlarının yada düşük basınçlı dönüş 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![su değirmeni - YouTube](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## su değirmeni - YouTube
+su değirmeni - YouTube. su değirmeni. Watch later. Share. Copy link. Info. Shopping. Tap to unmute. If playback doesn't begin shortly, try restarting your device.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Asırlık su değirmeni zamana direniyor | TRT Haber Foto .](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Asırlık su değirmeni zamana direniyor | TRT Haber Foto .
+Asırlık su değirmeni zamana direniyor Eskişehir'in Mihalıççık ilçesinde bulunan Gürleyik Su Değirmeni, 1700'lü yıllardan günümüze buğday öğütmeye devam ediyor. Yaşam
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Değirmen - Karaca](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Değirmen - Karaca
+City Concrete 160 mm Biber Değirmeni 319.41 TL Ücretsiz Kargo Cole And Mason Exford 160 mm Tuz Biber Değirmen Seti 455.99 TL Yeni Karaca Wood Sun Baharat Değirmeni 15,24cm 119.99 TL Ücretsiz Kargo Cole And Mason Derwent Biber Değirmeni 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Comandante C40 Nitro Blade Kahve Değirmeni | Sayfa .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Comandante C40 Nitro Blade Kahve Değirmeni | Sayfa .
+birilerinde 4 klikte bile surtunme olmaz iken digerinde 7 klikte surtunme olabiliyor. hatta zorlarsaniz yatay pozisyonda tutup mili elinizle hizli bir spin attirdiginizda daha yuksek kliklerde de surtunme saglayabilirsiniz. buna yonelik aciklamalar resmi sitesinde
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Un Değirmeni | Ziraat Makinaları](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Un Değirmeni | Ziraat Makinaları
+Su Değirmenleri. Su enerjisine bağlı olarak çalışan ve yel değirmeninde olduğu gibi yakıt harcamadan doğal akan su akıntısı ve basıncı ile çalışan değirmen türüdür. MÖ 100 yılında Eski Yugoslavya ve Arnavutluk'ta ilk kez kullanılmaya başlandı. Bunların çalışması için çok hızlı akan nehirler gerekiyordu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MİNİ UN DEĞİRMENİ - dikmaksan](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## MİNİ UN DEĞİRMENİ - dikmaksan
+MİNİ UN DEĞİRMENİ MAKİNAMIZ ULUSLARARASI SERTİFİKALIDIR. TEKNİK ÖZELLİKLERİ: - 220 VOLT ELEKTRİK GİRİŞLİDİR. - AÇMA KAPAMA ŞARTELİ MEVCUTTUR. - 1.5 KW MOTOR GÜCÜNDEDİR. - ÜRÜN TEMAS YÜZEYİ KOMPLE
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Öğütücü Değirmen - Emir Makine](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Öğütücü Değirmen - Emir Makine
+Kahve Değirmeni Kahve Makinesi Wafle Makinesi Börek Poğaça Isıtma Makinesi Ananas Soyma Makinesi Termos & Kettle Küllük Melamin Lokanta Ekipmanları
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Öğütücü Değirmen - Emir Makine](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Öğütücü Değirmen - Emir Makine
+Lavion Bitki Baharat Öğütücü Değirmen Makinesi 100 Gr Yedek bıçak hediyeli. Makinamızı diğer öğütücülerden ayıran en büyük özellik 28000 Devir ile dönmesidir. bu sayede birçok taneli ve sert ürünü toz haline getirebilirsiniz. Ürünün Kapağı plastik değil
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![EL DEĞİRMENİ - YouTube](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## EL DEĞİRMENİ - YouTube
+1/9/2014· Eski zamanlar da; Artvin, yusufeli yöresinde; mısır, buğday gibi ürünlerin kolayca öğütülebilmesine yarayan el değirmenleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sözen Sürtünme ve Yalpalanma Tedavisi | Kahveler.Net : .](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Sözen Sürtünme ve Yalpalanma Tedavisi | Kahveler.Net : .
+Bir ay önce aldığım sözen süper değirmeni nasıl modifiye ederim diye uğraşıp durdum. Alttaki vida oldukça zor dönüyordu. Vida deliğini biraz aşındırdıktan sonra bilyalı setskur taktım. Bunu da forumda okumuştum. Moka ve daha kalın öğütümlerde işe yaradı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Molent G50 El değirmeni | Sayfa 30 | Kahve Kulübü - Ev .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Molent G50 El değirmeni | Sayfa 30 | Kahve Kulübü - Ev .
+Selamlar, Birkaç gündür değirmeni kullanıyorum. Değirmenin gövdesi ve bıçak arasında eksenel doğruluk açısından bir sıkıntı var gibi geldi bana. Bu konuda sizin de fikrinizi almak istedim. Bu videolarda eklediğim durum normal midir? Sizin değirmenler de bu şekilde
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Sürtünme Değirmen Üreticilerinden ve .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Yüksek Kaliteli Sürtünme Değirmen Üreticilerinden ve .
+Yüksek Kaliteli Sürtünme Değirmen Üreticilerini Sürtünme Değirmen Tedarikçilerini ve Sürtünme Değirmen Ürünleri en iyi fiyatta Alibaba'da bulun. Sevkiyata Hazır Ticaret Fuarı Kişisel Koruyucu Ekipman Hizmetler Alibaba üzerinden satın Yardım
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

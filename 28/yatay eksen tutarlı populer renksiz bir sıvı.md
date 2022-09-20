@@ -1,0 +1,149 @@
+# yatay eksen tutarlı populer renksiz bir sıvı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İsimsiz - Tumblr](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## İsimsiz - Tumblr
+İsimsiz - Tumblr  İsimsiz
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Medikal Terminoloji- 1 - Prof. Dr. Bilal Semih .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Medikal Terminoloji- 1 - Prof. Dr. Bilal Semih .
+7 Medikal Terminoloji – Dr. Bilal Semih Bozdemir kemik iliği ile ilgili olacaktır. Bu kelime –oid soneki ile bittiğinde de myeloid şeklini alacaktır. –oma eki ile bitmesi durumunda ise 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SATINALMA REHBERİ](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## SATINALMA REHBERİ
+İLANLI USUL İÇİN STANDART GAZETE İLANI FORMU YAPIM İŞİ İÇİN İHALE İLANI Laçin Köylere Hizmet Götürme Birliği, Orta Karadeniz Kalkınma Ajansı 2019 Yılı Turizm Altyapısının Geliştirilmesi Mali Destek Programı kapsamında sağlanan mali destek ile Yeşil Göl Projesi için bir yapım işi ihalesi sonuçlandırmayı planlamaktadır. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yatay, Kanatlı Bıçaklı Pulluk Tipi Karıştırıcılar | ISIMSAN](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Yatay, Kanatlı Bıçaklı Pulluk Tipi Karıştırıcılar | ISIMSAN
+Karıştırıcı yatay, silindirik bir tambur ünitesinin içinde dönen bir mil ve palet kanatlarından oluşur. Sonuçta karışımda, karıştırma prosesine tüm ürün taneciklerini sürekli olarak dahil eden bir .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Blog-tasarimdanimalata | Tasarimdan imalata- Part 2](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Blog-tasarimdanimalata | Tasarimdan imalata- Part 2
+Hatırlarsanız; bir hammadde olarak beton, devasa 3D yazıcılar tarafından üretilmiş olan gerçek bir evin hikayesiyle de gündeme gelmişti. Üstelik evin 3D yazıcıyla üretilmiş olmasının yanı sıra, sadece 24 saat içerisinde üretilmiş olması da oldukça hayret vericiydi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tribal Dövme Modelleri: 2012](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Tribal Dövme Modelleri: 2012
+Örneğin, bir deyişle "topak" ve "güneşler" doğal dönme ambigramlar vardır. Dikey bir eksen üzerinde yansıyan zaman kelime "tomurcuk" doğal bir ayna Ambigram oluşturur. Yatay eksen üzerinde yansıyan zaman kelime "SEÇİM" ve "OKSİT", tüm başkentlerinde
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Zorlama: Eksenel kuvvet ve yatay yayılı yük Bilinen değerler](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Zorlama: Eksenel kuvvet ve yatay yayılı yük Bilinen değerler
+Ornek_I_31.xmcd 22.09.2016 Zorlama: Eksenel kuvvet ve yatay yayılı yük Bilinen değerler: F h x w w x q y E.J Malzeme "S235" fy 235 MPa E 210000 MPa γ M 1.1 h S 4 m Emniyetli akma mukavemeti fEM fy γ M fEM 213.6 MPa 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Radar - Radar](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Radar - Radar
+Radar, nesnelerin menzilini, açısını veya hızını belirlemek için radyo dalgalarını kullanan bir algılama sistemidir . Uçakları, gemileri, uzay aracını, güdümlü füzeleri, motorlu araçları, hava oluşumlarını ve
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tarım Siteniz: Sebze ve meyve zararlıları (Meyve .](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Tarım Siteniz: Sebze ve meyve zararlıları (Meyve .
+5. Yassı akar; vücut oval ve yassı yapılı, kiremit veya daha koyu kırmızı renktedir. Sırtında yatay olarak vücudunu ikiye bölen bariz bir çizgi görülür. sırttaki kıllar kısa ve diken gibidir. Bacakları kısa, boğumları küttür. Yavaş hareket ederler.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bilim Teknik Dergisi - Mayıs 2009 by Okay Oky - Issuu](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Bilim Teknik Dergisi - Mayıs 2009 by Okay Oky - Issuu
+Bilim Teknik Dergisi (Tübitak) - Mayıs 2009 İçindekiler 24 Fosil yakıtların yerini artık yenilenebilir enerji kaynakları, yani doğada sürekli var olan, güneş, rüzgâr, biyokütle 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![yatay eksen - Nedir Ne Demek](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## yatay eksen - Nedir Ne Demek
+yatay eksen ne demek? Azimuth axis. azimuth Azimut, gök küresinin herhangi bir noktası ile güney yönü arasmdaki açı Azimut [astr.], güney açısı [astr.] yatay emek akışkanlığı İşçilerin aynı bilgi ve beceri düzeyi gerektiren iş kolları arasında herhangi bir engelle
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lisans Ders Kataloğu | Sabancı Üniversitesi](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Lisans Ders Kataloğu | Sabancı Üniversitesi
+Yatay Geçiş Dikey Geçiş Özel Öğrenci Lisans Programlarına Yurtdışından Öğrenci Kabulü Öğrenci Kaynakları Uluslararası Ofis Sabancı Üniversitesi Sakıp Sabancı Müzesi KVKK Aydınlatma Bildirimi Lisans Dersleri Deneyimi Endüstri mühendisliği var mı?
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cilt13 sayi1 2009 by SAUJS - Issuu](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Cilt13 sayi1 2009 by SAUJS - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yatay Eksenli Rüzgar Türbini - Gezegen Solar](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Yatay Eksenli Rüzgar Türbini - Gezegen Solar
+Dikey Eksenli Rüzgar Türbinlerine göre çok daha verimlidir. Yatay Eksenli Rüzgar Türbini (HAWTs) "Horizontal Axis Wind Turbine" olarak adlandırılır. Dönme ekseni yere paralel olarak tasarlanmıştır. Bir elektrik motoru yardımıyla rüzgar yönüne göre pervanenin yönü ayarlanabiliyor. Yapısal olarak bir elektrik motorundan farklı değildir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![YATAY EKSENLİ TRV4](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## YATAY EKSENLİ TRV4
+YATAY EKSENLİ TRV4 • ECA4 + R1/2"F • İlgili standart : TS EN 215 • Çalışma basıncı : 10 bar • Maksimum çalışma sıcaklığı : 120 C • Ayar aralığı : +6, +28 C • Histerisiz : C=0,35K • Fark basıncı etkisi : D=0,3K • Su sıcaklığı etkisi : W=0,8K • Tepki süresi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sırlar Sınırlar 1 (b) – ARDZ-ARCH](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Sırlar Sınırlar 1 (b) – ARDZ-ARCH
+Matrisin yatay toplamı evrenin bir düzlemini (örneğin yatay elektrik alanı), düşey ise ikinci bilinen düzlemini (magnetik alanını) göstermektedir. Fakat evrenin saklı olan üçüncü düzlemi (KÖŞEGEN ya da VEKTÖR DÜZLEM) ise, öteki düzlemde olan proton ve nötron yerine bize (uuu) = ∆++ parçacığını her iki köşegende de vermektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![YAĞMUR - NEDİR KİMDİR](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## YAĞMUR - NEDİR KİMDİR
+Bir sıvı buharlaştığı zaman, beraberinde bir miktar ısı alır. Banyodan sonra üşüdüğümüzü, hissederiz .Bunun nedeni, tenimizin sıcaklığıyla temas halinde kalan suyun hızla buharlaşması ve bize bir serinleme,hatta üşüme hissi vermesidir.Kısacası, terleme olayı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konik Yatay Eksen Rüzgar Türbini Kutup Kulesi Hidrolik .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Konik Yatay Eksen Rüzgar Türbini Kutup Kulesi Hidrolik .
+yüksek kalite Konik Yatay Eksen Rüzgar Türbini Kutup Kulesi Hidrolik 50KW Çin'den, Çin lider wind generator tower Ürün, sıkı kalite kontrol ile wind generator pole fabrikalar, yüksek kalite üretmek wind generator pole Ürünler.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bilim ve Teknik Dergisi by Bilim Teknoloji - Issuu](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Bilim ve Teknik Dergisi by Bilim Teknoloji - Issuu
+Bilim ve Teknik Ocak 2011 Öğretmen Adayları İçin Astronomi Desteği Ersin Göğüş S abancı Üniversitesi geleceğin fen bilgisi, fizik ve matematik öğretmenlerine yönelik temel 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Blog-tasarimdanimalata | Tasarimdan imalata](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Blog-tasarimdanimalata | Tasarimdan imalata
+Daha da genel bir sentez bilgisi vermek gerekirse, poliesterler bir diasit ve bir diolünesterfikasyon reaksiyonu sonucu elde edilir. Basit bir yoğunlaşma polimerizasyonu mekanizmasını kullanarak, esterifikasyon reaksiyonu ile tereftalik asit ve etilen glikol, bir asit katalizörüyle birlikte ısıtılınca polimerizasyon başlar ve PET elde edilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SAVAŞLARI DEĞİŞTİREN 50 SİLAH — William Weir .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## SAVAŞLARI DEĞİŞTİREN 50 SİLAH — William Weir .
+Bugün birçok yetkin kişi, Callinicus'un bulduğu alev makinesinin, sönmemiş kireç ve oldukça yanıcı bir sıvı olan neft yağı veya terbentin içerdiğine inanmaktadır. Sönmemiş kireç, suyla karıştırıldığı zaman çok .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yatay Eksenli Rüzgar Türbinler – Transmergreen Güneş .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Yatay Eksenli Rüzgar Türbinler – Transmergreen Güneş .
+Yatay Eksenli Rüzgar Türbinleri (Horizontal Turbin) Sıkça görmeye alıştığımız bu tür rüzgar türbinlerinin dönme ekseni yataydadır. Ana rotor şaftı ve elektrik jeneratörü bir kulenin tepesine yerleştirilir ve rüzgara doğru döndürülmelidir. Çok büyükten, küçüğe kadar farklı boyutlarda olabilirler.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Eng Tr metal Sozlugu | Kutay Kırmızı](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## (PDF) Eng Tr metal Sozlugu | Kutay Kırmızı
+Eng Tr metal Sozlugu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kemal ( Bay Hiçkimse ) - Fizikist](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Kemal ( Bay Hiçkimse ) - Fizikist
+Galiba populer scıence de okudum . Bir bilim insanı bilinci maddenin bir formu olarak ele alıyor .  Fakat bu cismin yatay yada dikey eksende oluşu bu direncin 3 adet kütle-çekimsel dalga gözlemlendi. 4 ocak 2017 Bu dalgalar, uzay-zaman denilen yapıyı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇUKUROVA ÜNİVERSİTESİ FEN BİLİMLERİ ENSTİTÜSÜ .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## ÇUKUROVA ÜNİVERSİTESİ FEN BİLİMLERİ ENSTİTÜSÜ .
+ÇUKUROVA ÜNİVERSİTESİ FEN BİLİMLERİ ENSTİTÜSÜ YÜKSEK 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![A | Marmara Grup OSGB](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## A | Marmara Grup OSGB
+Belirli bir soğutkanın, bir kurutucu arasından belirli bir basınç düşümü altında verdiği akış miktarı( debi); akış kapasitesi, 110 F (43 C) sıvı sıcaklığında, kilogram /saniye olarak ifade edilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Volume5TR](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Volume5TR
+yatay eksenin (k) üzerinde, ki bu eksen dikey eksen (w) ve dişli çarklar (h ve ϑ) aracılığıyla bir koşum hayvanı tarafından döndürülmektedir, kısmen dişli bir tek disk yerine çeyrek daire çevreleri dişlerle donatılmış dört disk bulunmaktadır. Dişlilerin her biri 90
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İŞ GÜVENLİĞİ UZMANLIĞI NOTLARI](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## İŞ GÜVENLİĞİ UZMANLIĞI NOTLARI
+Karbon monoksit renksiz, kokusuz ve tatsız bir gaz olup karbon içeren fosil yakıtların yanması ile ortaya çıkar. Karbon monoksit çok zehirli bir gazdır. Yetişkin bir insan, yarım saat boyunca, % 1 oranında karbon monoksit içeren bir odada kapalı kalırsa kısa sürede yaşamını yitirir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ata Binerken | Ata Binerken ne demek? | Ata Binerken .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Ata Binerken | Ata Binerken ne demek? | Ata Binerken .
+Yönlü bir eksen üzerinde bulunan bir noktanın, başlangıç noktasına olan uzaklığının cebir bakımından değeri: Bir eksen üzerindeki noktalar apsisleriyle belirtilir. 2. Bir noktanın uzaydaki yerini tesbite yarıyan ana çizgilerden yatay olanı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yenilenebilir Enerji, Fosil Yakıtlar ve Nükleer Enerji: .](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Yenilenebilir Enerji, Fosil Yakıtlar ve Nükleer Enerji: .
+Son grafiğimizde ise, kişi başına düşen enerji tüketimiyle (düşey eksen de), aşırı fakirlik içindeki nüfus oranınını (yatay eksen de) göstermekteyiz: Genel olarak gördüğümüz, daha yüksek enerji seviyelerine ulaştıkça fakirliğin azaldığıdır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![teknoloji - bilim adamları](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## teknoloji - bilim adamları
+bilim adamları BÜTÜN BİLİM ADAMLARI Jean-Baptiste de LAMARCK() Büyük fransız doğa bilimcisi lamarck,ingiliz bilim adamı charles darwin in doğduğu yıl philosophie zoologique adlı ünlü yapıtını yayımlamıstı. bu yapıtında bazı evrim kurallarını 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Gündelik Yaşamın Korku ve Haz Ekseninde .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## (PDF) Gündelik Yaşamın Korku ve Haz Ekseninde .
+Gündelik Yaşamın Korku ve Haz Ekseninde Kuşatılması: Yeni Gözetim Olgusu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yatay Eksenli Rüzgar Türbini – Enerjim Güneşten](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Yatay Eksenli Rüzgar Türbini – Enerjim Güneşten
+Yatay Eksenli Rüzgar Türbini Kanatların dönme ekseni rüzgara paraleldir. Ticari amaçlı kullanılan türbinler genellikle yatay eksenlidir. Rotor, rüzgarı en iyi alacak şekilde dönebilen bir tabla üzerine yerleştirilmiştir. Kuyruk ve ya dümen bilgisayarı sayesinde türbin
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Popüler İçerik.tr](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Popüler İçerik.tr
+Bikarbonat formülü, NaHCO3 iyonuyla gösterilen, rengi beyaz ve katı yapıya sahip bir maddedir. Bikorbanat formülü su da kolay çözünen bir yapıya sahiptir. Su da çözündüğünde berrak, renksiz bir sıvı ortaya çıkar. Bu renksiz sıvı kokusuz ve beyaz kristaller
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) CAMIN TARİHİ SERÜVENİ SS. CAMGERAN .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## (PDF) CAMIN TARİHİ SERÜVENİ SS. CAMGERAN .
+CAMIN TARİHİ SERÜVENİ SS. CAMGERAN 2010 sempozyum bildiri kitabi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SANDOSTATIN LAR 20 mg 1 flakon Kısa Ürün Bilgisi](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## SANDOSTATIN LAR 20 mg 1 flakon Kısa Ürün Bilgisi
+SANDOSTATIN LAR 20 mg 1 flakon sağlık profesyonelleri için Kısa Ürün Bilgisi.Kalitatif ve kantitatif bileşim, farmasötik formu, klinik özellikleri, farmakolojik özellikleri, farmasötik özellikler.Ayrıca ilaç ile ilgili olarak diğer yıllara ait fiyat değişikliklerini görebilir ve eşdeğer ilaç bilgilerine ulaşabilirsiniz.İlaç fiyatları ilgili döneme ait KDV Dahil 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DJI Servis | Emka Drone](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## DJI Servis | Emka Drone
+Dji Spark Fly More Combo Dji teknik servis olarak sizlere sadece dji servis hizmeti değil, aynı zamanda drone'lar hakkında yazılar yazmaktayız. Bu yazılarımız ile sizlerin drone'lar hakkında bilgi sahibi olmanızı istemekteyiz. Drone alırken en önemli noktada o drone'un 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

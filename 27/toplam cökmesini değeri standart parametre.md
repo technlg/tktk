@@ -1,0 +1,41 @@
+# toplam cökmesini değeri standart parametre
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TEMEL İSTATİSTİK I](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## TEMEL İSTATİSTİK I
+Normal dağılımda ise: Ortalama ± 1 (standart sapma): Verilerin % 68'inin "ortalama ± 1 (standart sapma)" kadar ortalamanın sağına- soluna yayıldığını gösterir. Ortalama ± 2(standart sapma): Verilerin % 95'inin "ortalama ± 2 (standart sapma)" kadar ortalamanın sağına-. soluna yayıldığını gösterir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![VERİ TOPLAMA VE DEĞERLENDİRME 1 - Etkinlikburada](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## VERİ TOPLAMA VE DEĞERLENDİRME 1 - Etkinlikburada
+VERİ TOPLAMA VE DEĞERLENDİRME 1 Aşağıdaki soruları tabloya göre cevaplayınız. Tablo:1/A Sınıfı En Sevilen ÇizgiFilm Kahramanları İskender07 Aşağıdaki soruları tabloya göre cevaplayınız. Tablo:1/A Sınıfı En Sevilen Futbol Takımları İskender07 (ilkokul 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Değişken Aralıklar - Excel İle Harikalar](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Değişken Aralıklar - Excel İle Harikalar
+Bu ismi tanımladıktan sonra "TOPLAM" sütunundan önce istediğiniz kadar sütun ekleyin, tanımladığımız isim kendini güncelleyecek ve toplam formülünüz her zaman doğru değeri verecektir. Ancak "TOPLAM" sütunundan sonraya gelecek şekilde sütun
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ünite4: Basit Serilerde Değişkenlik Ölçülerinin Hesaplanması](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Ünite4: Basit Serilerde Değişkenlik Ölçülerinin Hesaplanması
+310 TL ve standart Sapması67 TL; kaza yapan yabancıaraçlarınortalama hasarı 850 TL ve standart Sapması167 TL olarak hesaplanmıştır. Hasarlar bakımından hangi araçgrubunda değişkenlikdaha fazladır? Çözüm 4-5 Yerli araçlarınhasar tutarınıX ile
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TARTIŞMA METNİ 20 12/70 http ://](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## TARTIŞMA METNİ 20 12/70 http ://
+yoluyla TFVB'yi belirlemiştir. Özel sektör toplam imalat sanayinde 1963–83 dönemi ortalama TFVB'yi %0.003; kamu kesimi için de %1.33 olarak belirlemiştir. Kamu kesimindeki TFVB'nin özel kesimden yüksek olmasını, özellikle kamu kesiminin daha büyük
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Veritabanı Sorgularında Parametre Kullanımı – Cihan .](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Veritabanı Sorgularında Parametre Kullanımı – Cihan .
+Aynı değeri birden fazla kullandığımda tekrar tekrar yazmak zorunda kalmayacağım. Her ad filtresi için "Cihan" yazmak yerine daha yapısal olan @ad yazmam daha iyi olacaktır. Ana sorgu parametreli hale gelmiş oldu bu sayede değer "Cihan" da olsa "Daron" da olsa aynı planı kullanacak.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![57 Statistika III TUR - е-учебници](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## 57 Statistika III TUR - е-учебници
+Üye sayısı x Hane sayısı f Bağıl frekans Yapısal göstergeler %. 1 36 000 0,080899 8,0899 2 72 000 0,161798 16,1798 3 110 000 0,247191 24,7191 4 197 000 0,442697 44,2697 5 30 000 0,067416 6,7416. Toplam 445 000 1,00 100,00. Bağıl frekans (1üye) = 36.000 / .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PROJENİN DEĞERLENDİRİLMESİ TİARİ ANALİZ](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## PROJENİN DEĞERLENDİRİLMESİ TİARİ ANALİZ
+3. NBD aksine yatırımların büyüklüğünden kaynaklanan toplam kar hacmini göz önüne almadığından birbirini dışlayan alternatif projelerde yanlış seçime yol açabilir. A: Maliyeti 300, İKO %50; B: Maliyeti 200, İKO % 60 olsun. B seçilir. Ama A, B'dendaha karlıdır
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![VERİ TOPLAMA VE DEĞERLENDİRME - Etkinlikburada](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## VERİ TOPLAMA VE DEĞERLENDİRME - Etkinlikburada
+VERİTOPLAMA VE DEĞERLENDİRME Bahçede . tane tavşan var. Bahçede . tane tavuk var. Bahçede . tane kurbağa var. Bahçede 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![toplam metrik değeri – NetworkKampüS](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## toplam metrik değeri – NetworkKampüS
+Network'ün karmaşıklığını gidererek ana mantığını öğreten kişisel blog sitesi HAKKIMIZDA TEMEL BİLGİLER OSI MODELİ NEDİR? NE İŞE YARAR? AĞ PROTOKOLLERİ NEDİR? NE İŞE YARAR? FTP NEDİR? NE İŞE YARAR? TELNET NEDİR?
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,89 @@
+# endonezya mineraller kömur madenciliği nk haritası
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya'nın kısıtlamaları maden fiyatlarını ısıtıyor - .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Endonezya'nın kısıtlamaları maden fiyatlarını ısıtıyor - .
+Endonezya maden ihracatını yasaklamayı hedefleyen kararnameyi imzaladı. Dünya nikel fiyatları Endonezya'nın maden ihracatına getirdiği kısıtlamalarla zirve yapmaya hazırlanıyor Borsa 1.563,68 0.10
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya kömür kontratlarını uzatacak](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Endonezya kömür kontratlarını uzatacak
+Endonezya Enerji ve Mineral Kaynaklar Bakanlığı, madencilerin tabi olduğu Kömür Çalışma Kontratı'nı (CCOW) değiştirmeyi planlıyor. Bakanlık, madencilerin madencilik haklarını beş yıl ile bir yıl arasında uzatmalarını sağlayacak bir yönetmelik değişikliği üzerinde çalışıldığını açıkladı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jared Diamond - Çöküş - Scribd](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Jared Diamond - Çöküş - Scribd
+©Jared Diamond, 2005 USA, 11Collapse How Societies Choose to Fail or Succeed" orjinal adıyla Viking Penguin tarafından yayınlanan bu kitabın Türkiye'deki tüm yayın hakları Brokman ine. aracılığıyla Timaş Yayınları1na aittir.İzinsiz yayınlanamaz. Kaynak
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) TELL KURDU'NDA MiKRO ARKEOLOJiK .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## (PDF) TELL KURDU'NDA MiKRO ARKEOLOJiK .
+TELL KURDU'NDA MiKRO ARKEOLOJiK ÇALIŞMALAR
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İklim: Endonezya](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## İklim: Endonezya
+Wonosobo tropik iklim hakimdir. Wonosobo ilinde belirgin yağış görülmektedir. En kurak aylarda bile yağış miktarı oldukça fazladır. Köppen-Geiger'e göre iklim Af'dir. Wonosobo ilinin yıllık ortalama sıcaklığı 22.0 °C 'dır. Yıllık ortalama yağış miktarı: 3821 mm.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thema Konu Kategoriler versiyon 1.2 - EDItEUR](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Thema Konu Kategoriler versiyon 1.2 - EDItEUR
+NK Arkeoloji NKA Arkeoloji Teorisi NKD Döneme ve bölgeye göre arkeoloji Alakalı COĞRAFİ ve DÖNEM kalifiyerlerini belirtin NKL Peyzaj arkeolojisi NKP Çevre arkeolojisi NKR Sualtı arkeolojisi NKT Endüstriyel arkeoloji NKV Savaş alanı arkeolojisi NKX P PB 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya Ülke Raporu 2015 - konya ticaret odası](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Endonezya Ülke Raporu 2015 - konya ticaret odası
+Endonezya'nın karasuları toplam yüzölçümünün yaklaşık olarak dört katı kadardır. Kuzeyde Malezya, doğuda Papua Yeni Gine ile komşu olup, batısında ve güneyinde Hint Okyanusu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thema Konu Kategoriler versiyon 1.4 - EDItEUR](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Thema Konu Kategoriler versiyon 1.4 - EDItEUR
+Ayrıca bakınız: ABC Sanat eserlerinin bakım, koruma ve restorasyonu, AGC Sergi katalogları ve özel koleksiyonlar, NK Arkeoloji ve onun alt kategoriler, RNK Çevrenin korunması, TNKX Yapıların ve yapı malzemelerinin korunması, NK Arkeoloji ve onun alt 1.4
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![17 binden fazla adasıyla Endonezya Mutfağı ve .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## 17 binden fazla adasıyla Endonezya Mutfağı ve .
+Dünyanın en çok adalarına sahip Endonezya 17 binden fazla adadan oluşuyor. Endonezya Mutfağı ve Endonezya Yemekleri de üzerinde yaşayan binlerce kültürün çeşitliliğinden meydana gelir. Bu nedenle tek bir çeşit Endonezya Mutfağı yoktur fakat bölgesel
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ENDONEZYA Ã LKE NOTU 2016 - ASO](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## ENDONEZYA Ã LKE NOTU 2016 - ASO
+'R÷DO .DQDNODU YH dHYUH (QGRQH]D PDGHQ NDQDNODUÕ EDNÕPÕQGDQ ]HQJLQ ELU ONHGLU hONH N|P U NDOD EDNÕU QLNHO ERNVLW DOWÕQ J P ú GHPLU FHYKHUL NDROLQ PHUPHU JUDQLW NDQDNODUÕQD VDKLSWLU $UÕFD RUPDQ U QOHUL
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tarihi Bir Yalan Kabataş Devri by AdnanOktar - Issuu](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Tarihi Bir Yalan Kabataş Devri by AdnanOktar - Issuu
+Orta Fransa'da bulunan Lascaux Mağaralarındaki ünlü duvar resimlerinde tarih öncesine ait (gece) gökyüzü haritası keşfedildi. 16.500 yıllık tarihe sahip olduğu tahmin edilen harita 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya - Vikipedi](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Endonezya - Vikipedi
+Endonezya'nın başkenti Cakarta, Endonezya genel yapı îtibârıyla volkanik adalardan müteşekkildir. Çoğu sönmüş vaziyette yaklaşık 150 civarında volkan bulunmaktadır. Ülke Ekvator çizgisi üzerindedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya'ya Ürün Satmak İstiyorum? - KMK](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Endonezya'ya Ürün Satmak İstiyorum? - KMK
+Endonezya ya da resmî adıyla Endonezya Cumhuriyeti, Güneydoğu Asya ve Okyanusya'da yer alan bir ülkedir. Endonezya 17.508 adadan oluşur. 250 milyon civarında nüfusuyla dünyanın en kalabalık dördüncü ülkesi ve aynı zamanda en kalabalık Müslüman ülkesidir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya kömür ihracatında korumacılıktan vazgeçiyor](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Endonezya kömür ihracatında korumacılıktan vazgeçiyor
+Endonezya Kömür Madenciliği Derneği (APBI) pazarlama ve lojistik departmanı başkanı Hendri Tan, bu yıl Mayıs ayında yürürlüğe girecek olan nakliye politikası nedeniyle denizaşırı birçok alıcının diğer ülkelerden kömür ithal etmeyi seçeceği ve kömür hatta %100 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![mineraller venezuela yarar ekstre](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## mineraller venezuela yarar ekstre
+2020/07/07· Mineraller genellikle en fazla element veya bileşikten oluşur. Sadece bir elementtenoluşanlara Altın, gümüş, cıva, bakır gibi Doğal Elementler denir. Conquistadores İspanya'da Hükümeti ve Kilise'nin kasasına doldurmak için gemi yükün Yeni Dünya altın ve bunu "kurtarılmış" aşık.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thema Konu Kategoriler versiyon 1.3 - EDItEUR](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Thema Konu Kategoriler versiyon 1.3 - EDItEUR
+Notasyon Kategori başlığı Add Mod A Sanatlar AB Sanatlar: Genel konular ABA Sanat teorisi Ayrıca bakınız: QDTN Felsefe: Estetik ABC Sanat eserlerinin bakım, koruma ve restorasyonu ABK Sanat eserleri sahteciliği, tahrifatı ve hırsızlığı ABQ Sanat: ekonomik
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür - Vikipedi](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Kömür - Vikipedi
+Kömür madenciliği Her yıl yaklaşık 8000 Mt kömür üretilmektedir, bunların neredeyse % 90'ı taşkömürü ve % 10 linyittir.Yeraltı madenciliğinde yüzey madenciliğinden daha fazla kaza meydana gelir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![mineraller venezuela yarar ekstre](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## mineraller venezuela yarar ekstre
+Organik ve İnorganik Mineraller | Bibakbence 2020/07/07· Mineraller genellikle en fazla element veya bileşikten oluşur. Sadece bir elementtenoluşanlara Altın, gümüş, cıva, bakır gibi Doğal Elementler denir. Conquistadores İspanya'da Hükümeti ve Kilise'nin kasasına 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Altın - Gold](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Altın - Gold
+Altın, tüm metaller arasında en yumuşak olanıdır . Tek atom genişliğinde bir telin içine çekilebilir ve ardından kırılmadan önce önemli ölçüde gerilebilir. Bu tür nanoteller, belirgin bir sertleşme olmaksızın dislokasyonların ve kristal ikizlerin oluşumu, yeniden yönlendirilmesi .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tarihi Bir Yalan Kabataş Devri by AdnanOktar - Issuu](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Tarihi Bir Yalan Kabataş Devri by AdnanOktar - Issuu
+Tarihi Bir Yalan Kabataş Devri Adnan Oktar (Harun Yahya) OKU YU CU YA Bu kitapta ve diğer çalışmalarımızda evrim teorisinin çöküşüne özel bir yer ayrılmasının nedeni, bu teorinin 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür - Vikipedi](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Kömür - Vikipedi
+Kömür, katmanlı tortul çökellerin arasında bulunan katı, koyu renkli, karbon ve yanıcı gazlar bakımından zengin kayaçtır. taşkömürü torkugillerden oluşur.Kömür çoğunlukla diğer elementlerin değişken miktarlarda bulunmasıyla oluşur. Asıl bileşeni karbondur; bunun yanında değişken miktarda hidrojen, kükürt, oksijen ve azot içerir..
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![EDItEUR](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## EDItEUR
+1 2 3 4 5 6 7 8 9 10 11 12 13 14 15 16 17 18 19 20 21 22 23 24 25 26 27 28 29 30 31 32 33 34 35 36 37 38 39 40 41 42 43 44 45 46 47 48 49 50 51 52 53 54 55 56 57 58 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

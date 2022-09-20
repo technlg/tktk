@@ -1,0 +1,149 @@
+# bina sektöru kova asansöru
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Boyut OSGB | Nace Kodu](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Boyut OSGB | Nace Kodu
+Diğer bina doğramacılığı ve marangozluk ürünlerinin imalatı 16.23.01 Ahşap pencere, kapı ve bunların kasaları ve eşikleri ile ahşap merdiven, tırabzan, veranda, parmaklık vb. imalatı Tehlikeli 16.23.02 Ahşap prefabrik yapılar ve ahşap taşınabilir evlerin imalatı 16.23
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ADANA](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## ADANA
+H.1.17 Hizmet alanlarımızda ihtiyaç duyulan bina ve tesis yapım, bakım ve onarımlarını yapmak H.1.18 H.1.19 Hizmet Odaklı Çalışma Yaklaşımı" ile iletişim ve tanıtım faaliyetlerini geliştirmek H.1.20 Kurumun il, bölge ve ülke gündemi ile ilgili iletişim olanaklarını
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![1364 power point soru cevap.pps | slideum](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## 1364 power point soru cevap.pps | slideum
+Free library of english study presentation. Share and download educational presentations online. Transcript 1364 power point soru cevap.pps
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ev asansörü | Erişim Sistemleri Asansör A.Ş.](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Ev asansörü | Erişim Sistemleri Asansör A.Ş.
+Engelli asansörü Engelli yaşamı kolaylaştırmak adına ortopedist ve terapistler ile kolektif çalışarak koltuk tipi merdiven asansörü ürünlerini sunuyoruz. Bina dekorasyonuna uygun olarak ve dilerseniz kamuda da koltuk tipi ve merdiven tipi asansör modellerini
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ev asansörü Villa asansörü müstakil ev asansörü .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Ev asansörü Villa asansörü müstakil ev asansörü .
+Açık Tip Asansör Bina Dışı Asansör Devas Engelli Platform Sistemleri dikey asansörler Dış Mekan Dış mekan engelli asansörü engelli asansörü Engelli Asansörü Kayseri Ev Asansörü fiyatı Ev Asansörü İstanbul Ev içi Asansör Ev içi hidrolik asansör Ev tip Ev Tipi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![4 | konyalimedyumdegilim](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## 4 | konyalimedyumdegilim
+4 ) ÖN AÇIKLAMA açıklama ben deşifre olmuş milli istihbarata bilgi toplayan muhbirlerle ister istemez konuşuyoruz zaten çoğuda arkadaş çevresinden oluyorlar kişilik olarakda iyi insanlar beraber geziyoruz yemek çay içiyoruz takıldığımız kefede oluyorlar genelde neyse ben deşifre olanların yanında ne konuşmuşsam konuşmalar aktarılıyor sabahleyin dikkat edin gece 12 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Publication (16,64 MB)](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Publication (16,64 MB)
+Türkiye'de gelişen ve büyüyen gayrimenkul sektörü asansör ve yürüyen merdiven pazarını hareketlendirdi. Asansör sektörünün belgelendirme hizmetleri, aksam üretimi ve bakım hizmetleri genelinde yaklaşık 600 milyon dolar ciroya sahip olduğu tahmin ediliyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İnşaat Sektörü: 2007 - Blogger](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## İnşaat Sektörü: 2007 - Blogger
+sektörü içinde fonksiyonelliği ön plana çıkaran, tasarlanmış yangın dolaplarını mimarlar ve kullanıcılarla buluşturmaya devam ediyor. Klasik tüp kabinli yangın dolabı duvara monte edilirken, Fetaş'ın tasarlamış olduğu "Prestij" modeli bazalı olduğundan,
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bes Haberler Listesi](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Bes Haberler Listesi
+HAYRİ KOZANOĞLU: KONUT SEKTÖRÜ DE SU KAYNATTI (21.04.2018) ÇİĞDEM TOKER: İSKİ YE 8 MİLYON TL LİK SORU (20.04.2018) KORKUT BORATAV: EKONOMİDE BALONLAŞMA VE 'HAVA KAÇIRMA' (20.04.2018) ASLI AYDIN: EKONOMİDE
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ev Asansörü - Hidrolik Ev Asansörü - Devas Ev Aansörü .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Ev Asansörü - Hidrolik Ev Asansörü - Devas Ev Aansörü .
+EV ASANSÖRÜ ÖLÇÜLERİ. Seyir mesafesi farketmeksizin 16 durağa kadar uygulanabilen ev asansörü modellerimiz 5cm den başlayan kuyu dibi çukuru ile inşaat maliyeti oluşturmaz. İstenilen ölçüde üretilen hidrolik ev asansörleri standart olarak 110×110 cm dış ölçüsü ve 60×85 cm kabin ölçüsü ile yer kaplamaz. Standart Ev Asansörü Ölçü ve abatları;
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Belletmen - Uyak Listesi](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Belletmen - Uyak Listesi
+Belletmen: Uyaklar - Uyak Listesi TÜRKÇE UYAK LİSTESİ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Om MÃ¼hendislik, yeni Ã¼retim tesisi ile kapasitesini .](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Om MÃ¼hendislik, yeni Ã¼retim tesisi ile kapasitesini .
+Kırıcılı kova, kırılacak malzemenin çok küçük bir alanda ekstra bir makinaya ihtiyaç duymadan 20 santimetreden 1,5 santimetreye kadar istenen ebatlarda kırımını yapabiliyor. Hatta içinde metal olan bina kolonu gibi malzemeleri istenen boyutlarda bir şekilde
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## 
+Yatırımın Sektörü Firmanın Adresi Yatırımın Kapasitesi İstihdam (Kişi) Yatırımın Cinsi Öngörülen Destek Unsurlar ı Sabit Yatırım (TL) MODERNİZASYON TARIM - Hayvancılık İMALAT - Gıda ve İçki İMALAT - Dokuma ve Giyim İMALAT - Lastik-Plastik 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Asansörlü binada oturanlar dikkat! - Emlak Kulisi](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Asansörlü binada oturanlar dikkat! - Emlak Kulisi
+Bina sorumlusu tarafından bakım sözleşmesi imzalanan asansörü monde eden veya onun yetkili servisi dışındaki üçüncü kişiler asansöre müdahale edemeyecek. GARANTİ SÜRESİ 3 YIL Asansör monte edilmiş piyasaya arz edilen her asansör, piyasaya arz edildiği tarih .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Villa Asansörü Ev Asansörü Bina Asansörü – villa asansörü, .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Villa Asansörü Ev Asansörü Bina Asansörü – villa asansörü, .
+villa asansörü, ev asansörü, bina asansörü, Makina Daireleri Asansör, Hidrolik Asansörler, Sedye Asansörü, Araç Asansörü 0536 568 6548 / 0216 379 3 379 / 0216 377 93 09 info@fryasansor
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) İşgücü Verimlilik İlişkisi | Ömür DEMİRER - .](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## (PDF) İşgücü Verimlilik İlişkisi | Ömür DEMİRER - .
+İşgücü Verimlilik İlişkisi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Firma Rehberi](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Firma Rehberi
+Bir ürüne, servise yada hammaddeye ihtiyacınız varsa bu bölümden size bu hizmeti verebilecek firmlara ulaşabilirsiniz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![YENİ BİNA ASANSÖRLÜ KALORİFERLİ 2+1 100m2 .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## YENİ BİNA ASANSÖRLÜ KALORİFERLİ 2+1 100m2 .
+1+1 YENİ BİNA DENİZE 50 METRE EŞYALI AYVALIK SARIMSAKLI 255.000 TL YENİ BİNA ASANSÖRLÜ KALORİFERLİ 2+1 100m2 AYVALIK SARIMSAKLI Telefonla Ulaş Cep : 0 (535) 493 41 33 İş : 0 (555) 617 82 24
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tehlike Sınıfları Listesi - Özden OSGB](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Tehlike Sınıfları Listesi - Özden OSGB
+Tehlike Sınıfları Listesi Son olarak 27 şubat 2017 tarihinde yayınlanan değişiklikle güncellenen İş Sağlığı ve Güvenliğine İlişkin İşyeri Tehlike Sınıfları Tebliği aşağıda bulabilir ve NACE kodunuzu kullanarak tehlike sınıfınızı belirleyebilirsiniz. NACE KODU İŞ TANIMI
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ostim İlan - Ostim Firmaları - A,B,C,Ç,D,E1](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Ostim İlan - Ostim Firmaları - A,B,C,Ç,D,E1
+İŞ KOLU VE ÜRÜN BİLGİLERİ : Yük ve personel asansörleri,platformlu cephe asansörü,halatlı vinçler,eğimli asansörler AYDINOĞLU NAKLİYAT Adres : Fatih İŞ Merkezi A.Geylani Cd. No: 29/43 Ostim / ANKARA Telefon : +90 (0312) 354 90 61 (2hat)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Merdiven Asansörleri Blogu](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Merdiven Asansörleri Blogu
+"LiftArt Merdiven Asansörü engel tanımaz. Basamakların üzerinden geçer, sahanlıkları atlar, katları çıkar; konfor ve keyifle hedefine ulaşır." - Anonim
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kars Yatırım Ortamı ve Yapılabilecek Yatırımlar Araştırması](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Kars Yatırım Ortamı ve Yapılabilecek Yatırımlar Araştırması
+Kars GSYİH'sı içinde tarım sektörü % 28,7'lik oran ile ilk sırada yer almaktadır. İkinci sırada % 28,2 ile devlet hizmetleri gelmekte olup, bunu sırası ile % 14,4'lük pay ile ticaret sektörü, % 13,7'lik oran ile ulaştırma ve haberleşme, % 6,6 ile inşaat sektörü ve % 4,8
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bina Dışı İnsan Asansörü - Ovit Elevator](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Bina Dışı İnsan Asansörü - Ovit Elevator
+Bina dışına kurulan insan asansörü yapım aşamasında asansör düşünülmemiş binalarda asansör yeri olmayan binalarda tercih edilmektedir. Dışardan insan asansörü Oldukça sessiz çalışan bu asansör sistemi düşük enerji sarfiyatı, kolay kurulum, ekonomik ve şık bir sistem olmasından dolayı oldukça rağbet görmektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![[PDF] İş güvenliksizliğinde Avrupa nın lideri, dünyanın .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## [PDF] İş güvenliksizliğinde Avrupa nın lideri, dünyanın .
+Kırıcılı kova, kırılacak malzemenin çok küçük bir alanda ekstra bir makinaya ihtiyaç duymadan 20 santimetreden 1,5 santimetreye kadar istenen ebatlarda kırımını yapabiliyor. Hatta içinde metal olan bina kolonu gibi malzemeleri istenen boyutlarda kırarak
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## 
+business.letters.turkish.englis hotel i. star 47 Herbert Street Floreat Perth WA 6018 Sayın Ahmet Koril, Kalapak A.Ş. Mr. N. Summerbee Kadife sokak no:17 34705, Bostancı, Kadıköy, İstanbul 335 Main Street New York NY 92926 Sayın Başkan, Dear Mr. President,
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KOSGEB Nelere Destek Veriyor / Sektörler NACE REV 2 .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## KOSGEB Nelere Destek Veriyor / Sektörler NACE REV 2 .
+Bina ve bina dışı yapıların(ulaşım için aydınltm. ve sinyalzsyn sis. Hariç)elkt.tesisatı, kablolu tv ve blg.sayar ağı tesisatı ile konut tipi ant. (uydu ant. dahil), elkt.li güneş enrj. kollektörü, elkt.sayacı,yangın ve hırsız.alarm sist.vb. kurulumu 43.21.03
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## 
+1 134858 1/11/2018 0 3 2 134879 1/12/2018 0 5 3 134881 1/12/2018 0 10 4 134938 1/17/2018 0 15 5 135052 1/23/2018 0 25 6 135068 1/23/2018 0 20 7 135147 1/29/2018 0 20 8 135160 1/30/2018
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yapı Sektörü ISG El Kitabı (CSGB)](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Yapı Sektörü ISG El Kitabı (CSGB)
+Yapı işyerleri, iş sağlığı ve güvenliği açısından çalışanların yaşamı için önemli riskler taşımaktadır. Sosyal Güvenlik Kurumu İstatistiklerine göre, ülkemizde yapı işyerlerinde 2009 yılında işlemi tamamlanan 64316 iş kazasının 6877'si ( % 10,7 ) yapı işyerlerinde 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![YAPI SEKTÖRÜ - Gelişim OSGB| OSGB | İş Güvenliği Uzmanı](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## YAPI SEKTÖRÜ - Gelişim OSGB| OSGB | İş Güvenliği Uzmanı
+• İskelelerin bina bağlantılarını iskele elemanlarının alınmasından sonra ve yukarıdan aşağıya sırayla sökün. • Sökülmüş olan malzemeyi hangi yükseklikten olursa olsun doğrudan doğruya yere atmayın, uygun iki noktadan bağlayarak dengeli şekilde indirin ve
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İmalatçı Üretici sürekli dahili taşıma işlemleri - sistemler | .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## İmalatçı Üretici sürekli dahili taşıma işlemleri - sistemler | .
+Sürekli dahili taşıma işlemleri - Sistemler (1259) Makine aletleri - Metal İşleme (338) Baskı ve kompozisyon - Makine ve ekipmanlar (159) Etiketleme ve markalama - Makineler (138) Endüstriyel inşaat yapımı (130) Kitap ciltleme (işleri/şirketleri) - Makine ve
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mevzuat Bilgi Sistemi](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Mevzuat Bilgi Sistemi
+Madencilik, bina ve bina dışı inşaat makinelerinin toptan ticareti 46.63.01 Bina ve bina dışı inşaat iş makinelerinin toptan ticareti (inşaat pompaları, dozer, greyder, kepçe vb. dahil) 46.64 Tekstil endüstrisi makineleri ile dikiş ve örgü makinelerinin toptan ticareti
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yöryapı (yoryapi) - Profil | Pinterest](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Yöryapı (yoryapi) - Profil | Pinterest
+Yöryapı | Yöryapı resmi Pinterest hesabıdır. Yöryapı bir Yör Group markasıdır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Enka İnşaat İş Başvurusu Yap - İş Başvurusu](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Enka İnşaat İş Başvurusu Yap - İş Başvurusu
+Enka inşaat gerek yurt içi gerekse yurtdışı eleman alımlarına devam ediyor. Sizde fazla düşünmeden Enka iş başvurusu yapabilirsiniz. merhaba,1967 çankırı doğumluyum,1970 yılından beri ankara da ikamet etmekteyim.yenimahalle endüstri meslek lisesi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ev Asansörü Ev asansörü sistemleri villa asansörü ve .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Ev Asansörü Ev asansörü sistemleri villa asansörü ve .
+Devas Ev Asansörleri ölçüsü iç mekan veya dış mekan farketmeksizin minimum kabin ölçüsü 75×75 cm ve evinizde kaplayacağı max alan 100×120 cm'dir. Özel olarak geliştirilen mekanik tasarımı ile son kat yüksekliği 200 cm den büyük olan tüm dublex, triplex, teras kat ve showroomlara kolayca uygulanabilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bina Dışından Asansör - Amada TECH Asansör A.Ş.](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Bina Dışından Asansör - Amada TECH Asansör A.Ş.
+Bina Dışından Asansör, Dışarıdan Asansör, İnsan Asansörü, Hidrolik Asansör Bina Dışından Asansör - Amada TECH Asansör A.Ş. Bina Dışından Asansör, Dışarıdan Asansör
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ARKEOASTRONOMİ: 2009](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## ARKEOASTRONOMİ: 2009
+Yay burcu, kova burcu ile birlikte zodyakta özgürlüğüne en düşkün iki burç olarak bilinir.Simgesi, mitolojide yeralan yarı at, yarı insan bir figür olan sentor, yani okçudur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ev Asansörü – Villa Asansörü Ev Asansörü Bina Asansörü](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Ev Asansörü – Villa Asansörü Ev Asansörü Bina Asansörü
+villa asansörü, ev asansörü, bina asansörü, Makina Daireleri Asansör, Hidrolik Asansörler, Sedye Asansörü, Araç Asansörü 0536 568 6548 / 0216 379 3 379 / 0216 377 93 09 info@fryasansor
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

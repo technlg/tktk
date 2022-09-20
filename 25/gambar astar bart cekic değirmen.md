@@ -1,0 +1,105 @@
+# gambar astar bart cekic değirmen
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) CODEX CUMANICUS BAĞLAMINDA KUMANLARIN .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## (PDF) CODEX CUMANICUS BAĞLAMINDA KUMANLARIN .
+Öz Codex Cumanicus, Türklerin kültürü ve dillerinin tarihi bakımından son derece değerli bir eserdir. Hem zengin kelime hazinesiyle Türkçenin söz varlığına büyük katkı sağlamakta hem de tarihî Türk lehçelerine ait pek çok eserde bilhassa Arap
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Astar Penjagaan Pencernaan price in Malaysia - Best Astar .](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Astar Penjagaan Pencernaan price in Malaysia - Best Astar .
+Buy Astar Penjagaan Pencernaan Malaysia ? Shop now for best Penjagaan Pencernaan online at LAZADA.my. Exclusive deals ? on AstarPenjagaan Pencernaan in Malaysia. FAST Delivery ? Effortless Shopping!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(XLS) Sozluk | Ade Irvan](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## (XLS) Sozluk | Ade Irvan
+(XLS) Sozluk | Ade Irvan  Sozluk
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Astarte | KASKUS](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Astarte | KASKUS
+Met pagi menjelang subuh gan.. ketemu ane lagi :D Di trit kali ini ane mau nyeritain sesuatu yang jadi kesukaan ane akhir-akhir ini. Sebelumnya, ada yang pernah denger nama "Astarte" belum? Mungkin ada sebagian dari agans yang pernah denger, dan ada yang belum.. Nah, disini ane mau ngajak agans semua buat mengenal sosok dewi yang dikenal di dalam mitologi bangsa Fenisia. Ga tau kenapa an
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) O 002532 2013 01 24 155146 e kitap arsivi | .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## (PDF) O 002532 2013 01 24 155146 e kitap arsivi | .
+O 002532 2013 01 24 155146 e kitap arsivi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BARISAN DAN DERET](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## BARISAN DAN DERET
+BARISAN DAN DERET ARITMATIKA TUJUAN Setelah mempelajari topik siswa dapat: Menentukan suku ke n suatu barisan aritmatika Menetukan rumus suku ke n dari barisan aritmatika Menetukan suku pertama dan beda suatu barisan aritmatika jika dua suku
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tipologi Masjid Kagungan Dalem di Imogiri, Bantul](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Tipologi Masjid Kagungan Dalem di Imogiri, Bantul
+Gambar 1. Tipologi Masjid Islam di Jawa suci yang terpenting yang salah satunya adalah keberadaan Masjid Kagungan Dalem di kompleks pemakaman Imogiri. Saat ini pengelolaan masjid dan makam tidak lagi dalam pengelolaan dua kerajaan, kecuali
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Harran ve Çevresi Arkeoloji | Mehmet Önal, Özlem .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## (PDF) Harran ve Çevresi Arkeoloji | Mehmet Önal, Özlem .
+This book, called Harran and Its Surroundings Archeology, consists of 36 articles presented at the 1st International Harran and Its Surroundings Archeology and History Symposium in 2017. These articles cover archeology, art history and architecture
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![| Anlamı Nedir?](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## | Anlamı Nedir?
+13 sayısının uğursuz olduğuna ilişkin inanç dünyada o kadar yaygındır ki, yaşamı birçok yönde ciddi olarak etkilemektedir. Bazı ülkelerde evlerin kapılarına 13 n
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ceket Astarı İthal Astar | İstanbul Kumaş Toptancısı .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Ceket Astarı İthal Astar | İstanbul Kumaş Toptancısı .
+Ceket, mont, kaban, polyester astar pelerin ve giyim diğer birçok türde güzel bir astar olmadan hayal edilemez. Ancak, kumaş astar güzellik değil, aynı zamanda, bir şey daha konforlu hale prezentabl sağlamak için ömrünü ve ürünün görünümünü genişletmek için 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Rukopisna ostavština na turskom jeziku svećenika .](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## (PDF) Rukopisna ostavština na turskom jeziku svećenika .
+Gjuro Adam Büttner was German by descent and a priest by vocation. He served as a priest in Zemun from 1744 to 1779, as the first diocesan priest after the liberation from the Turks. His manuscript papers in Turkish language were found in the
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Turuz](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Turuz
+a I, 1. taacüp haykırması; 2. taaccüp veya memnuniyetsizlik edasiyle sual; 3. a dep: hemen, derhal; a dep algan kezinde: aldığı dakkada (alınca, hemen); a dep ele men keldim: ben birinci geldim, herkesten önce geldim; a degende bk. de. a II= al II; a tügül: şu değil
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Astar Alatan & Berus Lukisan price in Malaysia - Best .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Astar Alatan & Berus Lukisan price in Malaysia - Best .
+Buy Astar Alatan & Berus Lukisan Malaysia ? Shop now for best Alatan & Berus Lukisan online at LAZADA.my. Exclusive deals ? on AstarAlatan & Berus Lukisan in Malaysia. FAST Delivery ? Effortless Shopping!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Full text of "Karahanlı Türkçesi Sözlüğü"](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Full text of "Karahanlı Türkçesi Sözlüğü"
+An icon used to represent a menu that can be toggled by interacting with this icon.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Türkçe Sözlük | Türkçe Sözlük | Türkçe - Sözlük | .](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Türkçe Sözlük | Türkçe Sözlük | Türkçe - Sözlük | .
+astar astarlamak astarl ı astarlık asteğmen astırmak astin astma astragan astronom astronomi astronomik astronot astropikal  bart baru barudi barut barutçu baruthane barutluk bar-ver baryum bas ba's, bas basair basal basamak ba-saman basan basar basaret 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Alat-Alat Dikir Barat - Warisan Dikir Barat](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Alat-Alat Dikir Barat - Warisan Dikir Barat
+Galeri Gambar Galeri Video Rebana Ibu Dan AnakRebana ini mempunyai satu muka berbentuk bulat dengan menggunakan belulang kambing dipasang pada badan dengan siratan tali rotan kepada cincin rotan di bawah rebana itu.Badan dibuat daripada kayu yang tidak dalam (5-6 inci dalam).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ama Intişar | Ama Intişar ne demek? | Ama Intişar anlamı .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Ama Intişar | Ama Intişar ne demek? | Ama Intişar anlamı .
+13 sayısının uğursuz olduğuna ilişkin inanç dünyada o kadar yaygındır ki, yaşamı birçok yönde ciddi olarak etkilemektedir. Bazı ülkelerde evlerin kapılarına 13 numarası verilmez, uçaklarda 13. koltuk sırası yoktur, apartmanlarda, otellerde 13. kat ya 12A'dır ya da 14 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ceket Astarı İthal Astar | Likralı Kumaş Likralı Kot Likralı .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Ceket Astarı İthal Astar | Likralı Kumaş Likralı Kot Likralı .
+Ceket, mont, kaban, polyester astar pelerin ve giyim diğer birçok türde güzel bir astar olmadan hayal edilemez. Ancak, kumaş astar güzellik değil, aynı zamanda, bir şey daha konforlu hale prezentabl sağlamak için ömrünü ve ürünün görünümünü genişletmek için 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sozlerin Soyagaci Nisanyan Turklib - Scribd](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Sozlerin Soyagaci Nisanyan Turklib - Scribd
+Scribd es red social de lectura y publicación más importante del mundo. SÖZLERİN SOYAĞACI ÇAĞDAŞ TÜRKÇENİN KÖKENBİLİM SÖZLÜĞÜ Sevan Nişanyan TURKISTAN LIBRARY TURKISTON KUTUBXONASI  +zede ~ Fa zada vuran, vurulan < Fa zadan, zan-vurmak, çarpmak, çalmak, çalgı çalmak, yere çalmak (= Ave cad-, can- a.a. )
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![| Anlamı Nedir?](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## | Anlamı Nedir?
+Bu koku, boya ve boyadan önce kullanılan astar boya, konsolda, pencere ve kapılarda kullanılan lastik ve plastik malzemelerin kokularının bir karışımıdır. Bunlara yapıştırıcıların, izolasyon malzemelerinin, koltuklardaki kumaşın, deri parçalarının ve döşemelerde kullanılan vinilin kokuları da karışır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Arı Duru Türkçe](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Arı Duru Türkçe
+giyimin iç bezi astar ; astarlık kımaş ; 2 . eski püskü şeyler ( terzilerde ) . astarla- astar geçirmek . astarlat- et . astarla – dan . astarlık  eski kuvvetini kaybetti ( harfiyen : o, zıplayan kurbağaya yetişmek iktidarında değildir).nnnII,üzerinde değirmen üst, baka 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ceket Astarı İthal Astar | Pamuklu Kumaş Alınır. 0536 336 .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Ceket Astarı İthal Astar | Pamuklu Kumaş Alınır. 0536 336 .
+Ceket, mont, kaban, polyester astar pelerin ve giyim diğer birçok türde güzel bir astar olmadan hayal edilemez. Ancak, kumaş astar güzellik değil, aynı zamanda, bir şey daha konforlu hale prezentabl sağlamak için ömrünü ve ürünün görünümünü genişletmek için 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Full text of "Yeni Tarama Sozlugu-Turk Dil Kurumu"](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Full text of "Yeni Tarama Sozlugu-Turk Dil Kurumu"
+An icon used to represent a menu that can be toggled by interacting with this icon.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![vocab.txt · enelpi/bert-question-answering-uncased .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## vocab.txt · enelpi/bert-question-answering-uncased .
+from transformers import AutoTokenizer, AutoModelForQuestionAnswering tokenizer = AutoTokenizer.from_pretrained("enelpi/bert-question-answering-uncased-squadv2_tr 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![snowball.tartarus](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## snowball.tartarus
+a a' a' a' a'n a'ya aa aa'n aa'ya aa aacak aacak aacak aarayış aaro aasset ab ab' ab'ci ab'cilik ab'de ab'de ab'li ab'ne ab'n ab'n ab'ye ab'yi ab'yle ababdı abaç aba abalı ab
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Barr Body & Drum Stick | Jenni Irmacikita Irawaty Saraan](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Barr Body & Drum Stick | Jenni Irmacikita Irawaty Saraan
+Barr Body (Seks Kromatin Pada Wanita), ditemukan oleh seorang ahli genetika dari Kanada, yaitu M.L. Barr pada tahun 1949. Ia menemukan bahwa pada kandungan inti sel betina, ditemukan suatu badan yang menyerap warna, badan itu kemudian disebut dengan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,69 @@
+# altın satışı yılan nehir usa kırıcı uzerinde emiş
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![vocab.txt · enelpi/electra-base-discriminator .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## vocab.txt · enelpi/electra-base-discriminator .
+from transformers import AutoTokenizer, AutoModelForQuestionAnswering tokenizer = AutoTokenizer.from_pretrained("enelpi/electra-base-discriminator-finetuned_squadv2 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Altın satışında 10 yıl sonra ilk - Ekonomist](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Altın satışında 10 yıl sonra ilk - Ekonomist
+30/10/2020· Dünya Altın Konseyi verilerine göre 2020'nin üçüncü çeyreğinde dünya genelinde merkez bankaları, 2010'un son çeyreğinden bu yana ilk kez net altın satışı gerçekleştirdi. Dünyada en çok altın satan merkez bankaları 34.9 tonla Özbekistan ve 22.3 tonla Türkiye oldu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yatırımlık Ürünlerimiz | Harem Altın](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Yatırımlık Ürünlerimiz | Harem Altın
+Gramlık Altın üretiminde Uluslarası üretim standartlarına sahip rafineriler ile çalışıyor. Gramlık külçe altın standart ağırlık ve standart saflıktaki, garantili işlenmemiş altın külçeleridir. 1 gr, 5 gr, 10 gr, 20 gr, 50 gr ve 100 gr ağırlığında 995 ya da 999.9 saflıkta üretilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Belletmen - Uyak Listesi](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Belletmen - Uyak Listesi
+Belletmen: Uyaklar - Uyak Listesi TÜRKÇE UYAK LİSTESİ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![RVC-İST yıl:1 sayı:5 Mart 2009 by Hakan Akbulut - Issuu](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## RVC-İST yıl:1 sayı:5 Mart 2009 by Hakan Akbulut - Issuu
+İÇİNDEKİLER 10 GÖRÜŞ Prof. Dr. Hasan A. Heperkan Konutlarda Enerji Verimliliği 38 SEKTÖR GÜNDEMİ 38- ISK-SODEX 2010 heyecanı okullara yönelik yarışmalarla başladı 40- İstanbul, 5 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![[PDF] Kafiye Dizini Nevit Dilmen - Free Download PDF](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## [PDF] Kafiye Dizini Nevit Dilmen - Free Download PDF
+Kafiye Dizini Nevit Dilmen Nevit Dilmen, tıp doktoru ve radyoloji uzmanıdır. Fotoğraf, grafik, bilgisyar programlama, elektronik, psikoloji ve nörobilim meraklısıdır. Nevit Dilmen is a medical doctor and radiologist by profession. His interests include programming 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CUMHURİYET ALTINI - Altın ve Pırlanta Kapınızda - .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## CUMHURİYET ALTINI - Altın ve Pırlanta Kapınızda - .
+Ziynet altın, devlet güvencesi altında 234 sayılı KHK"nin 2/b maddesi uyarınca, Darphane ve Damga Matbaası Genel Müdürlüğü tarafından basılmakta olup, değişik boyut ve ağırlıkları olan 22 ayar altın paradır. Cumhuriyet altınlarının basılması ve özellikleri Türkiye 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Külçe & Ziynet Altın Uygun Fiyatlarıyla sahibinden'da](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Külçe & Ziynet Altın Uygun Fiyatlarıyla sahibinden'da
+Yatırılımlık, düğün veya doğum hediyesi Külçe & Ziynet Altınlar uygun fiyatlarıyla alışverişte ilk adres sahibinden'da Aramayı Favorilere Kaydet Favori Arama Adı Favori arama adı 30 karakterden fazla olamaz. Aynı isimli kayıtlı favori aramanız var. Favori arama
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Altın fiyatları ne olur, tekrar düşer mi yoksa yükselir mi? .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Altın fiyatları ne olur, tekrar düşer mi yoksa yükselir mi? .
+Altın fiyatlarının Kurban Bayramı sonrasında ilk haftaya ani yükselişlerle başlaması ve ons fiyatının 2 bin doları aşması heyecan yaratmıştı. Perşembe günü uçan altın fiyatları yeni haftaya sert bir düşüşle başladı. Altının ons fiyatının hafta başı itibari ile tekrar 2 bin 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Eğitim Bilişim Ağı](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Eğitim Bilişim Ağı
+A acınılma acube açık fikirlilik adaklanma adaletlilik addetme addolunma adli polis aforozlama afsunlama afsunlanma afyonlama afyonlanma ağaçlama 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Altın neden yükseliyor, yıl sonunda gram altın beklentisi .](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Altın neden yükseliyor, yıl sonunda gram altın beklentisi .
+Altın yukarı tırmandıkça tahminler de ona eşlik etti. Yıl başladığında oldukça sakin olan altın pandeminin ardından adeta uçtu. Ons yükselişi gram altını da taşıdı. Ocak 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ünlü İsim Altın İçin "Satmıyorum" Dedi ve Bu Gelişmelere .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Ünlü İsim Altın İçin "Satmıyorum" Dedi ve Bu Gelişmelere .
+Tiggre, Altın'ın en önemli temel itici güçlerinin hala para ve maliye politikalarına bağlı olduğunu söyledi. "COVID'den çok önce, 2015 sonlarından beri değişken bir yükseliş trendindeyiz. Ancak daha yakın tarihli ve dramatik düzelme bile Powell pivotundan sonra başladı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mozart'tan Madonna'ya - Peter Wicke by Heisenberg - Issuu](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Mozart'tan Madonna'ya - Peter Wicke by Heisenberg - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÜRETİCİDEN HALKA ALTIN VE MÜCEVHER GÜNLERİNE .](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## ÜRETİCİDEN HALKA ALTIN VE MÜCEVHER GÜNLERİNE .
+• Altın ve Dolar kurlarından kaynaklanan ani yükselişlerde firmanın fiyat değişikliği yapma hakkı saklıdır.  • Satışı yapılmış ürünler bu kampanyada ki ürünlerle değiştirilemez • Her boy ve modelde zengin çok çeşitli mücevherlere mağazamızdan ulaşabilirsiniz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![vocab.txt · enelpi/bert-question-answering-uncased .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## vocab.txt · enelpi/bert-question-answering-uncased .
+from transformers import AutoTokenizer, AutoModelForQuestionAnswering tokenizer = AutoTokenizer.from_pretrained("enelpi/bert-question-answering-uncased-squadv2_tr 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ustam üye profili](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Ustam üye profili
+Gram Altın Dolar Euro Güm üş Sterlin Altın Ons Bist Bitcoin Platin PARİTE 1.2066 03:21:42 EUR 8.9846 03:21:42 USD 7.4447 03:21:42 ALTIN ONS $1734.8200 03:21:42 Profil sayfası: Ustam Sitene Ekle Altın Arşivi Tüm yorumlar 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ustam üye profili](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Ustam üye profili
+Gram Altın Dolar Euro Güm üş Sterlin Altın Ons Bist Bitcoin Platin PARİTE 1.1732 21:39:57 EUR 9.7286 21:39:57 USD 8.2645 21:39:57 ALTIN ONS $1709.2150 21:39:57 Profil sayfası: Ustam Sitene Ekle Altın Arşivi Tüm yorumlar 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

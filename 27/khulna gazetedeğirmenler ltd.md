@@ -1,0 +1,41 @@
+# khulna gazetedeğirmenler ltd
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khulna Power Company Ltd. - United Group](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Khulna Power Company Ltd. - United Group
+KPCL Unit II, a Furnace Oil (HFO) fired 115 MW power plant, has been built beside the existing Khulna Power Company Ltd in Goalpara, Khulna. With contract for the supply of electricity on Rental Basis with an initial term of 5 years signed with Bangladesh Power Development Board (BPDB) on 23 rd June 2010, its Commercial Operation began on 1 st June 2011.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khulna Shipyard Ltd – Khulna Shipyard Ltd Official Web Site](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Khulna Shipyard Ltd – Khulna Shipyard Ltd Official Web Site
+The government of Bangladesh has constituted a Board of Directors (BOD) for Khulna Shipyard Ltd. The Chief of Naval Staff is the ex-office Chairman of the BOD. The executive authority has been vested to the Managing Director. Manpower Over the years KSY
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khulna](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Khulna
+Khulna (Bengali: খ লন ) is the third largest city in Bangladesh after Dhaka and Chittagong. It is the administrative seat of Khulna District and Khulna Division.The economy of Khulna is the third largest in the Peoples Republic of Bangladesh, contributing $52 billion in nominal gross state product and $94 billion in purchasing power parity terms as of 2020.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ABOUT KHULNA – MyKhulna](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## ABOUT KHULNA – MyKhulna
+Khulna (খ লন ) is the third-largest city of Bangladesh.It is the administrative seat of Khulna District and Khulna Division.As of the 2011 census, the city has a population of 663,342. The encompassing Khulna metro area had an estimated population of 1.022 million
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ship Building – Khulna Shipyard Ltd](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Ship Building – Khulna Shipyard Ltd
+Phone : : : : Fax : Email : contact@khulnashipyard
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Khulna Gazette - Home | Facebook](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Khulna Gazette - Home | Facebook
+Khulna Gazette, Khulna. 110,651 likes · 4,127 talking about this. সব র আগ সঠ ক খবর Facebook is showing information to help you better understand the purpose of a Page. See actions taken by the people who manage and post content.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![About Us – Khulna Chamber Of Commerce And Industry](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## About Us – Khulna Chamber Of Commerce And Industry
+Khulna Chamber of commerce and industry provides world class market oriented services for formulation of policies in respect of industry, investment, banking, insurance, import, export, fiscal measures and annual budget. KCCI expresses views and opinions and 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![The 10 Best Real State Agencies in Khulna District](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## The 10 Best Real State Agencies in Khulna District
+Angel shipping ltd. - Khulna Sadar 122, Sir Iqbal Road, Picture Palace Building (1st Floor), Khulna Sadar. Khulna Sadar. Khulna. We are the best in the business of housing and air cargo. House # 78, Road # 2, Sonadanga R/A, Khulna. Khulna Sadar 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Home - খুলনা গেজেট | সবার আগে সঠিক খবর](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Home - খুলনা গেজেট | সবার আগে সঠিক খবর
+কর ন স ক রমণ ব র জ লক টপক ব শ ব দ ব ত য ভ রত একদ ন সর ব ধ ক এক ল খ ৬৮ হ জ র ৯১২ জন র ক ভ ড-১৯ পজ ট ভ র কথ জ ন য ছ ভ রত। আজ স মব র দ শট র স ব .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![List of Companies in Khulna, Bangladesh | .](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## List of Companies in Khulna, Bangladesh | .
+Companies in Khulna, Bangladesh. Find list of top business & companies in Khulna with address and contact details in Bangladesh business listing directory and yellow pages. SME, traders, suppliers from Khulna, Bangladesh
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

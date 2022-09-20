@@ -1,0 +1,41 @@
+# simon bcme yuzyıl pelet basın
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Başkent Üniversitesi ÇALIŞMA GRUBU Etimesgut TR06790 Ankara .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Başkent Üniversitesi ÇALIŞMA GRUBU Etimesgut TR06790 Ankara .
+0312 246 68 26 Başkent Üniversitesi Bağlıca Kampüsü, Eskişehir Yolu 18. km Etimesgut TR06790 Ankara calismagrubu@baskent.edu.tr XXI. ÖĞRENCİ SEMPOZYUMU ÇALIŞMA GRUBU SUNUMLARI 22-24 Mayıs 2019 Prof. Dr. İhsan Doğramacı Konferans Salonu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÖNLENEBİLİR BİR SORUN - TTB](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## ÖNLENEBİLİR BİR SORUN - TTB
+ÖNLENEBİLİR BİR SORUN: HEKİME YÖNELİK ŞİDDET ISBN Yayınlanma, Haziran 2014, Ankara Türk Tabipleri Birliği Yayınları Türk Tabipleri Birliği Merkez Konseyi GMK Bulvarı Şehit Daniş Tunalıgil Sok. No:2 Kat:4, 06570 Maltepe / ANKARA
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HEYBEMİN DOLU OLMASI SUÇ MU? - Galip Said - .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## HEYBEMİN DOLU OLMASI SUÇ MU? - Galip Said - .
+Kaldı ki müstear isim Türkiye basın geleneğinin meşru bir parçası olarak eski bir gelenek. Hani derler ya tüfek icat edildi mertlik bozuldu. Trol denen ahlaksız mahluklar türediğinden beri müstear ismin de o eski tadı tuzu kalmadı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bir çalma listesini silme | Kullanma | Music Center for PC | .](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Bir çalma listesini silme | Kullanma | Music Center for PC | .
+Müziği düzenlemek ve aktarmak için bir uygulama olan Music Center for PC talimatları. İpucu Birden fazla şarkı seçmek için her şarkıyı, [Ctrl] tuşunu basılı tutarak seçin. Tüm şarkıları seçmek için [Ctrl] tuşunu basılı tutarak [A] tuşuna basın.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![3. BİRLEŞİM ELEMANLARI - DPU](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## 3. BİRLEŞİM ELEMANLARI - DPU
+3. BİRLEŞİM ELEMANLARI Çelik yapılar çeşitli hadde ürünlerinin, proje resimlerinde gösterilen boyutlara göre kesilip birleştirilmesi suretiyle tamamlanır. Yapıyı oluşturacak olan çelik parçaları, statik ve mukavemet bakımından beraber çalışan yapı kısımları halinde
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Macaristan'dan BM'ye tepki: Sığınmacı ülkesine dönmek .](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Macaristan'dan BM'ye tepki: Sığınmacı ülkesine dönmek .
+Polonya, Çekya, Macaristan ve Slovakya'nın oluşturduğu Vişegrad Grubu ülkeleri (V4) başbakanları toplantısına katılan Orban, düzenlenen basın toplantısında, BM Genel Sekreteri Antonio Guterres'in geçtiğimiz günlerde, göçün gerçek bir fırsat olduğunu, ekonomik 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İKİNCİ BASKIDAN ÇEVİRİ Süreçsel Dramada Planlama](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## İKİNCİ BASKIDAN ÇEVİRİ Süreçsel Dramada Planlama
+Süreçsel Dramada Planlama Öğretimin ve Öğrenmenin Zenginleştirilmesi Pamela Bowell and Brian S. Heap İKİNCİ BASKIDAN ÇEVİRİ Çevirenler: Pamela Bowell ve Brian S. Heap Çevirenler: Gizem Sivrikaya - Funda Guzey Gürsoy - Gözde Polatkal - Ceren Karadeniz
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Meclis Üyeleri - BTSO](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Meclis Üyeleri - BTSO
+NİHAT ALPAY 06. GRUP Firma: SANİ TEKSTİL KONFEKSİYON GİYİM İNŞAAT KİMYA SANAYİ VE TİCARET LİMİTED ŞİRKETİ Adres: DUAÇINARI MH. UZUN CD. KERVAN SK. NO:2 16270 YILDIRIM BURSA Telefon: (224)364 79 79 - (224)364 78 02 Faks
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çimbeton Hisse Senedi Fiyatı - CMBTN Hissesi Borsa .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Çimbeton Hisse Senedi Fiyatı - CMBTN Hissesi Borsa .
+Çimbeton (CMBTN) hisse senedi sayfasından geçmişten bugüne borsa verilerini grafik üzerinden takip edebileceğiniz gibi, Çimbeton ile ilgili canlı borsa 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MEGEP](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## MEGEP
+Milli Eğitim Bakanlığı tarafından geliştirilen modüller; • Talim ve Terbiye Kurulu Başkanlığının 02.06.2006 tarih ve 269 sayılı Kararı ile onaylanan, Mesleki ve Teknik Eğitim Okul ve Kurumlarında kademeli olarak yaygınlaştırılan 42 alan ve 192 dala ait çerçeve öğretim
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

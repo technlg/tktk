@@ -1,0 +1,145 @@
+# cift toggle konkasör projesi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İTÜ AKADEMİ - Doç. Dr. Ersin Sayar](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## İTÜ AKADEMİ - Doç. Dr. Ersin Sayar
+Rutin Döner Sermaye Projesi Proje Tipi : Özel Kuruluşlar, Proje Bütçesi : ₺ 11.800,00, 22 Ekim 2018, 22 Ekim 2019 Ersin Sayar Proje Yürütücü Tamamlandı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İTÜ ETB | Öğrenci Çalışmaları](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## İTÜ ETB | Öğrenci Çalışmaları
+Toggle navigation HAKKIMIZDA Endüstriyel Tasarım Hakkında İTÜ ETB Taşkışla Kampüs  Lisansüstü Programları ARAŞTIRMA ÖĞRENCİ Staj Erasmus+ Çift Anadal ve Yandal Yatay/Dikey Geçiş Bitirme Projesi İTÜ Öğrenci İşleri Daire Başkanl 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İTÜ ETB | Lisansüstü Programları](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## İTÜ ETB | Lisansüstü Programları
+Lisansüstü Programları İTÜ Fen Bilimleri Enstitüsü bünyesinde Endüstri Ürünleri Tasarımı Anabilim Dalı'na bağlı Yüksek Lisans (MSc) ve Doktora (PhD) programları bulunmaktadır. Yüksek Lisans programı 1989, Doktora programı ise 1996'dan bu yana devam 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇOMÜ - Fizik Bölümü](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## ÇOMÜ - Fizik Bölümü
+ÇOMÜ Bap Projesi, Proje No:2010/172, Proje Yöneticisi, Bütçe: 8.000TL (2010 yılında devam ediyor). 12-Enerji-momentum Tanımları ve Bazı Uzay-zamanların Enerji Momentumları ÇOMÜ – BAP Projesi, Proje No:2009/131, Proje Yürütücüsü, Yrd.Doç.Dr.Melis
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kahramanmaraş Sütçü İmam Üniversitesi](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Kahramanmaraş Sütçü İmam Üniversitesi
+Kahramanmaraş Sütçü İmam Üniversitesi Üniversitemiz, 11.7.1992 tarih ve 21281 sayılı Resmi Gazete'de yayımlanan 3837 sayılı yasa ile eğitim yılında eğitim-öğretime başlamıştır. Kahramanmaraş Sütçü İmam Üniversitesi, kurulduğu günden bu yana her 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Balkan Evleri | Lampeti Lighting](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Balkan Evleri | Lampeti Lighting
+Kayapa semti Çamlık mahallesinde 2 blok olarak toplam 64 daire oluşan Balkan evleri projesi, otopark ve havuz başı alanlarında çift yönlü 60W Angula serisi direk modellerimizi tercih ederken, site içi geçiş yollarında, 30W, çift taraflı Mirket serisi ürünlerimizi kullanarak site .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SÖĞÜTSEN ÇANKIRI SERAMİK FABRİKASI PROJESİ – Emta .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## SÖĞÜTSEN ÇANKIRI SERAMİK FABRİKASI PROJESİ – Emta .
+Toggle navigation ANASAYFA HAKKIMIZDA ÇÖZÜMLERİMİZ PROJELER KARİYER HABER & BLOG İLETİŞİM SÖĞÜTSEN ÇANKIRI SERAMİK FABRİKASI PROJESİ + PROJE DETAYLARI 154 KV SOGUTSEN CANKIRI TM - CANKIRI/KURSUNLU EİH 1272 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Güray Mühendislik – Spool Boru İmalatı](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Güray Mühendislik – Spool Boru İmalatı
+GEMAK GROUP'un gerçekleştirdiği toplam 9 Kimyasal Tanker projesi ve 2 adet Power Ship projesi için 41.500 adet spool boru parçası ürettik. DETAYLI BİLGİ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İTÜ ETB | Akademik Kadro](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## İTÜ ETB | Akademik Kadro
+İTÜ EÜTB Dışından Ders Veren Öğretim Elemanları Ali İmre Aydeniz, Öğr.Gör.Dr. (EUT 544 Montaj Odaklı Tasarım) Aynur Karakaş Karaağaç, Öğr.Gör. (EUT 326E Ceramics Design and Technology) Doğan Gürpınar, Doç.Dr. (EUT 565E Culture, History and Discourse in Industrial Design) 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KONKASÖR ARANIYOR | / TÜRKİYE MADEN BANKASI](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## KONKASÖR ARANIYOR | / TÜRKİYE MADEN BANKASI
+Toggle navigation ANASAYFA KURUMSAL HİZMETLERİMİZ MADEN İZİNLERİ REHABİLİTASYON PROJESİ ENERJİ NAKİL HATTI İZİNLER SU İSALE HATTI İZİNLER İ DOĞALGAZ HATTI İZİNLERİ ULAŞIM YOLU İZİNLERİ MESİRE YERİ İZİNLERİ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Proje Sitesi | Çift kişilik yatak, 3d Autocad Projesi](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Proje Sitesi | Çift kişilik yatak, 3d Autocad Projesi
+Proje Hakkında Çift Kişilik Yatak, 3d projesi herşeyiyle tam değiştirilebilir şekildedir, projenin tüm içeriğini Autocad programında detaylı şekilde değiştirebilir ve istediğiniz ölçekte çıktılarını alabilirsiniz. Proje birebir ölçekte çizilmiştir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İTÜ - TTG Araştırma Projeleri - Anasayfa](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## İTÜ - TTG Araştırma Projeleri - Anasayfa
+İTÜ - Transport Tekniği Grubu yürütülen ve biten araştırma projeleri Araştırma Projeleri Teknik Resimin Bilgisayar Ortamında Güncelleşmesi İçin Bilimsel Araştırma ve Geliştirme, İTÜ Araştırma Fonu Proje no: 1347 I. GERDEMELİ 2001 Bilgisayar ortamında teknik 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İTÜ ETB | Öğrenci Çalışmaları](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## İTÜ ETB | Öğrenci Çalışmaları
+ Fall Semester. EUT 220E Industrial Design Studio I. A Furniture Design System for Household People During Lockdown. Spring Semester. EUT 350E Contemporary Furniture Design. Glitter in Litter. Spring Semester. EUT 220E Industrial Design Studio I. .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Proje Sitesi | Cam çift kapı 2m Autocad Projesi](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Proje Sitesi | Cam çift kapı 2m Autocad Projesi
+Cam çift kapı 2m autocad projesi,Cam çift kapı 2m dwg dosyası. Proje Hakkında Cam Çift Kapı 2m projesi herşeyiyle tam değiştirilebilir şekildedir, projenin tüm içeriğini Autocad programında detaylı şekilde değiştirebilir ve istediğiniz ölçekte çıktılarını alabilirsiniz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Doktora Çalışma Onay Belgesi - İTÜ Endüstri Mühendisliği .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Doktora Çalışma Onay Belgesi - İTÜ Endüstri Mühendisliği .
+Doktora Çalışma Onay Belgesi İTÜ Endüstri Mühendisliği Doktora programına kabul edilen/edilebilecek kişilerin birlikte çalışmayı planladıkları Öğretim Üyesi ve doktora çalışma konusu hakkında doldurulması gereken İTÜ Endüstri Mühendisliği Çalışma Onay Belgesi'ne buradan ulaşabilirsiniz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Makine Parkı | KAY-SA İNŞAAT](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Makine Parkı | KAY-SA İNŞAAT
+Toggle navigation Anasayfa Kurumsal Hakkımızda Misyonumuz & Vizyonumuz Faaliyetlerimiz Makine Parkımız Projeler İletişim KAY-SA İNŞAAT Makine Parkı Anasayfa Makine Park ı EKSKAVATÖR Adet 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hakkımda | Nazende Öksüz](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Hakkımda | Nazende Öksüz
+"Okan Üniversitesi Psikoloji Bölümü'nü "Onur Öğrencisi" ünvanıyla tamamladıktan sonra Dogus Üniversitesi'nde Klinik Psikoloji Yüksek lisans eğitimini tamamladı.Eğitim süresince 572 saat süpervizyon aldı. Bakırköy Kapalı Kadın Cezaevi'nde gerçekleştirilen "Masum Mahkumlar" projesi kapsamında kadın mahkumlara "Etkili Ebeveynlik" eğitimi verdi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Proje Sitesi | Bifold - çift kapı Autocad Projesi](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Proje Sitesi | Bifold - çift kapı Autocad Projesi
+Proje Hakkında Bifold - Çift Kapı projesi herşeyiyle tam değiştirilebilir şekildedir, projenin tüm içeriğini Autocad programında detaylı şekilde değiştirebilir ve istediğiniz ölçekte çıktılarını alabilirsiniz. Proje birebir ölçekte çizilmiştir. Eski ve yeni bütün Autocad 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İTÜ - TTG Araştırma Projeleri - Anasayfa](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## İTÜ - TTG Araştırma Projeleri - Anasayfa
+Araştırma Projeleri. Araştırma Projeleri. Teknik Resimin Bilgisayar Ortamında Güncelleşmesi İçin Bilimsel Araştırma ve Geliştirme, İTÜ Araştırma Fonu Proje no: 1347. I. GERDEMELİ. 2001. Bilgisayar ortamında teknik resimin güncellenmesi için bilimsel araştırma ve geliştirme, İTÜ Araştırma Fonu Proje no: .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![VEMAK](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## VEMAK
+TAŞ OCAĞI GRUBU No Tanımı Tip 1 KIRMA ELEME TESİSİ 250 KW MOTOR 2 KIRMA ELEME TESİSİ 250 KW MOTOR 3 KIRMA ELEME TESİSİ 200 KW MOTOR 4 KIRMA METSO 1110 5 KONKASÖR TESİS ELEĞİ 1000X6000 (4 KAT 22 KW) 6 KONKASÖR
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Proje Sitesi | Detay destek kiriş çift metal Autocad Projesi](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Proje Sitesi | Detay destek kiriş çift metal Autocad Projesi
+Proje Hakkında Detay Destek Kiriş Çift Metal projesi herşeyiyle tam değiştirilebilir şekildedir, projenin tüm içeriğini Autocad programında detaylı şekilde değiştirebilir ve istediğiniz ölçekte çıktılarını alabilirsiniz. Proje birebir ölçekte çizilmiştir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![80 m2 Prefabrik Ev Tip 2 (2+1) | Kolay Prefabrik](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## 80 m2 Prefabrik Ev Tip 2 (2+1) | Kolay Prefabrik
+80 m2 Tek Katlı Prefabrik Ev Tip 2 (2+1) KolayPrefabrik'un sunduğu bu prefabrik ev planı; prefabrik yazlık ev, prefabrik bahçe evi, prefabrik bağ evi gibi kullanımlar için uygundur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Makine Parkı](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Makine Parkı
+Makine Parkı Zengin makine portföyü, müteahhitlik sektöründeki en önemli faktörlerden biridir. Şirketin gücünü ve kapasitesini anlayabilmek için dikkat edilmesi gereken temel göstergelerdendir. Makine parkının sahip olduğu çeşitlilik ve her bir kategorideki makine ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SÖĞÜTSEN ÇANKIRI SERAMİK FABRİKASI PROJESİ – .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## SÖĞÜTSEN ÇANKIRI SERAMİK FABRİKASI PROJESİ – .
+Toggle navigation ANASAYFA HAKKIMIZDA ÇÖZÜMLERİMİZ PROJELER KARİYER HABER & BLOG İLETİŞİM SÖĞÜTSEN ÇANKIRI SERAMİK FABRİKASI PROJESİ + PROJE DETAYLARI 154 KV SOGUTSEN CANKIRI TM - CANKIRI/KURSUNLU EİH 1272 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PROJESİ HAZIR ARSA – Yasin Emlak](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## PROJESİ HAZIR ARSA – Yasin Emlak
+Toggle navigation Yasin Emlak Gayrimenkul Çözüm Ortağınız yasin-emlak@hotmail +90 532 233 35 19 Ana Sayfa Kurumsal Tüm İlanlar İletişim PROJESİ HAZIR ARSA Favorilere Ekle 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Modern Villa 4 Projesi | Lüks Planlı Villa](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Modern Villa 4 Projesi | Lüks Planlı Villa
+Modern villa 4 projesi, betonarme yapıda, üst ve alt katta dinamik çift katlı cam cephesi, bahçe terası cephesi özel işlenmiş taşlarla kaplanmış lüks modern villa projesidir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Araştırma Görevlileri](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Araştırma Görevlileri
+İTÜ İşletme Fakültesi, Endüstri Mühendisliği Bölümü, Maçka 34367 İstanbul Tel: (212) 293 13 00 Dahili 2073 e-posta: endmuhsek@itu.edu.tr
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Prof. Dr. Cem EVRENDİLEK | AKADEMİK PERSONEL .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Prof. Dr. Cem EVRENDİLEK | AKADEMİK PERSONEL .
+Prof. Dr. Cem EVRENDİLEK, Mühendislik Fakültesi, Bilgisayar Mühendisliği, dersler Verilen Dersler 2020 - 2021 (CE 215) Bilgisayar Bilimleri için Ayrık Matematik (CE 221) Veri Yapıları ve Algoritmalar I (CE 223) Veri Tabanı Sistemleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![VEMAK](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## VEMAK
+KONKASÖR TESİS ELEĞİ 1000X6000 (4 KAT 22 KW) 6 KONKASÖR TESİS ELEĞİ 1000X6000 (4 KAT 22 KW) 7 KONKASÖR TESİS ELEĞİ 1600X5000 (4 KAT 15 KW) 8 KONKASÖR TESİS ELEĞİ 1600X5000 (2 KAT 15 KW) 9 KONKASÖR TESİS ELEĞİ 10
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Proje Sitesi | Çift duvarlı detay Autocad Projesi](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Proje Sitesi | Çift duvarlı detay Autocad Projesi
+Proje Hakkında Çift Duvarlı Detay projesi herşeyiyle tam değiştirilebilir şekildedir, projenin tüm içeriğini Autocad programında detaylı şekilde değiştirebilir ve istediğiniz ölçekte çıktılarını alabilirsiniz. Proje birebir ölçekte çizilmiştir. Eski ve yeni bütün Autocad 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tripleks Villa 4 Projesi | Modern Mimari Planlı Villa](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Tripleks Villa 4 Projesi | Modern Mimari Planlı Villa
+Sosyal kullanım alanı, geniş bahçesi, garajı olan modern lüks villa projesidir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İTÜ ETB | Lisansüstü Programları](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## İTÜ ETB | Lisansüstü Programları
+Vizyon: Tasarım araştırmalarında Türkiye'nin lider lisansüstü programı olmak ve bu konumu sürdürmek; uluslararası tasarım araştırmaları ağının Türkiye'deki asli ortağı olmak. Endüstri Ürünleri Tasarımı lisansüstü programları tasarım araştırmaları odaklıdır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Proje Sitesi | Çift kapı 3d 2.10x2.00m Autocad Projesi](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Proje Sitesi | Çift kapı 3d 2.10x2.00m Autocad Projesi
+Proje Hakkında Çift Kapı 3d 2.10x2.00m projesi herşeyiyle tam değiştirilebilir şekildedir, projenin tüm içeriğini Autocad programında detaylı şekilde değiştirebilir ve istediğiniz ölçekte çıktılarını alabilirsiniz. Proje birebir ölçekte çizilmiştir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Makine Parkı – Ziver Holding](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Makine Parkı – Ziver Holding
+Toggle navigation Makine Parkı Loader Loader / 21 Adet [5 Adet] VOLVO L 120 F 2013 MOD. LOADER, [5 Adet] VOLVO L 150 G 2013 MOD. LOADER, [2 Adet] VOLVO BL71B PLUS 2014 MOD. KAZICI YÜK 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mimarlık Hizmetleri – İmzataş](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Mimarlık Hizmetleri – İmzataş
+İmzataş, uzman ekibi ile sunduğu mimarlık hizmetleri ile işlevsellik, çevresel faktörler ve tüm diğer mimari ögelerin bir arada değerlendirilmesi ile sağlıklı çözümler sunar. Mimarlık hizmetlerimizi binalar, alışveriş merkezleri, oteller, villalar, konutlar, hastaneler, ticari 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İTÜ AKADEMİ - Prof. Dr. Şakir Bal](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## İTÜ AKADEMİ - Prof. Dr. Şakir Bal
+Prof. Dr. Şakir Bal, Şakir Bal Proje Tipi : Yükseköğretim Kurumları tarafından destekli bilimsel araştırma projesi, Proje Bütçesi : 19.775,00, 2 Nisan 2012, 17 Mart 2015
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

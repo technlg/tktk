@@ -1,0 +1,41 @@
+# lumpreducers ve calkalayıcı ekranlar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dokunmatik Ekranım Çalışmıyor sorunu ve çözümleri - .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Dokunmatik Ekranım Çalışmıyor sorunu ve çözümleri - .
+Basın sekme tuşunu kadar Evet düğmesine seçilir ve daha sonra basın girin veya tıklayın Evet düğmesini. Ekrandaki talimatları Dokunmatik Ekran Sürücülerini Güncelleme ve Dokunmatik Ekranı Yeniden Yükleme
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![LCD çalışma prensibi | Teknoloji Günlüğü](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## LCD çalışma prensibi | Teknoloji Günlüğü
+Genel olarak LCD ekranların çalışma prensibi 4 temel özelliğe dayanmaktadır: Işık polarize edebilirler. Sıvı kristaller polarize edilmiş ışığı geçirebilme özelliğine sahiptir. Sıvı kristallerin molekül dizilimleri elektrik akimi ile değiştirilebilir. Elektrik akimini iletecek şeffaf maddeler mevcuttur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çalkalayıcılar](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Çalkalayıcılar
+Ürün Grubu : Çalkalayıcılar. ÖZELLİKLERİ. Innova 42 / Innova 42R. Inkübatörlü Orbital Çalkalayıcı Innova 42: Oda sıcaklığı - 15°C- 80°C Innova 42R: Oda sıcaklığı - 15°C- 80°C Hız Aralığı : 25 - 500 rpm (±1 rpm) Platform : 46 x 46 cm Programlanabilir sıcaklık ve hız Opsiyonel 5-Port Gassing Manifold Opsiyonel Photosynthetic Light Bank UV Germicial 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lcd Ekran Nedir? Nasıl çalışır ? Çalışma Prensibi | .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Lcd Ekran Nedir? Nasıl çalışır ? Çalışma Prensibi | .
+Sıvı kristal ekran, ışık yaymak yerine ışığı engelleme prensibi ile çalışır. LCD'ler, ışık yaymadıkları için arka ışık gerektirir. Her zaman katot ışınlı tüpün yerini alan LCD ekranlardan oluşan cihazları kullanıyoruz. Katot ışınlı tüp, LCD'lere kıyasla daha fazla güç çeker ve ayrıca daha ağır ve .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![LCD ve AMOLED Ekranın Farkları Neler? - Webtekno](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## LCD ve AMOLED Ekranın Farkları Neler? - Webtekno
+2 · Bu yazımızda sizler için telefon üreticilerinin en çok tercih ettiği iki teknoloji olan LCD ve AMOLED ekran teknolojilerini açıklayıp farklarını dökeceğiz. Renk ve Parlaklık LCD ekranların aksine AMOLED ekranlar, her bir pixelin ayrı ayrı aydınlatılması ile görüntü sağlar.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![LAZER,LAZERİN ÇALIŞMA PRENSİBİ VE LAZER ÇEŞİTLERİ – .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## LAZER,LAZERİN ÇALIŞMA PRENSİBİ VE LAZER ÇEŞİTLERİ – .
+Kullanım alanları ise epilasyon cihazları, metal olmayan seramik malzemelerin işlenmesinde ve ameliyatta kullanılan robotik cihazlarında kullanılır. Kabondioksit Lazer : Karbondipksit lazer, Molekül lazer türlerinden bir tanesidir . Çalışma prensibi helyum .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![LCD Ekranlar](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## LCD Ekranlar
+SMD ve Dip Kristaller Dip Kristaller Smd Kristaller SMD Tristörler Buzzer DİP(Thru Hole)Diyotlar Transil(TVS)Diyotlar GMP5V(5V Transil Diyot) TGMP5V(5V Transil
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![LCD Ekranlar Nasıl Çalışır? | 2kr2](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## LCD Ekranlar Nasıl Çalışır? | 2kr2
+Başlangıçta tek renkli ve çok düşük çözünürlüklü olan sıvı kristal ekranlar; hesap makineleri, saatler, cep telefonları vb. basit görüntüleme işlerinde kullanılmıştır. Nokta matrisli (dot matrix) yüksek çözünürlüklü ve renkli sürümlerinin ortaya çıkması bu ürünlerin
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çalkalayıcı, Rotator & Sallayıcılar](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Çalkalayıcı, Rotator & Sallayıcılar
+Prizma Laboratuar Ürünleri San. ve Tic. Ltd. Şti. T: 0216 365 10 00 F: 0216 365 10 01 M: info@prizmalab; auckun@prizmalab
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ELEKTRONİK ARŞİV KILAVUZU - QNB eFinans](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## ELEKTRONİK ARŞİV KILAVUZU - QNB eFinans
+elemanların tanımlanması, kardinaliteleri ve örnek kullanımlarının gösterimi bu bölümde açıklanmıştır. e-Arşiv Paketi içerisinde yer alan aylık rapora ilişkin her bir eleman açıklanırken aşağıdaki tablo yapısı kullanılmıştır. [Eleman: Adı] [Eleman: Tanımı]
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

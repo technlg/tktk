@@ -1,0 +1,117 @@
+# değirmeni bana bir
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Un Değirmeni | Ziraat Makinaları](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Un Değirmeni | Ziraat Makinaları
+Tahılları öğütür.Yel değirmenlerinin 360 derece sadece bir kez dönmesi, değirmentaşının aynı işi 50 kez tekrarlamasına yol açar. Alttan Döner Taşlı Un değirmeni lük BIR CEVAP YAZIN
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![su değirmeni | SİNOP BİLİM KÜLTÜR EĞİTİM DERNEĞİ](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## su değirmeni | SİNOP BİLİM KÜLTÜR EĞİTİM DERNEĞİ
+Hepimize ders olacak bir hikaye: "Annemden, herkesin yaşamına ders olacak güzel bir köy hikâyesi dinledim. Çocukluğumda dinlediğim bu hikâye bana, ömür boyu unutamayacağım bir .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![El değirmeni | Hayata Dair Herşeyden Biraz :)](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## El değirmeni | Hayata Dair Herşeyden Biraz :)
+El değirmeni El degirmeni, iki günahkar arkadasa isarettir. Bir kimse eliyle degirmeni döndürdügünü ve onanla un ögüttügünü görse, dininde ve geçiminde eline itimad eder. Degirmen kötü islere ve kendilerine emniyet olunan hizmetçilere isarettir. Bazi tabirciler 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CUMAYERİNDE 150 YILLIK DEĞİRMEN - haber380](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## CUMAYERİNDE 150 YILLIK DEĞİRMEN - haber380
+Sebahattin Çengeltepe tarafından işletilen su değirmeni, su zengini bölgede ayakta kalan ve yaşamını sürdürmeye çalışan tek su değirmeni. Gelişen teknolojiye rağmen, Dokuz Değirmeni adındaki su değirmeni, suyun doğal gücüyle dönmeye ve doğal yöntemlerle buğdayı ve .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![George Herbert Sözleri | MUHTEŞEM SÖZLER](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## George Herbert Sözleri | MUHTEŞEM SÖZLER
+Bana bir yalancı göster, sana bir hırsız göstereyim. İyi sözlerin çok kıymeti vardır, para ile alınamaz. Adaletin değirmeni yavaş döner, fakat iyi döner. Umutla yaşayan, müzik olmadan da dans eder. Yarınını tehlikeye atabilecek eğlencelerden uzak dur. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![AZER BÜLBÜL Degirmen terse döndü - YouTube](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## AZER BÜLBÜL Degirmen terse döndü - YouTube
+büyük insan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SÖZ SANATLARI | TürkçeDerslerim](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## SÖZ SANATLARI | TürkçeDerslerim
+Bana sıla da bir, gurbet il de bir Karacaoğlan bu dörtlükte memleketinden ayrı olmanın verdiği acıyı abartarak anlatmıştır. Çünkü gerçekte gözyaşı dağları eritmez, değirmeni yürütmez. 2.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sinan Değirmeni – ANTALYA – Outdoor Gezi ve Seyahat .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Sinan Değirmeni – ANTALYA – Outdoor Gezi ve Seyahat .
+Hemen karşısında bulunan ve artık anıtsal hale gelen Sinan Değirmeni ve etrafını saran herbiri eşsiz siloları da gözünüzle süzdükten sonra çevre de gezinmek çok güzel. Sinan Değirmeninin etrafındaki Silo'ların da bir hikayesi var elbette.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![George Herbert Sözleri | MUHTEŞEM SÖZLER](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## George Herbert Sözleri | MUHTEŞEM SÖZLER
+Tanrının değirmeni ağırdır ama iyi öğütür. Bana bir yalancı göster, sana bir hırsız göstereyim. İyi sözlerin çok kıymeti vardır, para ile alınamaz. Adaletin değirmeni yavaş döner, fakat iyi döner. Umutla yaşayan, müzik olmadan da dans eder. Yarınını tehlikeye
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Zafer Gündoğdu - Yasemen - YouTube](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Zafer Gündoğdu - Yasemen - YouTube
+Zafer Gündoğdu - Umut Ve Sevda Türküleri Yasemen(Duygu Müzik)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CUMAYERİNDE 150 YILLIK DEĞİRMEN - haber380](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## CUMAYERİNDE 150 YILLIK DEĞİRMEN - haber380
+Cumayeri Dokuzdeğirmen de Değirmencilik yapan Sebahattin Çengeltepe Değirmen işletmeciliği bana atalarımdan kaldı.Bir hatıra olduğu için bu değirmeni yaşatmaya çalışıyorum. Teknolojinin gelişimi birçok şeyi yok etti ancak, Cumayeri İlçemize bağlı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kader Değirmeni | ](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Kader Değirmeni | 
+"..Bir gece Lala ile birlikte karşılıklı oturmuş el değirmeninde bulgur öğütüyorduk. Değirmeni çevirme sırası bana geldi. Ben çevirirken, Baktım Lala'nın gözlerinden yaşlar geliyordu. Ağlıyordu. Sebebini sordum: 'Sen daha çocuksun anlamazsın' dedi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Söz Dediğin Böyle Olur – BOŞ SATIR](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Söz Dediğin Böyle Olur – BOŞ SATIR
+Söz Dediğin Böyle Olur içinde yayınlandı Etiketler Allah'ın değirmeni çok büyüktür, Geç öğütür ama ince öğütür. Yorum yapın Keser Döner, Sap Döner Posted on Ağustos 17, 2013 by Bilinmez Keser döner, sap döner; gün gelir hesap döner. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Düzce haberleri Bu değirmen 100 yıldır dönüyor - 16 .](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Düzce haberleri Bu değirmen 100 yıldır dönüyor - 16 .
+Bu değirmeni nasıl 1 asır önce dedem bana bıraktıysa bende benden sonraki nesile ve çocuklarımıza bir asır daha devam etmesi temennisiyle bu değirmeni bırakmak istiyorum" dedi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Atatürk ve Potsdam Tarihi Yel Değirmeni – PIN .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Atatürk ve Potsdam Tarihi Yel Değirmeni – PIN .
+Tarihi Yel Değirmeni' nden bahsetmeden önce Potsdam şehri hakkında genel bir bilgi vermek istiyorum; Potsdam' da dikkatimi çeken şey gothik yapıdaki kiliseleri ve "Hollandisches Viertel" yani Hollanda evlerinin mimarisini hatırlarsanız o yapıdaki evleri.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Değİrmen Dizaynı ve Yer, Bina, Makine Seçimi | | .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Değİrmen Dizaynı ve Yer, Bina, Makine Seçimi | | .
+Bir un değirmeninin verimli ve sorunsuz bir üretim sürecine sahip olması da büyü oranda değirmenin amacına uygun olarak tasarlanmasına, yer, ekipman, vb. seçimlerin doğru şekilde yapılmasına bağlıdır. Bu ayki sayımızda, biz de bir un değirmeni
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tarihi değirmen 100 yıldır dönüyor](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Tarihi değirmen 100 yıldır dönüyor
+Bu değirmeni nasıl 1 asır önce dedem bana bıraktıysa bende benden sonraki nesile ve çocuklarımıza bir asır daha devam etmesi temennisiyle bu değirmeni bırakmak istiyorum" dedi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAL DeĞiRMeNİ ARI Çiftliği - Home | Facebook](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## BAL DeĞiRMeNİ ARI Çiftliği - Home | Facebook
+BAL DeĞiRMeNİ ARI Çiftliği. 472 likes. %100 DOĞAL ORGANİK KATKISIZ ŞEKERSİZ Üreticiden tüketiciye ham bal taze polen propolis Petek bal karakovan çeşitleri Oğul Alma operasyonu Aliağa 102 evlerden emekli bir abi yardım istemiş bal birliğinden gelip 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAL DeĞiRMeNİ ARI Çiftliği - Home | Facebook](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## BAL DeĞiRMeNİ ARI Çiftliği - Home | Facebook
+BAL DeĞiRMeNİ ARI Çiftliği. 472 likes. %100 DOĞAL ORGANİK KATKISIZ ŞEKERSİZ Üreticiden tüketiciye ham bal taze polen propolis Petek bal karakovan çeşitleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tarihi değirmen 100 yıldır dönüyor](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Tarihi değirmen 100 yıldır dönüyor
+Oradan hareketle burayı tekrar bu haline getirdik. Bu değirmeni nasıl 1 asır önce dedem bana bıraktıysa bende benden sonraki nesile ve çocuklarımıza bir asır daha devam etmesi temennisiyle bu değirmeni bırakmak istiyorum" dedi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Değirmende 'akıllı tesis' geleceğinizi kurtarır | | .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Değirmende 'akıllı tesis' geleceğinizi kurtarır | | .
+"Yeni bir değirmeni, gerekli teknolojik altyapısını tamamlamadan kurmak çok büyük bir hata olur.  Bana göre yapılması gereken de budur. Günümüzde artık orta ve yüksek kapasiteli, betonarme binaya yerleşimli, sektörde hemen hemen standart kabul edilen 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tarihi değirmen 100 yıldır dönüyor - Türkiye](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Tarihi değirmen 100 yıldır dönüyor - Türkiye
+Bu değirmeni nasıl 1 asır önce dedem bana bıraktıysa bende benden sonraki nesile ve çocuklarımıza bir asır daha devam etmesi temennisiyle bu değirmeni bırakmak istiyorum" dedi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![7. Sınıf Türkçe 2. Dönem 1. Yazılı Soruları Çöz ()](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## 7. Sınıf Türkçe 2. Dönem 1. Yazılı Soruları Çöz ()
+Gözüm yaşı değirmeni yürütür Bu hasretlik beni dahi çürütür Bana sıla da bir, gurbet il de bir Yukarıdaki dörtlükte hangi söz sanatından yararlanılmıştır? A Mübalağa B Teşbih C Teşhis D İntak 9 numaralı soru için açıklama Karacaoğlan bu dörtlükte 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BİR DEĞİRMEN HİKAYESİ | hanimkaravelioglu](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## BİR DEĞİRMEN HİKAYESİ | hanimkaravelioglu
+BİR DEĞİRMEN HİKAYESİ Gelivera köprüsünün tam karşısında bir su değirmeni var. Asırlık kara taş duvarlarına ak köpüklü suları nispet yapar. Duvar aralarını kertenkeleler yurt tutar. Çarkında dünya döner. Kapısı kilitsizdir değirmenin ve bu köydeki bütün 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![About | Fikir Değirmeni](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## About | Fikir Değirmeni
+Fikir Değirmeni İçeriğe ge ç Başlangıç About About This is an example of a WordPress page, you could edit this to put information about yourself or your site so readers know where you are coming from. You can create as many pages like this one or sub-pages 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Zaanse Schans'ın 10 Değirmeni - İpek Evci](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Zaanse Schans'ın 10 Değirmeni - İpek Evci
+–De Kat: 1664 yılında yapılmış, boya değirmeni. Yüksek kalitede boya üretiyor ve üretilen boyalar sanatçılara satılıyor.  bu paylaşımları dünyanın bir ucundan sizlere ulaştırabilmek benim için büyük mutluluk ve bu uzak noktada bana çok büyük bir destek.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Fakir Değirmenci ile Kedi - Grimm Kardeşler](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Fakir Değirmenci ile Kedi - Grimm Kardeşler
+Size şöyle bir teklifim var: Bana en güzel atı kim getirirse değirmeni ona vereceğim. Ama o kişi ölünceye kadar bana bakacak! dedi. Çırakların ikisi, en küçükleri olan Hans'ı aptal yerine koyuyor ve onun değirmeni hak etmediğini düşünüyorlardı. Peri masalı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jet Merdaneli Malt Değirmeni - Butikmatik](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Jet Merdaneli Malt Değirmeni - Butikmatik
+Jet Malt Değirmeni, paslanmaz çelik merdaneleri ve hassas işlenmiş parçaları ile bira yapımı için mükemmel bir malt, arpa, buğday ve tahıl öğütme çözümüdür. Değirmen Taksit Seçenekleri İçerik Jet Malt Değirmeni, evde bira yapımı ve küçük ölçekli profesyonel üretimler için geliştirilmiş bir .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![8.Sınıf Söz SanatlarıTest-2 I Türkiye I dinledebiyat](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## 8.Sınıf Söz SanatlarıTest-2 I Türkiye I dinledebiyat
+11.I. Bir ah çeksem dağı taşı eritir, Gözüm yaşı değirmeni yürütür, Bir hasretlik beni dahi çürütür, Bana sıla da bir, gurbet de bir. II. Ne hasta bekler sabahı Ne taze ölüyü mezar Ne de şeytan bir günahı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

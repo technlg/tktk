@@ -1,0 +1,45 @@
+# haddesinden hindistan şematik
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HİNDİSTAN by Zeynepnaz İseri](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## HİNDİSTAN by Zeynepnaz İseri
+Genel Bilgiler Başkent: Yeni Delhi Nüfus: 1,237 milyar (2012) Dünya Bankası Para birimi: Hindistan rupisi Resmi dilleri: Hintçe, İngilizce Yönetim şekli: Federal cumhuriyet, Anayasal cumhuriyet, Parlamenter sistem Coğrafi Konumu Asya'da bulunan ve yüzölçümü
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) RAYLI SİSTEMLERDE RAY VE TEKER ARASINDAKİ .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## (PDF) RAYLI SİSTEMLERDE RAY VE TEKER ARASINDAKİ .
+Döküm işlemi için alçak 20 basınç kontrollü (ABD ve Hindistan) veya gravity (Güney Afrika) prosesleri kullanılır. Basınç kontrollü sistemde ergitilen metal, hava sızdırmaz bir kapakla contalanarak bir odaya yerleştirilir ve basınçlı asal gaz bu oda içerisine gönderilir ve ergiyik çelik refrakter tüp boyunca yukarı doğru itilir ve alttan itibaren tekerlek seklini 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hindistan: Tarihi, ekonomisi, dini, dili ve yönetimi - Evren .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Hindistan: Tarihi, ekonomisi, dini, dili ve yönetimi - Evren .
+Hindistan'ın büyük ölçekli tarımının çoğu bu bölgede gerçekleşiyor. Hindistan'ın üçüncü coğrafi bölgesi, ülkenin güney ve orta kısımlarındaki plato bölgesidir. Hindistan'da üç büyük nehir sistemi var ve bunların hepsinde arazinin büyük bölümünü geniş deltalar oluşturuyor. Bunlar İndus, Ganj ve .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hindistan - Wikipediýa](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Hindistan - Wikipediýa
+Hindistan Respublikasy (hind. भ रत गणर ज य, Bhārat Gaṇarājya?, iňl. Republic of India) — Günorta Aziýada döwlet. Hindistan tutýan meýdany boýunça dünýäde ýedinji, .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hindistan'da Eğitim - Education in India](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Hindistan'da Eğitim - Education in India
+Hindistan eğitim sistemindeki bozulma, eğitimin kalitesini aşındırmakta ve toplum için uzun vadeli olumsuz sonuçlar yaratmaktadır. Hindistan'daki eğitim yolsuzluğu, yerel kara paraya en büyük katkıda bulunanlardan biri olarak kabul ediliyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HİNDİSTAN'a GENEL BAKIŞ | Ayşegül'le Seyahat](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## HİNDİSTAN'a GENEL BAKIŞ | Ayşegül'le Seyahat
+Hindistan'a genel olarak baktığımızda, nüfus yoğunluğu ve fakirliğin bariz göze çarptığını, ancak bunun ruh hallerine hiç yansımadığını görüyoruz. Kalabalık, trafik, pislik ve kaosun yaşandığı caddelerde, 10 gün boyunca insanların birbirine herhangi bir sinir ifadesinde 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hindistan — Vikipediya](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Hindistan — Vikipediya
+Hindistan iki arxipelaqa malikdir: Lakşadvip, Hindistanın cənub-qərb sahilindən mərcan atollları; və Andaman və Nikobar adaları, Andaman dənizində vulkanik zəncir. Hindistanın iqlimi inadla Himalayın və Tar Səhrasının təsiri altındadır, hər ikisi, hansı ki mussonları sürür.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hindistan'da Eğitim Hakkında Bilmeniz Gereken 8 Madde .](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Hindistan'da Eğitim Hakkında Bilmeniz Gereken 8 Madde .
+Soru cevap şeklinde Hindistan'da eğitim hakkında en çok merak edilenleri anlatmaya çalıştım. Umarım düşünenlere faydalı olur. 1. Eğitim dili nedir? Eğitim dili İngilizce ama Hintçe ve İngilizce birbirine o kadar karışmış ki hocalar genel olarak Hintçe konuşuyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hindistan'ın En Büyük 10 Şehri - 2020 Güncel Bilgi](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Hindistan'ın En Büyük 10 Şehri - 2020 Güncel Bilgi
+Gujarat eyaletindeki bulunan Ahmedabad, 5,5 milyon nüfusa sahiptir. Bu şehir Hindistan'ın bağımsızlık hareketinin başlangıcı olarak bilinir. Ahmedabad, yıl boyunca büyük coşkuyla kutlanan yerel ve ulusal festivallerle de bilinir. 5. Haydarabad
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hindistan (feat. Anekdot) - YouTube](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Hindistan (feat. Anekdot) - YouTube
+Provided to YouTube by DistroKidHindistan (feat. Anekdot) · MetaforMetaforizma℗ Records DKReleased on: Auto-generated by YouTube.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![INDIA -HINDISTAN - YouTube](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## INDIA -HINDISTAN - YouTube
+15/9/2016· dini torenler hic mi bitmez demeyin burasi Hindistan This video is unavailable.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

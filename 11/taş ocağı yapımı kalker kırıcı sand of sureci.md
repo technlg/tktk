@@ -1,0 +1,97 @@
+# taş ocağı yapımı kalker kırıcı sand of sureci
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![[PDF] c(a)esium Ca işaretiyle bilinen atom no:55 ve atom .](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## [PDF] c(a)esium Ca işaretiyle bilinen atom no:55 ve atom .
+C and F bkz. cost and freight c frame hamut,şasi,çerçeve, c frame pivot hamut mihveri,çerçeve ekseni c(a)esium Ca işaretiyle bilinen atom no:55 ve atom ağırlığı: 132.91 olan kimyasal element, kalevi bir maden C. to C. merkezden merkeze C.E.l. vida dişi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Taş ocağının çalışmaları durduruldu! - En Kocaeli](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Taş ocağının çalışmaları durduruldu! - En Kocaeli
+Bakanlık yetkililerin de yaptığı incelemelerin ardından bölgede oluşan heyelan tehlikesi sebebiyle AS Elmaslar'ın işlettiği taş ocağındaki faaliyetlerin durdurulması kararı verildi. Bu karar Vali Yardımcısı Osman Ekşi tarafından konunun muhataplarına gönderildi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Almanca Madencilik [134w7mekp8l7]](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Almanca Madencilik [134w7mekp8l7]
+mermer ocağı yürüyüş, ilerleme yürüme hızı ağ gözü, elek deliği ağ gözü açıklığı, elek açıklığı makine, motor makine ile, mekanize mekanik havalandırma mekanik nakliyat mekanik kazı makine donanımı makine yapımı makine mühendisi makine operatörü
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Taş, kum, çakıl, mıcır](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Taş, kum, çakıl, mıcır
+TAŞ Yüzyıllardan buyana süregelen ve Datça'nın özgün mimarisinin oluşmasına büyük katkı sunmuş olan yöre taşı Mesudiye köyünden çıkartılmaktadır. Datça yarımadasının tek taş ocağı durumundaki ocaktan elde edilen taşın yumuşak oluşu işlenmesini kolaylaştırmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Uzun Söz Tarihe Yakışır | Uzun Söz Tarihe Yakışır ne .](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Uzun Söz Tarihe Yakışır | Uzun Söz Tarihe Yakışır ne .
+(Lupine, Lupin, Lupine): 10-100 cm yüksekliğinde, sık tüylü, bir senelik bitkidir. Yaprakları el şeklinde parçalı, uzun saplı, 5-9 yaprakçıklıdır. Çiçekleri dik salkım durumunda, beyaz veya mavimsi renkli, çiçek taç yaprağı kelebek şeklindedir. Yahudi baklası diye de 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![betonvecimento](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## betonvecimento
+sand kum sand pocket kum cebi sandstone kum taşı sandblast kumlama installation kurma dry mix concrete kuru karışım beton dry-shake kuru serpme kuru serpme yüzey dry process kuru üretim yöntemi plastic consistency kuru-akışkan arasındaki kıvam
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Doğruluk Taşocağı Madencilik Bakır Mayın .](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Yüksek Doğruluk Taşocağı Madencilik Bakır Mayın .
+Yüksek Doğruluk Taşocağı Madencilik Bakır Mayın Pulverizer Kırma Kısmı,Çene Kırıcı,Çekiç Taş Kırıcı, Find Complete Details about Yüksek Doğruluk Taşocağı Madencilik Bakır Mayın Pulverizer Kırma Kısmı,Çene Kırıcı,Çekiç Taş Kırıcı,Yüksek Doğruluk Taşocağı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Rahatsızlığınıza Göre Taşlarınızı İnceleyin | Tassepeti](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Rahatsızlığınıza Göre Taşlarınızı İnceleyin | Tassepeti
+'da bulunan tüm bilgiler yasal olarak tescil ettirilmiş ve 5846 sayılı Fikir ve Sanat Eserleri Kanunu uyarınca koruma altına alınmıştır. Lütfen izinsiz kullanmayın, aksi takdirde ilgili kanunun 71. maddesi uyarınca gerekli yasal işlemler yapılacaktır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Diyarbakır'da Doğal Hayat, Su, İklim, Enerji ve Maden .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Diyarbakır'da Doğal Hayat, Su, İklim, Enerji ve Maden .
+Tamarix scrub, stands of Populus, sand-banks, and barren gravel islands are typical features. Several species of afro-tropical and oriental origin came to the Anatolian region following the course 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Granit Kalker Taş Kırıcı Üreticilerinden ve .](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Yüksek Kaliteli Granit Kalker Taş Kırıcı Üreticilerinden ve .
+Yüksek Kaliteli Granit Kalker Taş Kırıcı Üreticilerini Granit Kalker Taş Kırıcı Tedarikçilerini ve Granit Kalker Taş Kırıcı Ürünleri en iyi fiyatta Alibaba'da bulun. Sevkiyata Hazır Ticaret Fuarı Kişisel Koruyucu Ekipman Hizmetler
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![V. Türkiye Lisansüstü Türkiye Lisansüstü Çalışmalar .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## V. Türkiye Lisansüstü Türkiye Lisansüstü Çalışmalar .
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En İyi Kalite taş kırıcı ocağı makineleri](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## En İyi Kalite taş kırıcı ocağı makineleri
+Alibaba'da en iyi fiyatlarla verimli taş kırıcı ocağı makineleri satın alın. Bunların taş kırıcı ocağı makineleri birden çok sektörde uygulamaları vardır. Sevkiyata Hazır Ticaret Fuarı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En İyi Kalite taş kırıcı Ocak madencilik](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## En İyi Kalite taş kırıcı Ocak madencilik
+Alibaba'da en iyi fiyatlarla verimli taş kırıcı Ocak madencilik satın alın. Bunların taş kırıcı Ocak madencilik birden çok sektörde uygulamaları vardır. Sevkiyata Hazır Ticaret Fuarı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Full text of "Dan Brown Başlangıç"](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Full text of "Dan Brown Başlangıç"
+An icon used to represent a menu that can be toggled by interacting with this icon.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![şifalı taşlar | Değerli Taşlar](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## şifalı taşlar | Değerli Taşlar
+12/04/2019 26/04/2020 MARTI 0 yorum turmalin, turmalin doğal taş, turmalin nedir, turmalin taşı nerede bulunur, turmalin taşı özellikleri, turmalin yararları Turmalin taşı yüzyıllardır takdir görmüş yakut taşı ve zümrüt gibi değerli taşlar kadar ilgi görüp kullanılmıştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Terimleri Sözlüğü - Page 3 - FrmTR](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Madencilik Terimleri Sözlüğü - Page 3 - FrmTR
+27/9/2011· Madencilik Terimleri O O OBRUK, 1) Kireç taşları içinde, bacaya benzeyen 30m ya da daha çok derinlikte, genel olarak altında bir yeraltı mağarası (ini) bulunan tabii kuyu. 2) İçinde su biriken çukur yer, doğal kuyu. 3) İçbükey, konkav. OCAK, 1) Açık (yerüstü 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Bodrumlu Bir Asker: Abdurrahman Nafiz Gürman .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## (PDF) Bodrumlu Bir Asker: Abdurrahman Nafiz Gürman .
+Bodrumlu Bir Asker: Abdurrahman Nafiz Gürman ()/ A Soldier From Bordum: Abdurrahman Nafiz Gurman ()
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![betonvecimento](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## betonvecimento
+Kalker Bileşiminde % 90 'a kadar kalsiyum karbonat bulunan kayaçlara kalker veya çok saf haline kireç taşı denir. Genel olarak kimyasal bileşimleri CaCO3 (en az %70 TS EN 197-1)olan minerallerden oluşur. Bu kristaller halinde kırılgan yapılı bir mineraldir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çimento Üretimi.tr](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Çimento Üretimi.tr
+Taş Ocağı Çimento üretiminin ilk aşaması çimento ham maddelerinin yer kabuğundan çıkarılmasıdır. Çimento üretiminde kullanılan en yaygın ham maddeler kireçtaşı ve kildir. Ham maddelerin ana bileşeni olan kalker ya da kireçtaşı genel olarak açık maden
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Use of waste marble as aggregate in asphalt .](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## (PDF) Use of waste marble as aggregate in asphalt .
+However, a significant amount of natural stone waste produced in the quarries has the potential of being reused as aggregates. Akbulut and Gürer (2006) showed that the marble from quarries can be 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![eti_maden_terim_wozlugu.pdf - Scribd](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## eti_maden_terim_wozlugu.pdf - Scribd
+Scribd is the world's largest social reading and publishing site. A A harfi ile başlayanlar A harfi ile başlayanlar ABATAJ, 1) Tabii konumundaki madenin, kazma, martopikör, —> dinamit, vb. araçlarla yerinden sökülmesi ve taşımaya hazır hale getirilmesi. 2) —> Kazı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) BODRUM YAHUDİ MEZARLIĞI-TARİHÇE VE .](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## (PDF) BODRUM YAHUDİ MEZARLIĞI-TARİHÇE VE .
+BODRUM YAHUDİ MEZARLIĞI-TARİHÇE VE ENVANTER
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Trakya'da taş ocakları yaşamı tehdit ediyor | Kuzey .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Trakya'da taş ocakları yaşamı tehdit ediyor | Kuzey .
+(İleri Haber – 24 Temmuz 2015) Kırklareli'nin en büyük sorunu olan taş ocakları, çevredeki içme suları dahil yöreye yaydığı sağlığı tehdit eden kimyasal miktarı yüksek zehirli sular, bölgeyi ve bölge insanının yaşamını tehdit ediyor. Kırklareli'nin en büyük sorunu olan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KALKER OCAĞI TAŞ KIRMA VE ELEME TESİSİ .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## KALKER OCAĞI TAŞ KIRMA VE ELEME TESİSİ .
+19/10/2015· KALKER OCAĞI TAŞ KIRMA VE ELEME TESİSİ + Dragon Makina 1979 yılından bu yana hizmet kalitesinden ödün vermeden konkasör tesisleri ve taş kırma eleme 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

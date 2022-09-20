@@ -1,0 +1,153 @@
+# nasıl ben dakka bangladeş bir kırıcı makine yapabilir
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![tarihçe - deja nim](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## tarihçe - deja nim
+Timeline: Bu hikaye, Brom Bumblebrim adındaki, Bowling Hill'de yaşayan kendi ırkının diğer bütün üyeleri gibi 'normal' ve hayatını olabildiğince keyifli ve tembel geçiren bir hobbit'in, beklenmedik bir şekilde ne idüğü belirsiz bir şey tarafından ısırılmasıyla başlar.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bangladeş hakkında bilinmesi gerekenler - Son Dakika .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Bangladeş hakkında bilinmesi gerekenler - Son Dakika .
+Bir bakıma muson yağmurlarının ardında bıraktığı cennet de denilebilir. Yüzyıllardır geleneklerini korumayı başarmış halkıyla Bangladeş sizi bekliyor
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Sina Akşin-Kısa Türkiye Tarihi | dilan ece yıldız - .](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## (PDF) Sina Akşin-Kısa Türkiye Tarihi | dilan ece yıldız - .
+Sina Akşin-Kısa Türkiye Tarihi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dakka, BUET yakınındaki oteller](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Dakka, BUET yakınındaki oteller
+Dakka'da, Bangladeş Bankası'na 1,3 km mesafede yer alan Hotel Plaza Inn, şehir manzarası ve teras sunmaktadır. Bu tesiste restoran, 24 saat açık resepsiyon ve oda servisi gibi olanaklar mevcuttur. I liked the room.It was clean and beautiful.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![istihbarat – Sayfa 2 – Stratejik Güvenlik](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## istihbarat – Sayfa 2 – Stratejik Güvenlik
+Bangladeş Dakka Askeri Ataşeliği'nde Askeri Ataşe olarak yurt dışı görevde bulunan yukarıda açık kimlik  yeterince çalışıp çalışmadığı gibi bir sürü tartışma oldu. seçimlerinde büyük bir makine gücüyle çalışan o teşkilat o efsane halinde anlatılan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![eşitsizliğin sonuçları - 1000Kitap](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## eşitsizliğin sonuçları - 1000Kitap
+En yeni eşitsizliğin sonuçları kitapları, yazarları, kitap incelemelerini, kitaplardan alıntıları, yazarlardan sözleri, okurları listeleyebilirsiniz.-- 18. ve 19. yy Osmanlı vergi toplayamıyordu.-- Sanayileşme, makineler ve çalışanlar ithal edilerek sağlanmaya çalışıldı ancak
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Calaméo - AYT Felsefe Planlı Ders Föyü (Öğretmen Kitabı)](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Calaméo - AYT Felsefe Planlı Ders Föyü (Öğretmen Kitabı)
+Publishing platform for digital magazines, interactive publications and online catalogs. Convert documents to beautiful publications and share them worldwide. Title: AYT Felsefe Planlı Ders Föyü (Öğretmen Kitabı), Author: Fatih, Length: 278 pages, Published: 2020
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TBMM Tutanak Müdürlüðü](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## TBMM Tutanak Müdürlüðü
+Öncelikle, dün Bangladeş Dakka'da yıkılan bina altında 145'i aşkın tekstil işçisi hayatını kaybetti,  Ben inanmanızı istiyorum; benim için insanların ırkı, dini, dili, mezhebi önemli değil. Ben bir insanım, kendimi insan kabul ettiğim gibi, karşıdaki herkesi de insan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DÖNEM: 22](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## DÖNEM: 22
+DÖNEM: 22 YASAMA YILI: 4 TÜRKİYE BÜYÜK MİLLET MECLİSİ TUTANAK DERGİSİ CİLT : 122 110 uncu Birleşim 1 Haziran 2006 Perşembe İ Ç İ N D E K İ L E R I.- GEÇEN TUTANAK ÖZETİ II.-GELEN KÂĞITLAR III.- YOKLAMALAR IV.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lucknow, Dhaka City - Restoran Yorumları - Tripadvisor](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Lucknow, Dhaka City - Restoran Yorumları - Tripadvisor
+Lucknow, Dhaka City: Tripadvisor sitesinde 5 üzerinden 4,5 puanla derecelendirilmiş ve Dhaka City bölgesindeki 841 restoran arasında 20. sırada listelenen Lucknow ile ilgili 104 tarafsız yoruma bakın.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İki Katlı Plastik Boru Ekstrüzyon Makinesi, HDPE Boru .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## İki Katlı Plastik Boru Ekstrüzyon Makinesi, HDPE Boru .
+Kalite Plastik Boru Ekstrüzyon makine üreticileri & İhracatçı - satın al İki Katlı Plastik Boru Ekstrüzyon Makinesi, HDPE Boru Ekstrüzyon Hattı Çin'den Üretici. Arkadaşım, biz zaten 12 yıldan fazla sizinle işbirliği yaptık. Şimdi fabrikamda çalışan 30'dan fazla plastik 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tezatların Buluştuğu Bir Ülke Bangladeş](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Tezatların Buluştuğu Bir Ülke Bangladeş
+Bangladeş'in başkenti Dakka'dan bahsediyorum. Şehirde korna sesi hiç kesilmiyor Filin üzerindeki çocuk bizi fark edince fili ile yanımıza geliyor ve fotoğraf çektirmemize müsaade ediyor. Eski zamanlarda Bangladeş'te fil nüfusu çok daha fazla iken artık yok
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Elif Safak - Siyah Sut | Selahattin Eroğlu - .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## (PDF) Elif Safak - Siyah Sut | Selahattin Eroğlu - .
+Elif Safak - Siyah Sut
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Calaméo - Kaldıraç 216. Sayı Temmuz 2019](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Calaméo - Kaldıraç 216. Sayı Temmuz 2019
+Publishing platform for digital magazines, interactive publications and online catalogs. Convert documents to beautiful publications and share them worldwide. Title: Kaldıraç 216. Sayı Temmuz 2019, Author: Kaldıraç Dergi, Length: 130 pages, Published: 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![North End Coffee, Dhaka City - Restoran Yorumları - .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## North End Coffee, Dhaka City - Restoran Yorumları - .
+North End Coffee, Dhaka City: Tripadvisor sitesinde 5 üzerinden 4,5 puanla derecelendirilmiş ve Dhaka City bölgesindeki 842 restoran arasında 13. sırada listelenen North End Coffee ile .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Parayı görmeden önce - 1000Kitap](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Parayı görmeden önce - 1000Kitap
+Ben deniz astronotuyum.Duymadınız belki daha önce ama nasıl ki Ay yüzeyinde astronotlar yürüyebiliyor ben de deniz tabanında öyle yürüyebiliyorum.Annemin hastalığı sebebiyle okul hayatım ve kariyerim hiç bir zaman önceliğim olamadı bu nedenle sevdiğim
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![OAIB MOMENT EXPO-S39 by Orta Anadolu İhracatçı .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## OAIB MOMENT EXPO-S39 by Orta Anadolu İhracatçı .
+Makine ve Aksamları İhracatçıları Birliği Yönetim Kurulu Başkanı BAŞKANDAN ADNAN DALGAKIRAN Teknoloji üreten bir makine sektörü. Teknoloji üretmek, yenilikçilik, günümüzde 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bangladeş'te yaşayan 50'ye yakın - T.C. Dakka .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Bangladeş'te yaşayan 50'ye yakın - T.C. Dakka .
+Bangladeş'te yaşayan 50'ye yakın vatandaşımızla ilk Zoom toplantımızı gerçekleştirdik. #Koronavirüsü ile mücadelede son durum hakkında bilgi verdik, See more of T.C. Dakka Büyükelçiliği / Turkish Embassy in Dhaka on Facebook
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![2019 / 7.Sayı by Mfd Postası - Issuu](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## 2019 / 7.Sayı by Mfd Postası - Issuu
+Bir arkadaşım Bangladeş' te gezerken çok rahatsız olduğu bir şeye tanık olmuş. Dakka' ya gitmek üzere trene binerken, "fotoğraf turu" na çıkmış bir gruba rastlamış. Bir 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Havalandırma, Isıtma, Soğutma, HVAC, Klima, Tes](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Havalandırma, Isıtma, Soğutma, HVAC, Klima, Tes
+Havalandırma, Isıtma, Soğutma, HVAC, Klima alanında sektörün buluşma noktası. İmbat İklimlendirme ve Soğutma Sistemleri, çatı tipi klimalarda dünyada Eurovent sertifikasına sahip 7. firmadır. Eurovent sertifikası için her sene seçilen bir modele akredite bir 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ by Skylife Magazine - Issuu](https://github.com/technlg/images/blob/main/8.jpg)</a>
+##  by Skylife Magazine - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ARABİSTAN - Ankara Yardımeli Derneği](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## ARABİSTAN - Ankara Yardımeli Derneği
+Allah "Ben kainata sığmam ama mü'min bir kulumun kalbine sığarım" buyuruyor. İki sadık dostun üçüncü arkadaşı Allahtır!. Risaletin on üç yıl süren Mekke dönemi Cebel-i .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TBMM Tutanak Müdürlüðü](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## TBMM Tutanak Müdürlüðü
+Bugün yaşadığım bir olayı anlatacağım: Savunma sanayisinde özgün bir silah teknolojisi, silah üretmek üzere makine yapan bir kişi bugün bize müracaat etti arkadaşlar vasıtasıyla, taşıma ruhsatı almak için; stratejik bir ürün üretiyor, bir sürü düşmanı olabilir böyle
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dakka'daki enkazda sağ kalan bulma mücadelesi - BBC .](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Dakka'daki enkazda sağ kalan bulma mücadelesi - BBC .
+Bangladeş'in başkenti Dakka'da büyük Batılı giyim markaları için üretim yapan konfeksiyon atölyelerinin bulunduğu binanın çökmesi sonucu 160'tan fazla işçinin öldüğü olayda 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dayak Atan Anneler ve Çocuk Eğitiminde Cezanın Yeri | .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Dayak Atan Anneler ve Çocuk Eğitiminde Cezanın Yeri | .
+ben nasıl sarılayım ki ablacım ona yakın olduğum zamanlar, hep dayak yediğim zamanlardı.elimde değil ona karşı içimin kırgın, kızgın, öfkeli olmaması..herneyse içim o kadar dolu ki yazdıkça yazasım geliyor.Ama ben Allah'ın izniyle bilinçli bir anne olma
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KİTAP TANITIMI  - Google Groups](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## KİTAP TANITIMI  - Google Groups
+7/9/2008· Bir akşam yemeğinde yakaladı beni, 'Biz bu örtülerden kurtulmak istiyoruz, neden sizin kadınlarınız örtünmek istiyor, çıldırdılar mı?' diye sordu. Havaalanına giderken, örtüsünü bir kenara atmak için nasıl sabırsızlandığını anlattı bana. Uçağa binince 'Normal kadın
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bangladeş'te 10 Binlerce Kişi Fransız Ürünlerini Boykot .](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Bangladeş'te 10 Binlerce Kişi Fransız Ürünlerini Boykot .
+DAKKA (AA) - Bangladeş'te 10 binlerce protestocu, Fransız ürünlerini boykot çağrısıyla başkent Dakka'daki Fransız büyükelçiliğine yürüdü. Dakka'da en 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bangladeş: Fabrika enkazında zamana karşı yarış - BBC .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Bangladeş: Fabrika enkazında zamana karşı yarış - BBC .
+Bangladeş'in başkenti Dakka'da kurtarma ekipleri Çarşamba günü çöken sekiz katlı bir binanın enkazının altında hâlâ canlı oldukları belirlenen dokuz kişiye ulaşmaya çalışıyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bangladeş: Yalnızca Tişörtlerinizin Etiketinde Yazmayan .](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Bangladeş: Yalnızca Tişörtlerinizin Etiketinde Yazmayan .
+Dakka'nın içinde Baridhara denilen konsoloslukların bulunduğu güvenli bir bölgede yaşıyorum, birçok yabancı zaten ya Baridhara bölgesinde ya da Gulshan bölgesinde yaşıyorlar, Gulshan daha merkezi ve orada da konsolosluklar bulunuyor ancak Baridhara'nın
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Remora, Liverpool - Restoran Yorumları - Tripadvisor](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Remora, Liverpool - Restoran Yorumları - Tripadvisor
+Remora, Liverpool: Tripadvisor sitesinde 5 üzerinden 4,5 puanla derecelendirilmiş ve Liverpool bölgesindeki 1.875 restoran arasında 73. sırada listelenen Remora ile ilgili 840 tarafsız yoruma bakın.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BANGLADEŞ – ANASAYFA](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## BANGLADEŞ – ANASAYFA
+BANGLADEŞ. Dhaka (Dakka) sürekli puslu ve nemli havaya sahip, baharatımsı kokan, egzotik ülkenin fantastik başkenti! Bangladeş, Hindistan'ın doğusunda bulunan ve nüfusunun büyük çoğunluğunun Müslüman olduğu bir Asya ülkesi. Nüfusun yarıdan fazlası Müslüman, aynı zamanda Hindu ve Budistler nüfusun %30unu oluşturuyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Rep. of Turkey Ministry of Foreign Affairs](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Rep. of Turkey Ministry of Foreign Affairs
+Information about Turkey, news from the country, as well as documentation on the foreign policy of Turkey.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Cynthia Cockburn ile Söyleşi (II): İktidar karşısında .](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## (PDF) Cynthia Cockburn ile Söyleşi (II): İktidar karşısında .
+Cynthia Cockburn ile Söyleşi (II): İktidar karşısında bütünsel bir feminist mücadeleye doğru (Cemile Gizem Dinçer ile birlikte) Feminist Politika Sayı 23, 2014 Ozlem Celik
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Artı-Değerin Kaynağı-5.Bölüm | Online Politik Gazete](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Artı-Değerin Kaynağı-5.Bölüm | Online Politik Gazete
+12 Rana Plaza (Bangladeş-Dakka) yıkılması sonucu ölen 1138 işçinin ortalama aylığı 38 ABD doları kadardı. İşçilerin "zincirlerinden başka kaybedecekleri başka şeyleri varolduğunu yazanların matematik bildiklerini, ama işçi sınıfına yabancılaştıkları sonucuna
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bangladeş-Kalabalık Görmek İsteyen Buyursun | Vizesiz .](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Bangladeş-Kalabalık Görmek İsteyen Buyursun | Vizesiz .
+7/6/2015· Bangladeş'in başkenti Dakka'ya Türkiye'den direkt uçuşlar mevcut. İstanbul'dan bindiğiniz takdirde 7 saat 30 dakika sonra ülkeye varabiliyorsunuz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![eşitsizliğin sonuçları yorumları ve incelemeleri](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## eşitsizliğin sonuçları yorumları ve incelemeleri
+"Biri, bir erkeğe ya da mala-mülke yönelik bir suç işlerse, herkes onu kınar ve öfkesini suçluya yöneltir. Biri, bir hayvanı döver ya da ona zarar verirse, insanlar öfkelenip tepki gösterirler. Ama biri, bir kadına karşı suç işlerse, ona tecavüz eder, sahip olduğu her şeyi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Türkiye - Asya Pasifik İş Konseyleri - DEİK | Dış .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Türkiye - Asya Pasifik İş Konseyleri - DEİK | Dış .
+TÜRKİYE- BANGLADEŞ İŞ KONSEYİ DAKKA TEMASLARI, 12-16 ŞUBAT 2018 DEİK/Türkiye- Bangladeş İş Konseyi, 12-16 Şubat 2018 tarihleri arasında Bangladeş'in başkenti Dakka'ya hayet ziyaretlerini gerçekleştirdi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![FETVALAR MEVDUDİ (1) | OPENMAKTABA](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## FETVALAR MEVDUDİ (1) | OPENMAKTABA
+FETVALAR MEVDUDİ (1) Sunuş Yaşamak, her canlı için karşılaşılan problemleri aşmak demektir. Düşünen, akıl ve şuur sahibi, iradeli ve özgür bir varlık olarak insan için de hayat, önüne çıkan mesele leri kavramak, tanımlamak ve çözüme kavuşturmaktan ibarettir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

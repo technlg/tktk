@@ -1,0 +1,137 @@
+# cimento sanayii bakım kıyaslama
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cengiz GÖÇER – ÇEİS](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Cengiz GÖÇER – ÇEİS
+GÖÇER, yılları arasında Adana Çimento Sanayi T.A.Ş.'de Plan Proje ve Bakım Onarım İkmal Müdürlükleri yapmış, 1995 yılında ise aynı fabrikanın Genel Müdür Yardımcılığı'na terfi etmiştir. tarihlerinde Ünye Çimento Sanayii ve Ticaret A.Ş
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ERBAKAN HOCA VE MİLLİ SANAYİ – Dr. İlhami PEKTAŞ | .](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## ERBAKAN HOCA VE MİLLİ SANAYİ – Dr. İlhami PEKTAŞ | .
+Necmettin Erbakan, ilk defa 1956 yılında Gümüş Motoru kurarak ülkemize hizmete başladı. Daha sonra 1974, 1975, 1976 ve 1977 yıllarında koalisyon hükümetlerinde yer aldı. İşte Bütün Mesele, Türkiye'nin şeftali yerine, motor üretmek istemesiydi. Erbakan hoca 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yusuf Ziya BEKİROĞLU – ÇEİS](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Yusuf Ziya BEKİROĞLU – ÇEİS
+ yılında National Cement Company (N.C.C.) Mısır'da Koruyucu Bakım Şefi, yılları arasında ise Çimento Mühendislik ve Müşavirlik A.Ş.'de Proje Müdürü olarak çalışmıştır. yılları arasında Kireç ve Tuğla Sanayi A.Ş.'de Fabrika Müdürü 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Has Blower | Blower Servis & Bakım | Blower Yedek Parça .](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Has Blower | Blower Servis & Bakım | Blower Yedek Parça .
+Has Blower, Endüstriyel Hava Kompresörlerinin servis & bakım onarımı, yedek parça temini ile her türlü teknik servis hizmeti konusunda, deneyimli uzman kadrosuyla hızlı, güvenilir ve çözüm odaklı etkin servisiyle Türkiye'nin her bölgesi için hizmet vermektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![T.C. Resmî Gazete](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## T.C. Resmî Gazete
+T.C.. Resmî Gazete Kuruluş Tarihi: (7 Teşrinievvel 1336)-7 Ekim 1920 Yönetim ve Yaz İşleri İçin Başbakanlık Neşriyat 2 Nisan 1983 Daire Başkanlığına Sayı: 18006 CUMARTESİ başvurulur YÜRÜTME VE İDARE BÖLÜMÜ Bakanlar Kurulu Kararı Karar Sayısı : 83
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Osman Mısırlı | Kariyer](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Osman Mısırlı | Kariyer
+Osman Mısırlı adlı kullanıcının Kariyer'teki özgeçmişini görüntüleyin. Osman Mısırlı gibi Kariyer özgeçmişinle yer alıp bir adım önde olmak istersen özgeçmiş oluşturman yeterli.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teknik Bilgiler - Batıçim](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Teknik Bilgiler - Batıçim
+Portland Çimentosu klinkerinin bir miktar alçı taşı ve çimento tipine bağlı olarak uygun oranda katkı maddeleri ile birlikte öğütülmesi sonucu elde edilen malzeme çimentodur. 1966 yılında, %100 Türk sermayesi ile kurulan Batı Anadolu Çimento Sanayii A.Ş., bugün 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dayıoğlu Petrol](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Dayıoğlu Petrol
+Biz Kimiz, Dayıoğlu Petrol Ürünleri San.Dağ.Paz.Tic.Ltd.Şti 1990 yılında sektördeki saygın geçmişi ile kaliteyi ve müşteri memnuniyetini hedefleyerek, endüstriyel ve otomotiv yağları konularında İstanbul Anadolu yakasında Petrol Ofisi Yetkili Distribütörü olarak 1500 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ankara Makina Fabrikası](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Ankara Makina Fabrikası
+Ankara Makina Fabrikası Referans Listemiz 1- YURTDIŞINDA 1.1-Horezm Şeker Fabrikası - Özbekistan 1.2-Yatık Küspe Presi (Hamedan Şeker Fabrikası - İran) 2- ŞEKER SANAYİİ İÇİN 2.1-Komple Şeker Fabrikaları (Afyon 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CORE](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## CORE
+Abstract Bu makalede; iş mükemmelliği modeli, en iyi uygulamalar ve rekabet gücü arasındaki ilişki Türkiye'de elektronik, çimento, otomotiv ve beyaz eşya yan sanayii sektörlerinde faaliyet gösteren 82 firmayı kapsayan bir dizi sektörel kıyaslama çalısmasından
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![T.C. Resmi Gazete](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## T.C. Resmi Gazete
+çelik sanayii, madensel eşya yapımı, makina yapımı, elektrik makinaları, cihazları, araç ve gereçlerinin (de  bakım, onarım ve benzeri İşleri 34.35,36. 37,38.39 Yürütme ve Idare Bölümü Sayfa : 4 7 2 8 2 9 2 10 2 11 6 12 3 13 3 14 3 15 4 6 Aralık 1933 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Afacanlar.TAAH.İNŞ.MALZ.MAH.TİC.LTD.ŞTİ.](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Afacanlar.TAAH.İNŞ.MALZ.MAH.TİC.LTD.ŞTİ.
+Afacanlar Nakliyat Web Sitesine Hoşgeldiniz. 14/04/2008 tarihinde Bolu, Çaydurt'da kurulan firmamız, 2014 yılı itibariyle 2 lojistik çalışanı, 35 araç şöförü, 10 adet Bolu Çimento Kdz.Ereğli tesisi bakım onarım elemanı, 5 adet iş makinası operatörü, 2 adet inşaat 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bursa Çimento Fabrikası A.Ş. | LinkedIn](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Bursa Çimento Fabrikası A.Ş. | LinkedIn
+Bursa Çimento Fabrikası A.Ş. Glass, Ceramics & Concrete Bursa, Kestel 640 followers Bu sayfa Bursa Çimento Fabrikası A.Ş. 'ye ait resmi Linkedin sayfasıdır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İple Erişim Referanslar - Yüksek İşler](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## İple Erişim Referanslar - Yüksek İşler
+Abdi İbrahim Binası LED Bakım Hizmeti FSM Köprüsü LED Aydınlatma Sistemleri Bakım Onarım Çalışmaları Galatasaray Forma Lansmanı - İstanbul 2011 TT Arena Stadına Dev Forma Asımı Trabzonspor Forma Lansmanı - Trabzon 2011 Trabzon Kalesine Dev
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yusuf Ziya BEKİROĞLU – ÇEİS](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Yusuf Ziya BEKİROĞLU – ÇEİS
+Bakım ve Geliştirme Müdürü/Teknik Müdürü olarak çalışmıştır. 1993 yılından itibaren Denizli Çimento San. T.A.Ş.'de Genel Müdür Teknik Yardımcılığı ve yılları arasında Fabrika Direktörlüğü görevini yürüten BEKİROĞLU'nun ayrıca, Denizli Genel 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BATISÖKE SÖKE ÇİMENTO SANAYİİ T.A.Ş. - KAP](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## BATISÖKE SÖKE ÇİMENTO SANAYİİ T.A.Ş. - KAP
+Bakım Müdür ü ERHAN BİÇER Bakım Müdürü Yatırım Müdürü ALİ SERDAR KOÇ Üretim Müdürü CUMHUR KÜÇÜK  BATICİM BATI ANADOLU CİMENTO SANAYİİ A Ş 298.494.052,78 74,62 74,62 DİĞER 101.505.947,22 25,38 25,38 TOPLAM 400.000.000 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kobatek Çimento Sanayi Uygulamaları by ozgur cetinkaya .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Kobatek Çimento Sanayi Uygulamaları by ozgur cetinkaya .
+Koruyucu bakım kaynağında çimento sanayi uygulamalarını anlatan broşür Issuu company logo
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Has Blower | Blower Servis & Bakım | Blower Yedek Parça | .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Has Blower | Blower Servis & Bakım | Blower Yedek Parça | .
+Has Blower, Endüstriyel Hava Kompresörlerinin servis & bakım onarımı, yedek parça temini ile her türlü teknik servis hizmeti konusunda, deneyimli uzman kadrosuyla hızlı, güvenilir ve çözüm odaklı etkin servisiyle Türkiye'nin her bölgesi için hizmet vermektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ADANA ÇİMENTO ENTEGRE RAPORU 2019](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## ADANA ÇİMENTO ENTEGRE RAPORU 2019
+ADANA ÇİMENTO 2019 ENTEGRE RAPORU Rapor Hakkında ADANA ÇİMENTO SANAYİİ TÜRK A.Ş. (Adana Çimento), 1 Ocak 2019 - 31 Aralık 2019 döneminin tüm lokasyon ve faaliyetlerini kapsayan, üçüncü Entegre Raporu'nu siz paydaşlarımızın kullanımına
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Aşkale Çimento](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Aşkale Çimento
+Aşkale Çimento Sanayii T.A.Ş. | Kurumsal, Çimento Fabrikaları, Hazır Beton Tesisleri, Ürünler, Yönetim Sistemleri, Yatırımcı İlişkileri. TLF:0(442) 415 10 54 TİREBOLU HAZIR BETON Tirebolu Hazır Beton İşletmesi, Giresun Tirebolu ilçesine bağlı Gölağzı mevkii Düzköy köyünde 14.000 m² .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![T.C. Sanayi ve Teknoloji Bakanlığı](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## T.C. Sanayi ve Teknoloji Bakanlığı
+Milli Teknoloji, Güçlü Sanayi, T.C. Sanayi ve Teknoloji Bakanlığı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sert Dolgu Kaynak Çözümleri: Koruyucu ve Tamir & .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Sert Dolgu Kaynak Çözümleri: Koruyucu ve Tamir & .
+Panzercrom ®, toplam 7500 m2 alan üzerine kurulu iki fabrkası, 30 ton ağırlığa kadar kaldırma kapasitesi ile 10 adet tavan vinci, 32 adet PLC kontrollü kaynak kaplama ünitleri, 8 Eksenli CNC Kaynak Robotu, 50 ton parça çevirme ve 15 tona kadar tilting kapasitesi ile muhtelif endüstrilere tamir,bakım ve koruyucu bakım kaynak kaplama hizmeti vermektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇİMENTO AKÇANSA 32,5 : : .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## ÇİMENTO AKÇANSA 32,5 : : .
+Normal erken dayanımlı katkılı çimentodur. İçeriğinde %36 - %55 arasında mineral katkı bulunur. Yüksek mineral katkı içeren çevreci bir üründür. 28 Günlük basınç dayanımı 32,5 MPa – 52,5 MPa arasındadır. Tüm bakım, onarım, tamirat ve beton işlerinde
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Anasayfa](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Anasayfa
+Mardin Çimento 2017 yılı bayi gezisini 24 - 28 Mart 2017 tarihleri arasında, Almanya'nın Berlin ve Çekya'nın Prag şehirlerine düzenlemiştir. Geziye, Güney Satış Direktörü Hıncal Nazsız, Mardin Çimento Satış Müdürü Mehmet Selim Aslan, bayi ve müşterilerimiz eşli
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çimento Sanayi – Emsa Makine](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Çimento Sanayi – Emsa Makine
+Demir – Çelik Sanayii Gemi Sanayi Çimento Sanayi Demir – Çelik Sanayinde çelikhane, dökümhane ve haddehane kısımlarına ait imalatlarımızla istenilen ürünlere yönelik yenileme, bakım ve onarım işlemlerini yaparken; en iyi dizayn, en kaliteli malzeme ve en 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BATIÇİM BATI ANADOLU ÇİMENTO SANAYİİ A.Ş. - KAP](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## BATIÇİM BATI ANADOLU ÇİMENTO SANAYİİ A.Ş. - KAP
+Çimento-Ankara Caddesi No:335 Bornova İZMİR Tel: 44 00 Faks: 44 44 Agrega Tesisi-Ankara Caddesi Boğazkesen Mevkii Bornova İZMİR Tel: 44 33 Faks: 01 46 Batısöke Söke Çimento San.T.A.Ş.- Görevli Üye, İcra Kurulu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ankara Makina Fabrikası](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Ankara Makina Fabrikası
+Ankara Makina Fabrikası Üretim Konuları (Detayları görmek için üretim konuları üzerine tıklayınız) Şeker Sanayii İçin Yapılan Üretimler Çimento Sanayii İçin Yapılan Üretimler Endüstriyel Buhar Kazanları İçin Yapılan Üretimler Maden Sanayii İçin Yapılan Üretimler
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Değerlendirme ve ölçülendirme | SKF](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Değerlendirme ve ölçülendirme | SKF
+Değerlendirme ve kıyaslama, varlık yönetimi programınızdaki olası iyileştirme alanlarını belirlemenizi sağlayan bağımsız ve kapsamlı bir analizdir. Mekanik bakım ve varlık bakımı görevlerini planlayabilecek ve tam olarak hangi kaynaklara sahip olmanız gerektiğini bileceksiniz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sitede Ara - KalDer](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Sitede Ara - KalDer
+Toplam Üretken Bakım (TPM) Sisteminin Oluşturulması: Kuruluşta, ekipman, makine ve teçhizat verimliliğini ve üretim kayıplarını önlemek amacıyla TPM çalışmaları yürütülmüştür. Eğitimlerle desteklenen rehberlik çalışmasında 5S uygulamaları ile Planlı Bakım ve Otonom Bakım alt yapıları oluşturulması ve hayata geçirilesi için rehberlik yapılmıştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Özel Çözümler - Sesa Teknik - Enerji Çimento Metalürji](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Özel Çözümler - Sesa Teknik - Enerji Çimento Metalürji
+Sanayii Tesislerimiz İçin Özel Çözümler. SESA TEKNİK, Termik Santraller, Demir-Çelik Fabrikaları, Çimento Sanayii, Kimya Fabrikaları ve Madencilik sektörlerinde; Emniyet Valflerinin ve diğer Valflerin hat üzerinde Bakım-Onarımı ve revizyonlarında, Pnömatik 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BTCIM BATIÇİM BATI ANADOLU ÇİMENTO .](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## BTCIM BATIÇİM BATI ANADOLU ÇİMENTO .
+BTCIM BATIÇİM BATI ANADOLU ÇİMENTO SANAYİİ A.Ş.( Şirket Genel Bilgi Formu piyasa haberini ve diğer piyasa haberlerini takip edin. Borsagundem'da yer alan bilgi, yorum ve tavsiyeleri yatırım danışmanlığı kapsamında değildir. Yatırım danışmanlığı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teknik Bilgiler - Batıçim](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Teknik Bilgiler - Batıçim
+1966 yılında, %100 Türk sermayesi ile kurulan Batı Anadolu Çimento Sanayii A.Ş., bugün Türk Çimento Endüstrisi'nin güçlü işletmelerini çatısı altında bulunduran .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Anasayfa](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Anasayfa
+Mardin Çimento Sanayii ve Ticaret A.Ş.'nin hisseleri 17 Temmuz 1987'den itibaren MRDIN sembolü ile BİST'te işlem görmektedir. Faliyet Raporları Mali Tablolar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Alper Danacı - Makina Bakım Mühendisi - Cimpor Yibitaş .](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Alper Danacı - Makina Bakım Mühendisi - Cimpor Yibitaş .
+Berufserfahrung, Kontaktdaten, Portfolio und weitere Infos: Erfahr mehr – oder kontaktier Alper Danacı direkt bei XING. Angestellt, Makina Bakım Mühendisi, Cimpor Yibitaş Çimento Sanayii A.Ş.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

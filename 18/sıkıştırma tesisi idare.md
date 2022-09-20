@@ -1,0 +1,133 @@
+# sıkıştırma tesisi idare
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SGK ASGARİ işçilik oranları değişti | İsa Karakaş](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## SGK ASGARİ işçilik oranları değişti | İsa Karakaş
+Elektrik tesisi idare malı malzemelerin montaj ı 14 23-Endeks okuma (bilgisayarla) 15 24-Endeks okuma işi(klasik) 30 25-Enerji kesme, açma, ihbar bırakma 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![AKEN İNŞAAT ÇİZGİ İŞLERİ](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## AKEN İNŞAAT ÇİZGİ İŞLERİ
+Döşemealtı İlçesi Kevşirler-Aşağıoba Yolunun İdare Malı Asfalt İle Kaplama Yapılması Dsİ 5 BÖLGE ASFALT YAPIM  TESİSİ YAPIM İŞİ ÇANKAYA BELEDİYES İ ÇANKAYA BELEDİYESİ ESER PARK DÜZENLEME İNŞAATI ÇANKAYA BELEDİYESİ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) KARAYOLU TEKNİK ŞARTNAMESİ | dursun dündar - .](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## (PDF) KARAYOLU TEKNİK ŞARTNAMESİ | dursun dündar - .
+KARAYOLU TEKNİK ŞARTNAMESİ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Katı Atıklar – Çevreci Mühendisler](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Katı Atıklar – Çevreci Mühendisler
+İşleme tesisi: Geri kazanma tesisi, kompost veya yakma tesisi gibi katı atıklardan tekrar  Katı atıklara uygun bertaraf yöntemlerinin seçimi, uygulanan planlama ve idare metotlarına bağlıdır. Bunlar arasında ekonomi, mühendislik, arazi kullanımı, çevre Katı atık 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hava Ayrıştırma Tesisi Satış - Kalite Hava Ayrıştırma Tesisi .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Hava Ayrıştırma Tesisi Satış - Kalite Hava Ayrıştırma Tesisi .
+Hava Ayrıştırma Tesisi Nm3 / h Soğutucu akışkan Metalurji Sanayi GazContact Now. Hava ayırma Bitki KDON-500/2000 (65Y) Nm 3 / h Hava ayırma birimine Özellikler: Hava Ayrıştırma Tesisi KDON 500 ~ 750 Nm3 / h (GOX) Seri MODEL İÇİNDEKİLER KDON-650/650 / 2000 KDON-650 KDON-600/600 / 1300 KDON Read More.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mevzuat Bilgi Sistemi](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Mevzuat Bilgi Sistemi
+Elektrik tesisi idare malı malzemelerin montajı Akım gözlem istasyonu yapılması (inşaat işleri, eşik yapımı vb. betonarme veya çelik konstrüksiüyon imalatlar + elektrik ve tesisat scada vb. ) Güneş enerjisi ile çalışan içme suyu sistemi Kanalizasyon borularının
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![YİTDB BİRİM FİYAT TARİFLERİ](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## YİTDB BİRİM FİYAT TARİFLERİ
+ODTÜ YÜKSEL PROJE ANFİSİ ÇEVRE DÜZENLEME İŞİ'NE AİT İNŞAAT BİRİM POZ VE TARİFLERİ SIRA NO İŞ GRUBUNUN ADI Birimi İNŞ.001 Ø 8- Ø 12 mm nervürlü beton çelik çubuğu, çubukların kesilmesi, bükülmesi ve yerine konulması TON İNŞ.002 Ø 14- Ø 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">!["Soruşturma İzni" verilmemesine kararına..,](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## "Soruşturma İzni" verilmemesine kararına..,
+Maddesi gereğince, söz konusu Asfalt Plent Tesisi projesine Valiliğimizce 29.04.2016 tarih ve E. sayılı Çevre Etki Değerlendirmesi Gerekli Değildir kararı verilmiştir." Bu ifadede yer alan Asfalt Plent Tesisi Projesine ÇED Kararı verilmiştir denilmekte.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![IH - List](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## IH - List
+Bu sitede yer alan haberler, üyelerimize bilgi verme amaçlı olup, resmi belge niteliği taşımaz. Bu sitede çıkan hiç bir bilgi kısmen dahi olsa herhangi bir formda kopya edilemez, çoğaltılamaz, İnternet'te yayımlanamaz. Aksi taktirde, İhale Haber Bilişim Ajansı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![T.C. Resmî Gazete](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## T.C. Resmî Gazete
+T.C. Resmî Gazete Kuruluş Tarihi: (7 Teşrinievvel 1336)-7 Ekim 1920 Yönetim ve Yazı İşleri İçin Başbakanlık Neşriyat Daire Başkanlığına başvurulur 12 Aralık 1982 PAZAR Sayı: 17886 YÜRÜTME VE ÎDARE BÖLÜMÜ Bakanlar Kurulu Kararı Karar Sayısı: 8/6621
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ATIKLARIN DÜZENLİ DEPOLANMASINA DAİR .](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## ATIKLARIN DÜZENLİ DEPOLANMASINA DAİR .
+b) II. sınıf düzenli depolama tesisi: K ≤ 1,0 x 10-9 m/sn ve en az 1 m kalınlığa sahip kil veya kil grubu geçirimsiz tabaka, c) III. sınıf düzenli depolama tesisi: K ≤ 1,0 x 10-7 m/sn ve en az 1 m kalınlığa sahip kil veya kil grubu geçirimsiz tabaka.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Şantiye Şefleri Hakkında Yönetmelik - Hakediş](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Şantiye Şefleri Hakkında Yönetmelik - Hakediş
+c) İlgili idare: Yapı ruhsatı ve yapı kullanma izin belgesi verme yetkisine sahip idareleri, ç) Kanun: 3/5/1985 tarihli ve 3194 sayılı İmar Kanununu, d) Müdürlük: Çevre ve Şehircilik İl Müdürlüğünü, e) Şantiye şefi: Konusuna ve niteliğine göre yapım işlerini yapı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Zemin sıkıştırma - YouTube](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Zemin sıkıştırma - YouTube
+26/6/2020· Silindir çalişması @inşatmühendisi #yapı #santiye #zemin # beton.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Atıksu Toplama ve Uzaklaştırma Sistemleri Hakkında .](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Atıksu Toplama ve Uzaklaştırma Sistemleri Hakkında .
+Atıksu Toplama ve Uzaklaştırma 06 Ocak 2017 Tarihli Resmi Gazete Sayı: 29940 Çevre ve Şehircilik Bakanlığından: BİRİNCİ BÖLÜM Amaç, Kapsam, Dayanak ve Tanımlar Amaç ve kapsam MADDE 1 – (1) Bu Yönetmeliğin amacı; atıksu toplama ve uzaklaştırma sistemlerinin planlanması, tasarımı ve projelendirilmesi, yapımı ve işletilmesine ilişkin usul ve esasları düzenlemektir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![hakkındaki iddialarına ilişkin BİLGİ NOTU](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## hakkındaki iddialarına ilişkin BİLGİ NOTU
+tesisi amacıyla idareye başvurmuştur. İdare, ﬁolası risk faktörlerinin alınan tedbirlerle giderilip giderilmediğinin ve çevre tedbirlerinin  tabi tutulmuş, içerdiği sert ve tane boyutu büyük malzemelerden temizlenmiş ve sıkıştırma testlerinden geçirildikten sonra 1103 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ARTIRMA, EKSİLTME VE İHALE İLÂNLARI](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## ARTIRMA, EKSİLTME VE İHALE İLÂNLARI
+Mevcut serme, sıkıştırma işini yürüten firmanın sözleşmesinin 30.09.2019 tarihinden önce feshi, tasfiyesi veya iptali ve herhangi bir sebeple mevcut sözleşme hükümlerinin devamının mümkün olmaması durumunda Yüklenici çöp serme-sıkıştırma-örtme işini İdare'nin
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Katma Değer Vergisi Sirküleri / 60](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Katma Değer Vergisi Sirküleri / 60
+Bu tür hizmetler, alt işverenlerden temin edilen elemanların, hizmeti alan işletmenin bilfiil sevk, idare ve kontrolü altında çalıştırılabilmesinin mümkün bulunduğu durumlarda tevkifat kapsamına girmektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ARTIRMA, EKSİLTME VE İHALE İLÂNLARI](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## ARTIRMA, EKSİLTME VE İHALE İLÂNLARI
+c) Tesisi en az 1 yıldır işletmiş ve/veya işletiyor olduğunu belgeleyen ilgili belediyeden yazı. 1.13.2. İstekli günlük en az 500 Ton Belediyeye ait evsel atığın depolandığı tek bir sahada yatay ve dikey borulama sistemleri ile enerji üretmiş olduğunu gösteren ilgili belediyeden alınmış belgeyi ihale aşamasında İdare'ye sunacaktır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PDF'yi online sıkıştır - Sejda](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## PDF'yi online sıkıştır - Sejda
+PDF'yi Sıkıştır. 'Sıkıştır' düğmesine tıklayın ve ardından sıkıştırılmış PDF'nizi 'İndir'in. Ya da gelişmiş ayarlar için 'Diğer seçenekler' düğmesine tıklayın. Sıkıştırma algoritması aşağıdakileri yapar:
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İNŞAAT İŞLERİ İMALAT POZ TARİFLERİ ve TEKNİK ŞARTNAMESİ](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## İNŞAAT İŞLERİ İMALAT POZ TARİFLERİ ve TEKNİK ŞARTNAMESİ
+• İdare tarafından uygun bulunan proje kapsamında kullanılacak tüm malzemeler TSE veya ISO belgesine sahip olacaktır.  15.125.1002- Çakıl temin edilerek, el ile serme, sulama ve sıkıştırma yapılması Çakılın temin edilmesi, alana dökülmesi, el ile sulanması 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MEZİTLİ II](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## MEZİTLİ II
+MEZİTLİ BELEDİYESİ MEZİTLİ II.ETAP (MEZİTLİ PLANLAMA BÖLGESİ) 1/1000 ÖLÇEKLİ İLAVE VE REVİZYON UYGULAMA İMAR PLANI 3 Resim 2. 1/100.000 Ölçekli İl Çevre Düzeni Planı Revizyonu Daha sonra 1/100.000 Ölçekli İl Çevre Düzeni Planı Mersin
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sulama Tesislerinde Sanat Yapıları Notları](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Sulama Tesislerinde Sanat Yapıları Notları
+Dolgu işlemi ve sıkıştırma borunun her iki tarafında eşit olarak yapılmalıdır. Dolgu sırasında boru yerinden oynatılmayacak ve ek yerleri zarar görmeyecektir. Boru tümüyle gömüldükten sonra en az 30 cm daha optimum rutubete getirilmiş dolgu malzemesi .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SSK İşveren: SGK İşveren Sistemi, E bildirge V2, Bağkur](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## SSK İşveren: SGK İşveren Sistemi, E bildirge V2, Bağkur
+Katı atık depolama tesisi (her şey dâhil) Katı atık entegre bertaraf tesisi (komple ayrıştırma, enerji üretim vs.) Katı atıkların ayrıştırma tesisi inşaatı Kutu profillerle kapı, pencere yapımı Lahit inşaatı, kapak açma, toprak mezar kazısı, cenaze gömü ve mezar nakil
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MEZİTLİ II](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## MEZİTLİ II
+Dinamik sıkıştırma (kompaksiyon) Vibroflotasyon Sıkıştırma enjeksiyonu Taş kolonları ve sıkıştırma kazıkları Drenaj teknikleri 3.2. Önlemli Alan (Öa5.1) (Önlem Alınabilecek Nitelikte Şişme-Oturma, Taşıma Gücü Vb. Açısından Sorunlu Alanlar)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Katma Değer Vergisi Sirküleri / 60](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Katma Değer Vergisi Sirküleri / 60
+Katma Değer Vergisi Sirküleri / 60 T.C. MALİYE BAKANLIĞI Gelir İdaresi Başkanlığı Konusu : Tarihi : 8/8/2011 Sayısı : KDVK-60/2011-1 3065 sayılı Katma Değer .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İÇİNDEKİLER](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## İÇİNDEKİLER
+Yüklenici idarenin talep ettiği hallerde malzemelerden numuneler üzerinde idare tarafından talep edilen tüm deneyleri bedelsiz olarak  iksa, 25 metre dışındaki taşıma, dolgunun sulama ve sıkıştırma bedelleri dâhil değildir. 2)Derinlik zammı ödenmez. Sıra No 10 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Küçükçekmece Sınırları Dahilinde Kullanılmak Üzere Asfalt .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Küçükçekmece Sınırları Dahilinde Kullanılmak Üzere Asfalt .
+Yeni Adresimiz ihalerapor ile yayındayız, Çağrı Merkezi: 0850 800 13 93 Küçükçekmece Sınırları Dahilinde Kullanılmak Üzere Asfalt Temini, Nakli ve Serme Sıkıştırma Yapım İşi ihalesi detaylı bilgiler, idari ve teknik şartnameler
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![T.C. BELKA ANKARA KATI ATIKLARI AYIKLAMA ANKARA NAKLİYAT .](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## T.C. BELKA ANKARA KATI ATIKLARI AYIKLAMA ANKARA NAKLİYAT .
+İdare onayı ile değişimi yapılan araçlara taşıt takip sistemi kurulacaktır. Kurulumu yapılan sistemde  açılıp kapanabilir sıkıştırma özelliği olmayan en az 70 (yetmiş) metreküplük evsel atık taşıyacak kapasitede, Evsel Katı atıkların semitreylere
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sıkıştırma - YouTube](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Sıkıştırma - YouTube
+About Press Copyright Contact us Creators Advertise Developers Terms Privacy Policy & Safety How YouTube works Test new features
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İhaleciler - Sulama ihaleleri](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## İhaleciler - Sulama ihaleleri
+Tarımsal Sulama Tesisi İnşaatı Yaptırılacaktır İptal edildi 2021/141 Ekap Açık ihale usulü İdare adı:  Yayın tarihi: 29 Mart 2021 Pazartesi Teklif tarihi: 16 Nisan 2021 Cuma (10:00 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vacuum Conveying System - Vakumlu Taşıma Sistemleri - .](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Vacuum Conveying System - Vakumlu Taşıma Sistemleri - .
+Teknovacuum ürün transferleri için yüksek kaliteli yüksek performanslı pnömatik vakumlu taşıma sistemleri için makinalar üretir. Teknovacuum manufactures machines for high quality high performance pneumatic vacuum conveying system for bulk material transfers.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Karayolu Staj Defteri - Yusuf Yıldız | Yusuf Yıldız - .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## (PDF) Karayolu Staj Defteri - Yusuf Yıldız | Yusuf Yıldız - .
+Sıkıştırma işlemi sırasında sıcaklık nedeniyle malzemenin nem içeriğinin bozulması durumunda sulama yapılmaktadır. Sıkıştırdıktan sonra alttemel tabakasının kalınlığı projede belirtilen kalınlığın %10'nun daha fazla olursa malzeme yüzeyi kabartılarak, malzeme çıkarıp, .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KMS Danışmanlık](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## KMS Danışmanlık
+Elektrik tesisi idare malı malzemelerin montaj ı 20 26 Elektrik sıra çağrı sistemi alımı ve kurulumu (bankalar, hastaneler v.b.) 6 27 Endeks okuma (bilgisayarla 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

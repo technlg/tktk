@@ -1,0 +1,41 @@
+# baharat ppt kriyojenik öğutme sisteminin acıklaması
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PowerPoint Presentation - Ankara Üniversitesi](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## PowerPoint Presentation - Ankara Üniversitesi
+PowerPoint Presentation. MSÖ405. ÖZEL EĞİTİM. DOÇ. DR. HATİCE BAKKALOĞLU. DERSİN İÇERİĞİ ÜNİTE I:ÖZEL EĞİTİM ÜNİTE II:ÖZEL EĞİTİMDE DEĞERLENDİRME ÜNİTE III:BEP HAZIRLAMA ve ÖĞRETİMİN BİREYSELLEŞTİRİLMESİ ÜNİTE IV:KAYNAŞTIRMA ve DESTEK ÖZEL EĞİTİM HİZMETLERİ ÜNİTE V:AİLE EĞİTİMİ ÜNİTE VI:ZİHİNSEL YETERSİZLİĞİ OLAN .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PowerPoint Sunusu - Karadeniz Teknik Üniversitesi](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## PowerPoint Sunusu - Karadeniz Teknik Üniversitesi
+ÎKÍNCÎ DÜNYA SAVA¶ YILLARINDA TtjRK POLÍTÍKASI alta Konferans'mda alman en önemli kararlardan biri de, 1945 Yllmm Nisan a sonunda toplanacak olan Birleyni§ Milletler toplantlsma, sadece 1 Mart 1945 tarihine kadar Japonya ve Almanya'ya sava§ ilan eden ülkelerin kurucu iiye slfatlyla katllmaya hak kazanacak olmasydl.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PPT) 13havakirliligi | cihan çiçek](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## (PPT) 13havakirliligi | cihan çiçek
+Academia.edu is a platform for academics to share research papers.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PowerPoint Presentation - Gunadarma](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## PowerPoint Presentation - Gunadarma
+PowerPoint Presentation. Manajemen Media Sosial. untuk Branding. Referensi: E-Book Tim Pusat Humas Kementerian Perdagangan RI. 2014. Panduan Optimalisasi Media Sosial untuk Kementerian Perdagangan RI. Kemendagri: Jakarta. By: Ocvita Ardhiani. Fakultas Ilmu Komunikasi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PowerPoint Presentation](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## PowerPoint Presentation
+Uygun analiz türünün belirlenmesinde ilk kriter verilerin türüdür. Analiz yöntemleri verilerin özelliklerine göre iki temel gruba ayrılır. Bu gruplarda yer alan temel analiz yöntemleri aağıdaki gibidir. (1) Parametrik veriler için kullanılan analiz yöntemleri; Varyans
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PowerPoint Sunusu - Karadeniz Teknik Üniversitesi](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## PowerPoint Sunusu - Karadeniz Teknik Üniversitesi
+PowerPoint Sunusu Author CAKMAKMERVE Created Date 4/26/2014 1:08:11 PM 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PowerPoint Presentation - Eğitim Bilimine Giriş](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## PowerPoint Presentation - Eğitim Bilimine Giriş
+Eğitim Sisteminin Süreç Ögeleri. Açık Sistem: Girdi, işlem, çıktı ve dönütten oluşan ve en az bir hedefi gerçekleştirmek üzere örgütlenip uygulamaya konulan ve her uygulama sonucuna göre yeniden düzenlenen dirik örüntüye açık sistem denir. (Sönmez,2001) Eğitim, AÇIK bir sistemdir. Yarı Açık Sistem:
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PowerPoint Presentation - Ankara Üniversitesi](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## PowerPoint Presentation - Ankara Üniversitesi
+Bunlar: Hava yolu tıkalı olanlar Solunum zorluğu olanlar Kanamalar Açık göğüs yaralanması Kafa travması, açık karın yaralanmaları Derin ve geniş yanıklar Büyük kırıklar Bazı özel hastalıklar (kalp, diyabet, gebelik vb.) 2.SARI KARTLAR: Orta şiddette olanlardır. 1-2 .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PowerPoint Presentation](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## PowerPoint Presentation
+Tünel, cep, maserasyon, eritem, ödem, ısı artışı Yara boyutları büyümektedir Sistemik antibiyotik kullanılması gerekir. Topikal antimikrobiyal tercihen gümüş salınımı yapan bir yara bakım malzemesi eklenmelidir. Gümüşlü pansumanların 11. HİDROJEL ÖRTÜLER (A11) Yapısı:Yapısının %80'inden fazlası sudan oluşmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PowerPoint Sunusu - .GLOBAL](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## PowerPoint Sunusu - .GLOBAL
+PowerPoint Sunusu Author Atakum Teknik Lise Last modified by murat Created Date 5/9/2001 7:53:25 AM Document presentation format On-screen Show Company Other titles
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

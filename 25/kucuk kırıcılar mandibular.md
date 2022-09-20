@@ -1,0 +1,45 @@
+# kucuk kırıcılar mandibular
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mandibula sınır hareketleri - YouTube](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Mandibula sınır hareketleri - YouTube
+volkan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![YARIM RETANSİYONLU MANDİBULER ÜÇÜNCÜ MOLAR DİŞLERİN .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## YARIM RETANSİYONLU MANDİBULER ÜÇÜNCÜ MOLAR DİŞLERİN .
+gical removal of mandibular third molars, extraction wound is closed prirnary in one side and left secondary healing on the other side. Wound healing is examined clinically and radiologically. The effects of dental extraction and prirnary and secondary wound he
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çocuk hastada bilateral mandibular kondil kırığı ve .](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Çocuk hastada bilateral mandibular kondil kırığı ve .
+Çocuk hastada bilateral mandibular kondil kırığı ve tedavisi: Bir Olgu Sunumu. Gökhan Gürler, Çağrı Delilbaşı, Emine Öğüt. İstanbul Medipol Üniversitesi, Diş Hekimliği Fakültesi, Ağız Diş Ve Çene Cerrahisi A.D., İstanbul. Mandibula kondil kırıkları ciddi komplikasyonlara .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Mandibula Kırıklarında Tanı ve Tedavi / Diagnosis .](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## (PDF) Mandibula Kırıklarında Tanı ve Tedavi / Diagnosis .
+Ten current techniques for mandibular fracture repair in dogs are described: taping the muzzle, loop cerclage with stainless-steel wire, interdental wiring, interfragmentary wiring, interarcade 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mandibula Oblik Grafisi Çekim Tekniği - radyolojinet](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Mandibula Oblik Grafisi Çekim Tekniği - radyolojinet
+Pozisyon : Hasta pron pozisyondadır. Göğsünün altına yastık koyulur. İncelenecek tarafta şakak, masayla temas eder. Baş, her iki mandibular ramusların süperpoze olmasını engellemek için, masaya doğru hafif eğilir ve mandibula dış yüzü, masaya paralel olacak kadar döndürülür.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mandibular Kondil Kırıkları ve Tedavi Yöntemleri | Request .](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Mandibular Kondil Kırıkları ve Tedavi Yöntemleri | Request .
+The complexity of mandibular condyle region and its anatomic proximity to other craniofacial structures complicate diagnosis and treatment.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Küçük Stajlar Ders Notları pdf indir - Halk Sağlığı, KBB, .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Küçük Stajlar Ders Notları pdf indir - Halk Sağlığı, KBB, .
+Trigeminal nevralji tek taraflı, genellikle maksiller ve mandibular dalların tutulduğu çok şiddetli, anlık,  ve polipeptidler (polimiksin B, linkomisin ve kolistin), kinin, kinidin, prokainamid, beta-kırıcılar, propranolol, timolol maleat, Ca kanal-kırıcıları, magnezyum D 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MANDİBULA KIRIKLARINDA DİŞ ÇEKİMLİ VEYA ÇEKİMSİZ .](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## MANDİBULA KIRIKLARINDA DİŞ ÇEKİMLİ VEYA ÇEKİMSİZ .
+gold standart for treatment of mandibular fractures. Fracture stabilization, fixation and reduction can be effected by retention or extraction of teeth in the fracture line.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) PEDİATRİK MANDİBULA KIRIKLARI - ResearchGate](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## (PDF) PEDİATRİK MANDİBULA KIRIKLARI - ResearchGate
+Thirty-seven children younger than age eleven who had incurred mandibular fractures were studied. Age, sex, type of fracture, incidence, etiology, treatment methods, and complications were examined.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mandibula kondil kırıkları ve tedavi yaklaşımları](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Mandibula kondil kırıkları ve tedavi yaklaşımları
+mandibular kondil kırıklarının; fasiyal kırıkların % 29-40' ını, mandibula kırıklarının ise % 20-62' sini oluşturduğunu ifade etmişlerdir. Mandibula Kondil Kırıklarının Etiyolojisi Erişkinlerde kondil kırıklarının nedeni; başta trafik kazaları olmak üzere, kavga, iş
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ön dişlerimin üzerindeki küçük çukur noktalar ? - .](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Ön dişlerimin üzerindeki küçük çukur noktalar ? - .
+küçükken annem yanlış antibiyotik kullanmış bu nedenle on dışlerimin üzerinde küçük çukur noktalar var ve dişlerim iğrençç berbat görünüyor ve gülmeyi çok sviyorum böyle olunca gülemiyorum bunun bi tedavisi var mı sizce arkadaşlar yardım ? ! iki kez yetmiyo 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

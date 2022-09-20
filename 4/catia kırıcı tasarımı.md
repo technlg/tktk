@@ -1,0 +1,129 @@
+# catia kırıcı tasarımı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Broş Çekme | Yüksek Makine Mühendisi Hamit Arslan](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Broş Çekme | Yüksek Makine Mühendisi Hamit Arslan
+BROŞ ÇEKME BROŞLAR Broş çekme diğer imalat şekillerden oldukça farklı bir imalat yöntemidir. Broş çekmede broş (tığ) adı verilen kesiciler kullanılır. Aşağıdaki şekilde de görüldüğü gibi broş, çok ağızlı çubuk şeklinde bir takımdır. Broşlar doğrusal kesme 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cihan Paslanmaz Küpeşte & Yapı Teknolojileri Sanayi - .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Cihan Paslanmaz Küpeşte & Yapı Teknolojileri Sanayi - .
+Cihan Paslanmaz Küpeşte & Yapı Teknolojileri Sanayi、イズミット - 「いいね！」378 · 1がにしています - SINCE 1990 Kalite Bizde Büyük Harflerle Yazılır.. Cihan Paslanmaz Küpeşte & Yapı Teknolojileri SanayiのそののコンテンツをFacebookでチェック
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dış mimari için 20+ fikir | mimari, modern mimari, bina .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Dış mimari için 20+ fikir | mimari, modern mimari, bina .
+03.Ağu.2017 - Pinterest'te Halil İbrahim Hayal adlı kullanıcının "dış mimari" panosunu inceleyin. mimari, modern mimari, bina cephesi hakkında daha fazla fikir görün. Cephe Giydirme Sistemleri, Strel Silikon Cephe Sistemleri, Transparan Cam Cepheler Klasik 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Aralık 2010 – @Youtube: Ümit Kirenci](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Aralık 2010 – @Youtube: Ümit Kirenci
+December 2010 boyunca Ümit Kirenci tarafından 3 gönderi yayımlandı > Bunların bir çoğu hazır, bazısı da proje halinde. Hazırladıklarımın yani eski projelerimin Solidworks'te 3D modellemelerini yaptım,bazısının Ansys Workbench 'de analizleri var. Onları da 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cihan Paslanmaz Küpeşte & Yapı Teknolojileri Sanayi - .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Cihan Paslanmaz Küpeşte & Yapı Teknolojileri Sanayi - .
+Cihan Paslanmaz Küpeşte & Yapı Teknolojileri Sanayi、イズミット - 「いいね！」378 · 1がにしています - SINCE 1990 Kalite Bizde Büyük Harflerle Yazılır 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Catıa ile kalıp tasarımı 1 sıyırıcı plakalı - YouTube](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Catıa ile kalıp tasarımı 1 sıyırıcı plakalı - YouTube
+Catıa ile kalıp tasarımıDataları https://grabcad/library/mold-105https://grabcad/library/mold-109 alabilirisiniz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Türkiye Yerli Elektrikli Otomobil Tasarımı Catia V5 - YouTube](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Türkiye Yerli Elektrikli Otomobil Tasarımı Catia V5 - YouTube
+4/12/2016· Canlı yayında Türkiye Yerli Elektrikli Otomobil Tasarımı Catia V5
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Catia - Vatan Bilgisayar](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Catia - Vatan Bilgisayar
+Catia Yıllardır Türkiye'de bilgisayar ve bilişim yayıncılığının önde gelen kuruluşu olan Pusula Yayıncılık, yine bir ilke imza atıyor: Pusula Akademi Görsel Eğitim dizisi, DVD Book adı verilen yeni bir kategoride, en karmaşık yazılımları profesyonel şekilde hazırlanmış videolarla kullanıcılara sunuyor. . Böylelikle 1000 sayfalık basılı kitaplara ya da 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Catia Parça Tasarımı Üreticilerinden ve .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Yüksek Kaliteli Catia Parça Tasarımı Üreticilerinden ve .
+Yüksek Kaliteli Catia Parça Tasarımı Üreticilerini Catia Parça Tasarımı Tedarikçilerini ve Catia Parça Tasarımı Ürünleri en iyi fiyatta Alibaba'da bulun. Sevkiyata Hazır Ticaret Fuarı Kişisel Koruyucu Ekipman Hizmetler Alibaba üzerinden satın Yardım
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![EVEREST SM-165 SİYAH/TURUNCU KABLOSUZ MOUSE](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## EVEREST SM-165 SİYAH/TURUNCU KABLOSUZ MOUSE
+EVEREST SM-165 SİYAH/TURUNCU KABLOSUZ MOUSEEVEREST SM-165 SİYAH/TURUNCU KABLOSUZ MOUSE. Elektronik Ürünlerini Online Sipariş Edin.EVEREST SM-165 SİYAH/TURUNCU KABLOSUZ MOUSE. Mouse & Ped Ürünlerini Online Sipariş Edin.EVEREST SM .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CATIA Modülleri Nelerdir? | 3DCATIA.COM](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## CATIA Modülleri Nelerdir? | 3DCATIA.COM
+CATIA Modülleri – Catia Part Design (Parça Tasarımı) Part Design (Parça Tasarımı) uygulaması, CATIA modülleri arasında en çok kullanılan tasarım aracıdır. Montaj kavramından yinelemeli ayrıntılı tasarıma kadar sezgisel ve esnek bir kullanıcı ara yüzü ile sağlam .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Robots](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Robots
+PTC İle Röle Kontrol Devresi Tasarımı Python 1001: Döngüler – For Döngüsü Proteus'ta Ayarlanabilir Güç Kaynağı Devresi Tasarımı (0 – 20V) Python 1001: İf-Else-Elif Yapısı Python 1001: Operatörler Python 1001: Liste Metotları Python 1001: String Metotları
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DİLİ ÇARKLARDA KIRILMA DAVRANIININ DENEYSEL İNCELENMESİ .](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## DİLİ ÇARKLARDA KIRILMA DAVRANIININ DENEYSEL İNCELENMESİ .
+T.C. BURSA ULUDAĞ ÜNİVERSİTESİ FEN BİLİMLERİ ENSTİTÜSÜ DİLİ ÇARKLARDA KIRILMA DAVRANIININ DENEYSEL İNCELENMESİ Hasan Ali CİVELEK Doç. Dr. Fatih KARPAT (Danışman) YÜKSEK LİSANS
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CATIA | 3DCATIA | Türkiye | 3DCATIA.COM ENDUSTRİYEL .](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## CATIA | 3DCATIA | Türkiye | 3DCATIA.COM ENDUSTRİYEL .
+CATIA, Ürün Tasarımı ve Deneyimi için Dünyanın Öncü çözümlerinden en güçlü olanıdır. Dünyadaki birçok endüstri tarafından kullanılmaktadır.3DEXPERIENCE CATIA ile profesyonel çalışma örnekleri ile CATIA ya dair her şeyi 3DCATIA.COM da paylaşıyoruz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Catia V5 R21 | Sanal Öğretim](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Catia V5 R21 | Sanal Öğretim
+Bulunduğum projelerden birkaç tanesi şunlardır; Savunma sanayi için gizli horozlu silah tasarımı, cnc router tasarımı, 3d printer tasarımı, konveyör tasarımı, cnc yağ sıyırıcı, hidrolik kırıcı, plastik ve metal enjeksiyon kalıpları ve otomatik merkez bulma makinası
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Catıa ile kalıp tasarımı - Kauçuk Körük kalıp tasarımı 1 - .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Catıa ile kalıp tasarımı - Kauçuk Körük kalıp tasarımı 1 - .
+Catıa ile kalıp tasarımıDataları https://grabcad/library/mold-rubber-2 alabilirisiniz
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Catia Evye Tasarımı | Sheet Metal Design - YouTube](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Catia Evye Tasarımı | Sheet Metal Design - YouTube
+2/2/2017· Catia ile Evye tasarımı denemesi yaptık. İyi Seyirler
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Solidworks 2020 Combine Komutu - Kalıp Çıkarma - .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Solidworks 2020 Combine Komutu - Kalıp Çıkarma - .
+2/2/2020· Solidworks Eğitim setinde örnek bir çizim gerçekleştirdik umarım sizler için yardımı olur. Abone Ol : MART 2021 e saat 20.00e kadar 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Özgeçmiş | Ali Karaslan](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Özgeçmiş | Ali Karaslan
+Tasarımı ve imalatı tamamen bana ait olan Cnc Freze Tezgahının, imalatı ve kullanımı ile ilgili resimli makaleler hazırlayıp internet ortamında yayınladım. Ve bu makaleler ile ilgili insanlardan gelen yardım isteklerini karşılayarak, çok fazla sayıda kişiye ve kuruma yardımcı oldum.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çarpışmadan Kaçınan Robotlar](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Çarpışmadan Kaçınan Robotlar
+George Konidaris, robotikle ilgili cesaret kırıcı girişini hâlâ hatırlıyor. "Genç bir öğrenci olduğunuzda ve bir robot programlamak istediğinizde, sizi ilk yıkan şey, o robotla yapamayacaklarınıza dair bu büyük hayal kırıklığıdır" diyor. Yeni robotikçilerin çoğu, robotlarını 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CATİA:A'dan Z'ye Profesyonel Tasarım (Herşey Dahil) +50 .](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## CATİA:A'dan Z'ye Profesyonel Tasarım (Herşey Dahil) +50 .
+Catia Sınav Sisitemleri, Çıkmış Sorular ve Catia Sertifikası Alımı Desert Eagle Silahı Tasarımı Phantom F-4 American Jet Uçağı Tasarımı SU-47 Berkut Avcı Uçağı Tasarımı Lockheed F-117A Nighthawk Hayalet Uçak Tasarımı A-10 Thunderbolt Uçak Tasarımı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Halil İbrahim Hayal (halilbrahimhayal) - Profil | Pinterest](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Halil İbrahim Hayal (halilbrahimhayal) - Profil | Pinterest
+Dünyanın en büyük fikir koleksiyonu olan Pinterest'te, Halil İbrahim Hayal adlı kullanıcının (halilbrahimhayal) neler keşfettiğini görün.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dewalt DWE4579 2600Watt 230mm Profesyonel Büyük .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Dewalt DWE4579 2600Watt 230mm Profesyonel Büyük .
+Dewalt DWE4579 2600Watt 230mm Profesyonel Büyük TaşlamaDewalt DWE4579 2600Watt 230mm Profesyonel Büyük Taşlama. Hırdavat Ürünlerini Online Sipariş Edin.Dewalt DWE4579 2600Watt 230mm Profesyonel Büyük Taşlama. Taşlama Ürünlerini Online Sipariş Edin.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pi Kompozit - Pi Makina](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Pi Kompozit - Pi Makina
+Beton Santrali, Kule Vinç, Beton Pompası, Kırma Eleme Tesisleri ve İş Makinaları sektöründe yarım asırlık tecrübe ile Türkiye'nin en büyük makina üreticisi. Pi Makina Kurumsal Kurumsal Firma Profili Firma Profili Fabrikamız Fabrikamız Kalite Politikası Kalite
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Era 1310 Katlanabilir Toz Maskesi FFP3 V NR D](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Era 1310 Katlanabilir Toz Maskesi FFP3 V NR D
+Era 1310 Katlanabilir Toz Maskesi FFP3 V NR D. İş Güvenliği Ürünlerini Online Sipariş Edin.Era 1310 Katlanabilir Toz Maskesi FFP3 V NR D. Solunum Koruma Ürünlerini Online Sipariş Edin.Era 1310 Katlanabilir Toz Maskesi FFP3 V NR D. Toz Maskeleri Ürünlerini
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TBTK MAM EE 04 ](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## TBTK MAM EE 04 
+makinası tasarımı ve üretimi konularında projeler oluşturabilmek ve bu projelerde görev alabilmek, d) Elektrik makinası tasarımı konularında güncel paket yazılımlardan (Ansys Maxwell, Speed, MotorCad v.b.) en az birini ileri derecede kullanıyor f) 35 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Matkap Geometrisinin Oluşturulmasında .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## (PDF) Matkap Geometrisinin Oluşturulmasında .
+imalat sürecine uyg un hazırlanmıştır. 3B modelin oluş turulmasında CATIA P3 V5-6R2015  dörder seviyeli üç farklı kontrol faktörü ile bir Taguchi Deney Tasarımı oluşturulmuştur 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En İyi 25 Makina İmalatı | Armut](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## En İyi 25 Makina İmalatı | Armut
+Mk makina, başta mobil konkasör ve kırma eleme tesisi olmak üzere Türkiye ve dünyanın bir çok ülkesine çeneli kırıcı, tersiyer kırıcı, konveyör bant sistemleri ve titreşimli elek sistemleri gibi bir çok ürünün satışını yapmaktadır. Bizlere 7 24 ulaşarak fiyat teklifi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![COVID19-TR-Yetkinlik-Haritası - Google Drive](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## COVID19-TR-Yetkinlik-Haritası - Google Drive
+COVID19-TR-Yetkinlik-Haritası
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En İyi 25 Makine Tasarımcısı | Armut](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## En İyi 25 Makine Tasarımcısı | Armut
+Güvenilir Makine Tasarım hizmeti al, zaman kazan, garantide ol. 15.000 Makine Tasarımcısı hazır. Ödüllü girişim. Yılda 2 milyon mutlu müşteri. Hizmet piş, ağzıma düş! Firmamız Çorum'da kendi sektöründe, sektörün lider firması olmak için yarışını sürdürmektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Solidworks ödev yaptırma, proje yaptırma çizim desteği .](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Solidworks ödev yaptırma, proje yaptırma çizim desteği .
+Solidworks ödev yaptırma, proje yaptırma, çizim yapılır, solidworks çizim yaptırmak isteyen öğrencilere destek vermekteyiz. Profesyonel derecede solidworks kullanan ekibimiz, her alanda çizimleri ile sizlere destek vermektedir. Her çeşit kalıp tasarımı / Makina 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TBTK MAM EE 04 ](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## TBTK MAM EE 04 
+1 ENERJİ ENSTİTÜSÜ İlan No:TBTK.MAM.EE/ 1) İŞİN TANIMI VE ÖZELLİKLERİ 1.1. Referans Kodu: EE.01 / AR-GE Personeli (Araştırmacı): Enerji Enstitüsünde, hidroelektrik santral (HES) SCADA / Otomasyon sistemlerinin geliştirilmesine yönelik
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,149 @@
+# kesti parcalayıcı reklamları viking
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Viking Mitolojisinin Temelleri ve Tarihsel Kaynakları](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Viking Mitolojisinin Temelleri ve Tarihsel Kaynakları
+Viking mitolojisine dair birçok mitosu da tarihsel bilgiler ile karıtırmıtır zira Snorri'nin tarih ile mitos arasında bir ayırım yapamadığını görmekteyiz. Birçok ortaçağ yazarı gibi efsanevi ve doğaüstü olayları gerçekmiú gibi aktarmaktan geri duramamaktadır. Bu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![O yalanlarla kimseyi kandıramaz](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## O yalanlarla kimseyi kandıramaz
+Kemer Belediyesi eski Başkanı Hasan Şeker, 11 yıllık suskunluğun ardından içini Kemer Aktüel dergisine döktü. Eski Belediye Başkanı Mustafa Gül'ün açıklamalarına ilişkin hep sustuğunu anlatan Şeker, 'Artık aday da değilim. Çok daha rahat konuşuyorum' dedi ve tabiri caizse açtı ağzını yumdu gözünü. Gül'ü sert sözlerle eleştiren Şeker, belgeleri 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAŞARILI BIR TOPLULUK ETKINLIĞI NASIL PLANLANIR? - .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## BAŞARILI BIR TOPLULUK ETKINLIĞI NASIL PLANLANIR? - .
+Başarılı bir topluluk etkinliği için Ulusal Gece Yarışı engelleme partisi, bağış toplama, kilise etkinliği, kültür festivali veya başka bir topluluk binası olmanın üç temel unsuru vardır. TAKİP EDİN Gelecekte etkinlik tekrarlanacaksa, takip edilen reklamları yaptığınızdan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mars | Bilim Köşesi](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Mars | Bilim Köşesi
+1976 yılında Mars'ta yapılan deneyin sonucuna ilişkin ilginç ayrıntı yeni fark edildi. Amerikan Uzay ve Havacılık Dairesi(NASA), 20 Temmuz 1976'da Mars'a indirdiği Viking 1 sondasının ''Kızıl Gezegen''den topladığı numuneler arasında yer alan materyali yeni fark etti.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ayorum | Acının şiirselliği: İçgörüler ve farkındalıklar | .](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Ayorum | Acının şiirselliği: İçgörüler ve farkındalıklar | .
+Nitekim acı çekmek çok ciddi bir iştir. Öyle yapış yapış bir duygusallık ve arabesk bir halet-i ruhiye'nin (her hangi bir ortamda yaşanabilen med cezirlerin ve değişken ruh hallerinin) tezahuri yansımalarıyla karıştırılmamalıdır. Bu noktada, sanatsal ve edebi üretimin 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vegan olmak: Sömürüye karşıyız, ailecek veganız!](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Vegan olmak: Sömürüye karşıyız, ailecek veganız!
+Vegan olmak: Sömürüye karşıyız, ailecek veganız! Ne zamandır vegan yaşıyorsunuz? Eşim en az 20 senedir vejetaryen. Onun vejetaryenliği ile başladı bu durum. Arkadaşlarımızdan da veganlığı duyup etkilendik ve 2014'te ailecek vegan olmaya karar verdik. Ama 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vikingler 5.Bölüm - Canavar Macerası | İzlesene](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Vikingler 5.Bölüm - Canavar Macerası | İzlesene
+bir viking çocuğun ve onun kabilesinin başından geçenler konu edilirdi. çocuğun adı viki'ydi sanırım. sorunlarla karşılaşıldığında burnunu kaşıyarak düşünür ve pratik çözümler üretirdi. bir çözüm bulduğu anda kafasının hemen üstünde yanan bir ampul beliriverir, o da parmağını şıklatır, sevinçle "buldum!"
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Avcılar'da Vikinglerin izlerine rastlandı | NTV](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Avcılar'da Vikinglerin izlerine rastlandı | NTV
+Avcılar Bathonea Antik Liman Yerleşimi kazılarında 8-11. yüzyıllar arasında hüküm sürdükleri bilinen Vikinglerin izlerine rastlandı. Kazılarda şuana kadar Doğu Roma dönemine ait 2 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vikingler - Kurta Dikkat (2. Bölüm) | İzlesene](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Vikingler - Kurta Dikkat (2. Bölüm) | İzlesene
+TRT Çocuk kanalının sevilen çizgi filmi Vikingler. Hikayede bir viking çocuğu olan Vicky ve çevresindekilerin yaşadıkları anlatılıyor. Çok zeki bir çocuk olan Vicky; bir sorunla karşılaşıldığı zaman parlak zekasıyla çözümler üretir. Her bölümde farklı bir macera için 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Avusturya Glock'a karşı Silah Yarygin](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Avusturya Glock'a karşı Silah Yarygin
+Son zamanlarda, yerli silah ve silah endüstrisinin bir bütün olarak çok sert bir eleştirisi olmuştur. Uzun süredir kullanılmayan ve üretilmeyen hem yeni hem de eski modeller açık ve gizli eleştirilere maruz kalıyor. Başka bir deyişle, aktif olarak kafaya girmeye çalışmak
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yaşlı Bunak - Official TF2 Wiki | Official Team Fortress Wiki](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Yaşlı Bunak - Official TF2 Wiki | Official Team Fortress Wiki
+From Team Fortress Wiki < Ol' Geezer
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kızıl gezegen | Bilim Köşesi](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Kızıl gezegen | Bilim Köşesi
+1976 yılında Mars'ta yapılan deneyin sonucuna ilişkin ilginç ayrıntı yeni fark edildi. Amerikan Uzay ve Havacılık Dairesi(NASA), 20 Temmuz 1976'da Mars'a indirdiği Viking 1 sondasının ''Kızıl Gezegen''den topladığı numuneler arasında yer alan materyali yeni fark etti.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ölen ve Ölü Kalan 20 Supervilla - listeleri 2021](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Ölen ve Ölü Kalan 20 Supervilla - listeleri 2021
+Bazı süpervizörler her zaman mezardan geri döner. Bunlar çok şanslı değildi. Çizgi roman dünyasında, iyi ve kötü güçleri arasında sürekli bir savaş sürüyor. Süper kahramanlar, süper kahramanları ele geçirmek ve dünyaları yok etmek, masumları öldürmek ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tarihte Bugün - Alternatifim](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Tarihte Bugün - Alternatifim
+1976 - Viking-1, 11 ay süren yolculuktan sonra Mars'a kondu ve Dünya'ya fotoğraflar aktarmaya başladı. 1980 - Birleşmiş Milletler Güvenlik Konseyi, üye ülkelerin Kudüs'ü İsrail'in başkenti olarak tanımamaları gerektiğine 14-0 oyla karar verdi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![13 Nisan 2012 - KAHVE MOLASI](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## 13 Nisan 2012 - KAHVE MOLASI
+Her ne kadar kimileri üç maymunu oynuyorsa da, biraz vicdan sahibi olanların içi yanıyor içi. İntikam çığlıklarıyla bezeli hak, hukuk, adalet söylemleri yaraya sadece tuz basıyor. 12 Eylül'ün intikamını, göstermelik dava yanına yanar döner dört çekerli eğitim salatası 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![January 13, 2012 – Dağ Medya](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## January 13, 2012 – Dağ Medya
+10 posts published by DAĞ MEDYA on January 13, 2012 KKTC'nin kurucu cumhurbaşkanı Denktaş 88 yaşında hayatını kaybetti. Rauf Raif Denktaş kimdi (d. 27 Ocak 1924, Baf – Kuzey Kıbrıs Türk Cumhuriyeti'nin kurucusu, cumhurbaşkanı, politikacı, yazar. İlk
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gloryheaven: Aralık 2012](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Gloryheaven: Aralık 2012
+Flokiland: Viking Denizcisi Gönderen gloryheaven Time is 21:00:00 Reactions: 2 yorum: 4 Aralık 2012 bu beden de emanet çok yormamak gerek Gönderen gloryheaven Time is 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yaşlı Bunak - Official TF2 Wiki | Official Team Fortress Wiki](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Yaşlı Bunak - Official TF2 Wiki | Official Team Fortress Wiki
+Update history 5 Mayıs 2011 Yaması (Replay Güncellemesi) Yaşlı Bunak oyuna eklendi. Hatalar Şu anda, Yaşlı Bunak iki takım için de RED dokuları kullanır. Mnemosynaut, şapkanın yaratıcısı, gelecekte BLU dokuları da ekleneceğini onaylamıştır. Ek Bilgiler "Old 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vikingler - Şekil Değiştirme ( Türkçe ) | İzlesene](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Vikingler - Şekil Değiştirme ( Türkçe ) | İzlesene
+Biz ve ortaklarımız çerezler gibi teknolojiler kullanıyoruz ve size en iyi çevrimiçi hizmeti sunabilmek adına internet tarama verileri topluyoruz. Bu yolla içerik ve reklamları kişiselleştiriyoruz. Eğer kabul ediyorsanız lütfen bizi bilgilendirin. Ayarlar Kabul Ediyorum
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) ETİN CİNSEL POLİTİKASI-CAROL J. ADAMS | ayşe .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## (PDF) ETİN CİNSEL POLİTİKASI-CAROL J. ADAMS | ayşe .
+ETİN CİNSEL POLİTİKASI-CAROL J. ADAMS
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Beygir Haberleri | Beygir Haber - Haberler - Sayfa 4](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Beygir Haberleri | Beygir Haber - Haberler - Sayfa 4
+Yarışmada, YKM Sport ikinci, Viking ekibi ise üçüncü oldu. Seyhan Baraj Gölü'nde Adana Yelken Kulübü'nden başlayan yarışmada, 225 beygir gücündeki katamaran tipi tekneler yer aldı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vikingler kimlerdir? - Yumurtalı Ekmek](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Vikingler kimlerdir? - Yumurtalı Ekmek
+Viking kelimesi bir halktan ziyade bir kültürü temsilen kullanılır. Adları "deniz savaşçıları" anlamına gelen Vikingler, aslında iki ulusa, yani Varyaglar ile Normanlar'a mensup insanlardır. İsveçli olan Varyaglar doğuya doğru yayılmış, 11. yüzyılda Karadeniz'e, hatta 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vikingler hakkında bilmediklerimiz - BBC News Türkçe](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Vikingler hakkında bilmediklerimiz - BBC News Türkçe
+Klasik Viking imajı 1958 yapımı Vikingler adlı Hollywood filmi ile oluşmuştur diyebiliriz. Başrollerde Kirk Douglas, Janet Leigh ve Tony Curtis'in oynadığı bu film kanlı bir yağma 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mars | Bilim Köşesi](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Mars | Bilim Köşesi
+O dönemdeki analizlerde uzay aracının topladığı numunelere dünyadaki organik maddelerin karıştığını düşünen bilim adamlarının, Mars benzeri bir toprakta yaptıkları deneyde, Viking 1 uzay aracının, 34 yıl önce daha kuru ve tozlu bir araziye iniş yaptığı ortaya çıktı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Alec Baldwin - Alec Baldwin](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Alec Baldwin - Alec Baldwin
+Alexander Rae Baldwin III (3 Nisan 1958 doğumlu) Amerikalı aktör, yazar, yapımcı, komedyen ve politik aktivisttir. Baldwin ailesindeki dört erkek kardeşin en büyüğüdür . Baldwin ilk kez CBS primetime pembe dizisi Knots Landing'in altıncı ve yedinci sezonlarında görünerek tanındı . 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Donna Rosanberg Dünya Mitolojisi | Betül Sağlam - .](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## (PDF) Donna Rosanberg Dünya Mitolojisi | Betül Sağlam - .
+Donna Rosanberg Dünya Mitolojisi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## 
+KRONOLOJİK TAKVİM / TARİHTE BU GÜN VE DEĞERLENDİRMELERİMİZ / AHMET FİDAN ONLİNE BİLGİ İLETİŞİM: BİLGİ İLETİŞİM AĞIMIZIN MELODİSİ. BİLGİ İLETİŞİM AĞ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vikinglerin Tarihçesi,Vikingler ve Türkler,Vikingler .](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Vikinglerin Tarihçesi,Vikingler ve Türkler,Vikingler .
+Viking kelimesi bir halktan ziyade bir kültürü temsilen kullanılır. İskandinav dillerinde, bu kuzeyli savaşçılara verilen isimdir. O devirdeki Viking halkına, İskandinavcada kuzeyli anlamına gelen Nors denir. Vikingler batıya doğru ilerlerken, kardeş millet kabul edilen 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vikingler kimdir? Vikingler ne zaman ve nerede .](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Vikingler kimdir? Vikingler ne zaman ve nerede .
+Viking Rørik'in (830-79) Prensi, Rusya'da 9. yüzyıldan 17. yüzyıla kadar hüküm sürdü. O dönemde Rusya topraklarında yaşayan halk İsveç'ten gelen Vikingler'e "Rus" diye isim takmıştı ve şu an Rusya denilen ülkenin adı aslında ' İsveçlilerin Ülkesi" manasına gelmektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Meydan Gazetesi SAYI 5 by meydan gazetesi - Issuu](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Meydan Gazetesi SAYI 5 by meydan gazetesi - Issuu
+Meydan Gazetesi SAYI 5 Issuu company logo
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Marshall-Berman-Katı-Olan-Her-Şey .](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Marshall-Berman-Katı-Olan-Her-Şey .
+O Scribd é o maior site social de leitura e publicação do mundo.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Komşuluk mu kaldı?](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Komşuluk mu kaldı?
+En yeni Komşuluk mu kaldı? kitapları, yazarları, kitap incelemelerini, kitaplardan alıntıları, yazarlardan sözleri, okurları listeleyebilirsiniz. 1000Kitap Gerçek Okurlar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tarihte bugün - ImajTeam](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Tarihte bugün - ImajTeam
+1976-Viking-2 uzay aracı Mars'ın yörüngesine yerleşti. 1982-İki ASALA militanı Ankara Esenboğa Havalimanı'na silahlı baskın düzenledi: 8 ölü, 72 yaralı. Militanlardan biri öldü, diğeri yaralı yakalandı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İHANET – Karın Alvtegen – Kitap Özeti](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## İHANET – Karın Alvtegen – Kitap Özeti
+KARIN ALVTEGEN: 8 Haziran 1965'te, İsveç'in Huskvarna şehrinde doğdu. 1998 yılında Suç adlı romanıyla yazın dünyasına giren Alvtegen, Can Yayınlan tarafından yayınlanan ikinci romanı Yitirilen ile 2000 yılında İskandinav ülkelerinin en önemli polisiye roman ödülü olan Sırça Anahtar Ödülü'nü aldı.. İhanet adlı yapıtı da 2004'te En İyi İskandinav 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tarihte bugün - ImajTeam](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Tarihte bugün - ImajTeam
+1976-Viking-1 11 ay süren yolculuktan sonra Mars'a kondu ve Dünya'ya fotoğraflar aktarmaya başladı 1976- İstanbul'da 22 Yayınevi sahibi ve kitap satıcısı gözaltına alındı, 2 bin 100 kitaba el konuldu. 1977- Adalet Partisi, Milli Selamet Partisi ve Milliyetçi Hareket
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Viking Kültürüne Ait Sizi Zamanda Yolculuğa Çıkaracak 8 .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Viking Kültürüne Ait Sizi Zamanda Yolculuğa Çıkaracak 8 .
+Bir rüyaydın sen: Viking kültüründe ekmek Vikingler, buğday, arpa, yulaf ve çavdar yetiştirir, bunların unundan ekmek de yaparlardı. Fakat bildiğimiz ekmekten çok çöreğe benzeyen, küçük, yuvarlak bir ekmekti bu. Gerektiğinde bellerindeki iplere, kuşaklara asabilmeleri için ortaları delikti.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Philip K. Dick - Yüksek Şatodaki Adam by Burcu L - Issuu](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Philip K. Dick - Yüksek Şatodaki Adam by Burcu L - Issuu
+Issuu company logo
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

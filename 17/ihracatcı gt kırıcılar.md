@@ -1,0 +1,77 @@
+# ihracatcı gt kırıcılar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TOBB - Türkiye Odalar ve Borsalar Birliği](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## TOBB - Türkiye Odalar ve Borsalar Birliği
+ODA_ADI CINS KARAR Samsun Ticaret ve Sanayi Odası Şişe İmalatı Kompozit PVC hammaddesinin şişe imalatı esnasındaki fire nispeti %2,5, tahmil tahliye firesi %0,5, toplam %3 fire verebilmektedir. Bahse konu %3 firenin tahmil tahliye firesi olan %0,5 tamamen 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İhracat - TİM](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## İhracat - TİM
+30/11/2006· Mal ve hizmet ihracatına yönelik devlet destekleri ile Dâhilde İşleme Rejimi, Hariçte İşleme Rejimi, Vergi Resim Harç İstisnası ve Belgesiz İhracat Kredilerine ilişkin başvuruların ilk aşamadan sonuçlanmasına kadar tüm süreçlerinin dijital ortamda yürütüleceği sistem.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![OAİB - Özetle İhracatın Temel Noktaları Nelerdir](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## OAİB - Özetle İhracatın Temel Noktaları Nelerdir
+İHRACATA HAZIRLIK İhracata başlamadan önce "ihracat iş planı'' geliştirilmelidir. İhracat iş planı kapsamında; ihracat potansiyeline sahip ürünler, firmanın yerli ve yabancı rakiplerine göre hedef pazardaki avantajlı yönleri, hedef müşteriler, satış taktikleri, dış pazarlara 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![#Kesme Makinesi • Raw Ranked Sites](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## #Kesme Makinesi • Raw Ranked Sites
+ford connect 2005 turbo ses sorunu renault 2005 clio dci turbo fiyatı traktör turbo fiyatları subaru 2.0 gt turbo lpg land rover 4x4 turbo dizel motor yağı wolksvagen volt lt 35 2003 turbo ankara gimat volkswagen turbo fiyatları vıto 111 turbo hurda fiyatı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Acil İş - Makina imalat elemanı İş İlanları - 5801 Güncel .](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Acil İş - Makina imalat elemanı İş İlanları - 5801 Güncel .
+Makina imalat elemanı İş İlanları. Türkiye ve yurtdışında 26.000+ açık pozisyon arasından kolayca iş bul! Hızlı & ücretsiz. Tam zamanlı, dönemsel ve yarı zamanlı iş ilanları. Rekabet Maaşları. En büyük ve güvenilir iş verenler. Makina imalat elemanı işini bulmak çok
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İhracatçı Firmalar | Kocaeli Ticaret Odası](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## İhracatçı Firmalar | Kocaeli Ticaret Odası
+Firma Adı Adres Telefon Email BAYTEK AMB. SAN. VE TIC. A.Ş. OVACIK MAH.KULLAR CAD NO:179 BAŞİSKELE BAŞİSKELE (262) baytek@baytek.tr BİGBAGLAND AMBALAJ SAN.VE TİC.A.Ş. KURTYERİ MAH.KANDIRA CAD. 136/A
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İHRACAT GENELGESİ - Ticaret](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## İHRACAT GENELGESİ - Ticaret
+1 İHRACAT GENELGESİ Amaç MADDE 1 – (1) Bu Genelgenin amacı, ihracat bedellerinin yurda getirilmesine ilikin usul ve esasları düzenlemektir. Dayanak MADDE 2 – (1) Bu Genelge, 7/8/1989 tarihli ve 89/14391 sayılı Bakanlar Kurulu Kararı ile yürürlüğe
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yapı Malzeme - Mart 2017 by yapı malzeme - Issuu](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Yapı Malzeme - Mart 2017 by yapı malzeme - Issuu
+Proje için özel dizayn edilen VARIO GT 24 Sistem perde kalıbı; H=8,00 m. yükseklikte perde ve guseli kolon imalatlarının 60 kN/m² taze beton basıncına dayanacak şekilde imal 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kasım Aralık 2020 by GIDA TÜRK DERGİSİ - Issuu](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Kasım Aralık 2020 by GIDA TÜRK DERGİSİ - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İhracat Genelgesi – Bilmek Hakkınız.](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## İhracat Genelgesi – Bilmek Hakkınız.
+İHRACAT GENELGESİ Amaç MADDE 1 – (1) Bu Genelgenin amacı, ihracat bedellerinin yurda getirilmesine ilişkin usul ve esasları düzenlemektir. Dayanak MADDE 2 – (1) Bu Genelge, 7/8/1989 tarihli ve 89/14391 sayılı Bakanlar Kurulu Kararı ile yürürlüğe konulan Türk Parası Kıymetini Koruma Hakkında 32 Sayılı Karar ile 4/9/2018 tarihli ve 30525 sayılı Resmî Gazete'de 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kimler İhracat Yapabilir? - BODTO](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Kimler İhracat Yapabilir? - BODTO
+DıĢ Ticaret Mevzuatı 1.95/7623 sayılı İhracat Rejimi Kararı (06.01.1996/22515 RG) 2.İhracat Yönetmeliği (06.06.2006/26190 ve 12.7.2008/26934 RG) 3.İhracat Rejimi Kararı'na bağlı İhracat Tebliğleri 4.Dış Ticarette Teknik Düzenlemeler ve Standardizasyon
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İhracat Türleri - Faydalı Bilgiler](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## İhracat Türleri - Faydalı Bilgiler
+Özellik Arz Etmeyen İhracat Kayda Bağlı İhracat Kredili İhracat Konsinye İhracat İthal Edilmiş Malların İhracı Serbest Bölgelere Yapılacak İhracat 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![RAF 33 by Arkitera - Issuu](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## RAF 33 by Arkitera - Issuu
+TEMMUZ 2011 1 S.33 ürün dergisi ISSN: e urun u ur urun urun urun r il ürün e il ür run urun urun u u . r rün yeşil ürun yeşil.. un urun urun urun ürün yeşil 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İHRACAT - Ticaret](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## İHRACAT - Ticaret
+Yurtdışı Müteahhitlik Hizmetleri Kapsamında İhracat Konsinye İhracat Yurtdışı müteahhitlik hizmetleri kapsamında geçici olarak ihraç edilecek eşyaya ilişkin başvurular 2013/1 sayılı Yurtdışı Müteahhitlik ve Teknik Müşavirlik Hizmetleri Kapsamında Yapılacak İhracat
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pablo Neruda Yaşadığımı İtiraf Ediyorum Alan Yayınları by .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Pablo Neruda Yaşadığımı İtiraf Ediyorum Alan Yayınları by .
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kasım Aralık 2020 by GIDA TÜRK DERGİSİ - Issuu](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Kasım Aralık 2020 by GIDA TÜRK DERGİSİ - Issuu
+Bu sistemde, zamanında olgunlaşan zeytin daneleri belirli süre içerisinde (ortalama 24 saat)aroması bozulmadan hijyenik bir ortamda kırıcılar tarafından parçalanarak hamur haline getirilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İhracat Türleri - TİM](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## İhracat Türleri - TİM
+A- Genel Esaslar İhracat işleminin başlaması için ihracatçıların,İhracatçı Birlikleri Genel Sekreterliğine onaylattıkları gümrük beyannamesi ile ihracatın yapılacağı gümrük idaresine başvurmaları gerekir. B- Ön İzne Bağlı İhracat İhracı uluslararası anlaşma, kanun 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İnşaat Sektöründe Öncü Fabo - MaxiCep](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## İnşaat Sektöründe Öncü Fabo - MaxiCep
+İnşaat sektörünün vazgeçilmez ana malzemesi olan kırma eleme tesisi ve beton santralleri alanında güvenilir, kaliteli ve uygun üretim sağlayan https://fabo.tr bu alanda ihtiyaçlarınızı karşılamaya yönelik hizmetler verir. Türk malı olan Fabo Fabrikası İzmir Torbalı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İhracat çeşitleri nelerdir? - Export Act](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## İhracat çeşitleri nelerdir? - Export Act
+İhracat sürecinde bilmemiz gereken en önemli konulardan biri yapılacak ihracatın hangi usulde hangi ülkeye gönderileceğidir. Bununla birlikte ihraç edeceğimiz ürünü de iyi tanımalı ve ihracatı açısından ne gibi prosedürlere tabi tutulacağını da bilmeliyiz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

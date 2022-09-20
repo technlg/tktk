@@ -1,0 +1,85 @@
+# termik santralin kul şartlandırma bitki ppt
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Enerji ve Çevre - ResearchGate](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## (PDF) Enerji ve Çevre - ResearchGate
+PDF | On Jan 1, 2009, Elif Atabek Yiğit published Enerji ve Çevre | Find, read and cite all the research you need on ResearchGate The relationship between cognitive structure outcomes of 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![3. ÜNİTE](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## 3. ÜNİTE
+jisine dönüştürür. Bu prensiple çalışan termik santrallere, buhar türbinli santraller denir. Şekil 3.2 Bir buhar türbinli termik santralin prensip şeması Buhar türbinli santrallerde yakıt olarak linyit kömürü, fuel-oil, doğal gaz ve büyük şehirlerin çöp atıkları kullanılır
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırklareli'de termik santral tehlikesi](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Kırklareli'de termik santral tehlikesi
+bitki örtüsü gibi tüm canlı çeşidini barındıran bir ortamdır, yani bir ekosistemdir. Tüm bu sebeplerden bir araziye verilen zararlar "Ekolojik maliyet" olarak hesaplanmalı ve değerlendirilmelidir. Kırklareli Dokuzhöyük Bölgesinde önerilen termik santralin kurulacağı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Full text of "M.E.B Lise Fizik Kitapları" - Internet Archive](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Full text of "M.E.B Lise Fizik Kitapları" - Internet Archive
+An icon used to represent a menu that can be toggled by interacting with this icon.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Coğrafya Bölümü İndexi 12.08.2018 - FrmTR](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Coğrafya Bölümü İndexi 12.08.2018 - FrmTR
+31/5/2017· Türkiye nin Bitkileri ve Başlıca Bitki Top Türkiye nin Dünya üzerindeki yeri ve Jeopolitiği Türkiye nin Madenleri ve Enerji Kaynakları Türkiye nin Su Varlığı Türkiye nin Toprak Tipleri ve Toprak Kul Türkiye nin Yer Şekilleri Ülkeler coğrafyası Yerin İç Yap, Levha Har
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAKAN KURUM'DAN TERMİK SANTRAL AÇIKLAMASI](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## BAKAN KURUM'DAN TERMİK SANTRAL AÇIKLAMASI
+Çevre ve Şehircilik Bakanı Murat Kurum, Çevre Kanunu'nun 11 ve 15'inci maddeleri gereği, 5 termik santralin tamamen, 1 termik santralin ise kısmi olarak kapatılmasına, diğer 7 santralden 4'üne geçici faaliyet belgesi verilmesine, 3 santrale ise gerekli çevre.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Termik Santraller - [PPT Powerpoint]](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Termik Santraller - [PPT Powerpoint]
+Termik Santraller Enerji Ekonomisi Sunum Notları 2011 TERMİK SANTRAL NEDİR, NASIL ÇALIŞIR? Termik santraller katı, sıvı ve buhar halindeki yakıtlarda var olan kimyasal. Post on .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Enerji ve Çevre - ResearchGate](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## (PDF) Enerji ve Çevre - ResearchGate
+PDF | On Jan 1, 2009, Elif Atabek Yiğit published Enerji ve Çevre | Find, read and cite all the research you need on ResearchGate
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Termik Santrallerin Doğaya ve Üretime Olan Etkisi – Kobi .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Termik Santrallerin Doğaya ve Üretime Olan Etkisi – Kobi .
+Her bir santralin etki alanı 150–200 Km. çapta ve yeni santrallerin de kurulumu ile etki alanı ciddi boyutlara ulaşıyor. Ayrıca hava kirliliği de ciddi boyutlara ulaşmak üzere. Kömürlü termik santrallerinin atmosfere sera gazı salgılaması iklim değişikliklerine de neden olmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Slide 1](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Slide 1
+YENİLENEBİLİR ENERJİ KAYNAKLARI ELET 319 Yrd. Doç. Dr. Mustafa İLKAN
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![documents.worldbank](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## documents.worldbank
+El 307 GENERAL DIRECTORATE OF ELECTRICITY GENERATION CORPORATION INC. AFSiN-ELBiSTAN A THERMAL POWER PLANT REHABILITATION AND CONSTRUCTION OF FLUE GAS DESULPHURIZATION UNIT PROJEC
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![52yasam by Istanbul SMMM Odası - Issuu](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## 52yasam by Istanbul SMMM Odası - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Snowball](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Snowball
+a a'da a'daki a'dan a'nın a'ya aa aa'nın aa'ya aaa aacakları aacağı aacağız aarayış aaron aasset ab ab' ab'ci ab'cilikte ab'de ab'den ab'li ab'ne ab'nin ab'nın ab'ye ab'
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bakan Kurum: 5 Termik Santral Tamamen Kapatıldı | Enerji .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Bakan Kurum: 5 Termik Santral Tamamen Kapatıldı | Enerji .
+Çevre ve Şehircilik Bakanı Murat Kurum, ülke genelinde denetimlerini aralıksız sürdürdükleri 52 kömür ve linyit yakıtlı termik santralin bulunduğunu aktardı. Ayrıca Kurum, yasal düzenlemelerle 2013 yılından itibaren, termik santral tesislerine 6446 sayılı Elektrik Piyasası Kanunu'nun geçici 8'inci maddesine göre, gerekli çevresel yatırımları yapmaları ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇAYIRHAN TERMİK SANTRALİNİN ENERJİ VE EKSERJİ ANALİZİ](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## ÇAYIRHAN TERMİK SANTRALİNİN ENERJİ VE EKSERJİ ANALİZİ
+2. TERMİK SANTRALİN TANITIMI Çayırhan Termik Santrali; Ankara'ya 120 km, Beypazarı'na 22 km ve Nallıhan'a 37 km mesafededir. Çayırhan Termik Santralinin tesis şeması Şekil 1'de gösterilmektedir. Çayırhan Termik Santrali'nde,
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Turkiye BMIDCS I Ulusal Bildirim - Scribd](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Turkiye BMIDCS I Ulusal Bildirim - Scribd
+Ancak, FGD tesislerinin oldukça yüksek bir yatırım maliyeti getirmesinden dolayı eski termik santrallerin hepsinin takviye edilmesi mümkün olamamıştır. Öte yandan, ilgili Yönetmeliğin (1986) çıkarılmasından sonra planlanan yeni linyitli enerji santralleri için FGD tesislerinin kurulması planlama aşamasında dikkate alınmış ve santralin kendisiyle birlikte ihaleye 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TERMÝK SANTRALLERDE VERÝMLÝLÝK ÇALIÞMALARI VE .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## TERMÝK SANTRALLERDE VERÝMLÝLÝK ÇALIÞMALARI VE .
+TERMÝK SANTRALLERDE VERÝMLÝLÝK ÇALIÞMALARI VE KAZANIMLAR ABSTRACT In recent years, climate change is one of the main items on the agenda of the World. According to 450 ppm scenario (max. 2 C global warming), yearly CO emission should
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bartın Platformu: "Kömürlü Termik Santralın ÇED Süreci .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Bartın Platformu: "Kömürlü Termik Santralın ÇED Süreci .
+Bartın Platformu, Bartınlıların termiksiz yaşam talebinin 2009'dan beri 13 kez idari ve mahkeme kararlarıyla tescil edildiğini belirtti, termik santral ÇED sürecinin bir an önce durdurulmasını istedi. 10 yılı aşkın süredir Hattat Holding'in Amasra'ya yapmak istediği kömürlü termik santral projesine karşı mücadele veren Bartın Platformu, Amasra Belediyesi'nde 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![T.C. KİTAPÇIK TÜRÜ MİLLÎ EĞİTİM BAKANLIĞI Ölçme .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## T.C. KİTAPÇIK TÜRÜ MİLLÎ EĞİTİM BAKANLIĞI Ölçme .
+TARIM VE KÖYİŞLERİ BAKANLIĞI PERSONELİNİN UNVAN DEĞİŞİKLİĞİ SINAVI 29. GRUP: ELEKTRİK TEKNİSYENİ 28 ARALIK 2008 Saat:10.00 T.C. MİLLÎ EĞİTİM BAKANLIĞI EĞİTİM 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TERMİK SANTRALLARIN ÇEVRESEL ETKİLERİ](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## TERMİK SANTRALLARIN ÇEVRESEL ETKİLERİ
+TERMİK SANTRALLARIN ÇEVRESEL ETKİLERİ 2.a Kömürle çalışan termik santralların çevresel etkileri ve önleme olanakları Türkiye'nin sahip olduğu en bol fosil kaynaklı yakıt, düşük-kaliteli ve yüksek derecede kirlenmeye yol açan linyittir ve en bol bulunduğundan ülke enerji üretiminin belkemiğidir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sektorum Dergisi 89. sayı-haziran 2018 by Sektörüm .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Sektorum Dergisi 89. sayı-haziran 2018 by Sektörüm .
+Sektorum Dergisi 89. sayı-haziran 2018 Philips Aydınlatma Kamu İlişkiler Müdürü Ahmet SOYLU ahmet.soylu@philips Aydınlatma ve Kent Estetiği Birleşmiş Milletler rakamlarına göre 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,49 @@
+# kolombiya arazi ölcumu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya Hakkında](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Kolombiya Hakkında
+Kolombiya ya da resmî adıyla Kolombiya Cumhuriyeti, Güney Amerika´da yer alan bağımsız bir cumhuriyettir. Ülke 32 Departamento ve başkenti ilçesi adı verilen eyaletlerden oluşur. Başkenti Bogotá´dır. Kolombiya kuzeyinde Karayip Denizi; doğusunda Venezuela 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüzölçümlerine göre ülkeler listesi - Vikipedi](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Yüzölçümlerine göre ülkeler listesi - Vikipedi
+Yüz ölçümlerine göre ülkeler listesi, dünya üzerinde egemen devletler ile bağımlı bölgelerin toplam yüz ölçümlerine göre sıralandığı listedir. Bu listedeki egemen devletler ile bağımlı bölgeler, ISO 3166-1 standartları doğrultusunda eklenmiştir. Genellikle pek 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KOLOMBİYA hakkında 25 ilginç özellik - YouTube](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## KOLOMBİYA hakkında 25 ilginç özellik - YouTube
+20/9/2017· About Press Copyright Contact us Creators Advertise Developers Terms Privacy Policy & Safety How YouTube works Test new features
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiyayî - Wîkîpediya](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Kolombiyayî - Wîkîpediya
+Kolombiyayî yan jî kolombiyan (bi spanî: Colombianos), gelên Komara Kolombiyayê, welatekî etnîkî yên Amerîkaya Başûr in û kesên ku bi nasnameya çandî an neteweyî yên Kolombiyayê tê nasandin. Kolombiyayî bi piranî xiristiyan in û navhevketî yên ewropî, xwecihên Amerîkayê, Afrîka û .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Olaya, Antioquia, Kolombiya - Şehir ve dünyanın Köyü](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Olaya, Antioquia, Kolombiya - Şehir ve dünyanın Köyü
+Olaya : Yer Olaya : Ülke Kolombiya, Bölümü Antioquia. Bilgi mevcut değil : Posta Adresi, Telefon, faks numarası, İnternet sitesi, e-posta, Belediye başkanı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KOLOMBÄ°YA Ã LKE NOTU 2016 - ASO](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## KOLOMBÄ°YA Ã LKE NOTU 2016 - ASO
+NÕVPÕ HUHO LoHULNOL PDGHQFLOLN U QOHUL RWRPRELO PRQWDMÕ NLPDVDOODU SHWURO LúOHPH YH SHWURNLPDGÕU HOHQHNVHO ROPDDQ LKUDo U QOHULQLQ LKUDFDWWDNL SDÕ LVH VRQ ÕOODUGD DUWPDNWDGÕU +L]PHWOHU
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiyanın Tarihi | Tarih Sayfası](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Kolombiyanın Tarihi | Tarih Sayfası
+Kolombiya toprakları, 16. yüzyılın başlarında Ganzalo Jiménez de Quesada ve Sebastian de Balalcozar komutasındaki İspanyollar tarafından bulunmuş ve sömürge haline getirilmiştir. On sekizinci yüzyıla kadar ülke, İspanyol asıllı beyazlar tarafından yönetildi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya Fiyatları Nisan 2021 restoranlar, yiyecek ve .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Kolombiya Fiyatları Nisan 2021 restoranlar, yiyecek ve .
+Kolombiya hangi para birimi kullanılır? Para birimi hakkında bilgiler aşağıda veda edebilirsiniz: Kolombiya is para birimi Kolombiya Pesosu (COP). 1$ (peso) 100 centavo ayrılır. 8 farklı sikkeler vardır: $5, $10, $20, $50, $100, $200, $500, $1000. 6 aşağıdaki değerlere 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![kat kolombiya kiremitler](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## kat kolombiya kiremitler
+Facts about Korea (Turkish) - Scribd gstermitir. 1985te konutlarn sadece %13.5i apartman iken, 2005 ylnda apartmanlarn oran %52.5e ulamtr. Koredeki apartmanlarn ounda kat mulkiyeti yaygndr. 1975 ylnda 11,183 idi ve bu say 2007de 52,914e kt. Bu arada
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya Gezi Notları -1- | Rotasız Seyyah](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Kolombiya Gezi Notları -1- | Rotasız Seyyah
+5 Ayımı Kolombiya'da geçirdikten sonra öncelikle ülke hakındaki tek nefeslik görüşümü paylaşayım; Gece gündüz farketmeksizin sokakta yürürken her an bir yerlerden marijuana kokusu alabilirsin. Eğlenceye aşırı düşkündürler. Türk dizileri TV'lerinde çok yaygındır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya - İNSAMER](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Kolombiya - İNSAMER
+Kolombiya'nın dış ticaret hacmi 80-90 milyar dolar bandındadır. Son olarak 2017 yılında 46 milyar doları ithalat, 37.7 milyar doları ihracat olmak üzere toplam dış ticaret hacmi 83.8 milyar dolar olarak gerçekleşmiştir. En önemli ihracat kalemleri ham petrol, taş 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya - Vikipedi](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Kolombiya - Vikipedi
+Kolombiya (İspanyolca: Colombia (yardım · bilgi)), resmî adıyla Kolombiya Cumhuriyeti (İspanyolca: República de Colombia (yardım · bilgi)), Güney Amerika'da yer alan ve Kuzey Amerika'da adaları bulunan bir ülkedir. Kuzeybatıda Panama, kuzeyde Karayip Denizi, doğuda Venezuela ve Brezilya, güneyde Ekvador ve Peru ve batıda Büyük Okyanus ile çevrilidir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

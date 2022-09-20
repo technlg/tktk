@@ -1,0 +1,81 @@
+# avrupa kömur madenleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![AFRİKA'DA MADENCİLİK l(+)](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## AFRİKA'DA MADENCİLİK l(+)
+AFRİKA'DA MADENCİLİK l(+) Yakın, çağların tarihi, madenciliğin dai ma geri kaimış milletlerin, gelişmesinde bü yük bir rol oynadığını ispat etmiştir. Avust ralya' kıt'ası, A: B. D. lerin batısı, Kanada-nın kuzeyi ve bütün Sibirya'nın kuzey doğu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ata Binerken | Ata Binerken ne demek? | Ata Binerken .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Ata Binerken | Ata Binerken ne demek? | Ata Binerken .
+Normal şartlarda LCD TV'ler için kullanılan standart 8 bit paneller, 256 kademeli renk geçişi yeteneğine sahiptir. BRAVIA D3000 Serisi için kullanılan 10 bit panel, 1024 geçiş gölgesi sağlar. Pikselleri açıp kapatan, her biri kırmızı, yeşil ve mavi renkleri görüntülemek 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GÃ¶l GÃ¶rmek | GÃ¶l GÃ¶rmek ne demek?](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## GÃ¶l GÃ¶rmek | GÃ¶l GÃ¶rmek ne demek?
+Konum: Orta Avrupa, Baltik Denizi ve Kuzey Denizi kıyısında, Hollanda ile Polonya arasında, Danimarka'nın güneyinde yer almaktadır. Coğrafi konumu: 51 00 Kuzey enlemi, 9 00 Doğu boylamı. Haritadaki konumu: Avrupa. Yüzölçümü: 357,021 km².
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![AVRUPA MAHALLESİ KONUTLARI](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## AVRUPA MAHALLESİ KONUTLARI
+Konutkent Mah. 2432. Cadde, No: 216 Çayyolu – Ankara Tel: 0 312 242 19 90 – 91 Faks: 0 312 242 25 03
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Avrupa Global Isınmadan Dolayı Tüm Kömür Madenlerini .](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Avrupa Global Isınmadan Dolayı Tüm Kömür Madenlerini .
+Avrupa Birliği'nde kar etmeyen her kömür madenin 2019'un ilk günü itibariyle durduruluyor. İspanya'da 26 kömür madeninin artık kapanmak üzere olduğu bildiriliyor. Her ne kadar Avrupa'da kömür madenleri kapatılmaya çalışılsa da, ABD kömür madenlerini yaşatmaya çalışıyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ASARI ATİKA - Turkish Naval Forces](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## ASARI ATİKA - Turkish Naval Forces
+132 NAKKAŞHANE İHTİYACI İÇİN AVRUPA'DAN GETİRİLEN 50 FIÇI 9000 OKKA ÜSTÜBEÇİN BEDELİ 23000 KURUŞ OLUP GÜMRÜK RESMİNİN İSE 1840 KURUŞ OLDUĞU. BÖLÜM Muhasebe TARİH 13EYLUL1900 DOSYA NO 1798 SAYFA NO
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KURUŞ E:saharda kop=a=c=a=k=·=k=ıy=anıet](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## KURUŞ E:saharda kop=a=c=a=k=·=k=ıy=anıet
+Trakya ve Avrupa ile telefon mubaberclerı Flrtma dolayısile haUaruı bozUlnıa sı yllzllndcn Avrupa ile t.elcfoo muha· berelerinin Ulnıamlle kesild!ğlnl yaz-1J111ilık. BUtUD gayreUerc rağmen he. nll.z bu muhabereler temin edllcmcmı, ur. Trakya.da Avrupa teieton
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Avrupa Global Isınmadan Dolayı Tüm Kömür Madenlerini .](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Avrupa Global Isınmadan Dolayı Tüm Kömür Madenlerini .
+Avrupa Birliği'nde kar etmeyen her kömür madenin 2019'un ilk günü itibariyle durduruluyor. İspanya'da 26 kömür madeninin artık kapanmak üzere olduğu bildiriliyor. Her ne kadar Avrupa'da kömür madenleri kapatılmaya çalışılsa da, ABD kömür madenlerini
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Avrupa Avrupa 1.Bölüm - YouTube](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Avrupa Avrupa 1.Bölüm - YouTube
+Uzun uğraşlar sonucu Avrupa Birliği'ne kabul edilen Türkiye, yılbaşı gecesi 12'den itibaren resmen Avrupa Birliği üyesi olacaktır. Avrupa Birliği'nden Soruml
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Deniz Müzesi Komutanlığı - Belge Özetleri Kataloğu](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Deniz Müzesi Komutanlığı - Belge Özetleri Kataloğu
+BAHRİYE MÜZESİNDE MEVCUT 14 ADET TOP ASARI ATİKA OLDUGUNDAN BUNLARIN AVRUPA FABRİKALARINA SİPARİŞ EDİLEN TOPLAR İÇİN VERİLMEMESİ VE ASLİ HALLERİNE HALEL GELMEMEK ÜZERE YERLERİNDE KORUNMASI.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yeni İstanbul - Mart 1950 ~ Tam Metin](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Yeni İstanbul - Mart 1950 ~ Tam Metin
+1 Mart 1950 tarihli gazete - 2 Mart 1950 tarihli gazete - 3 Mart 1950 tarihli gazete - 4 Mart 1950 tarihli gazete - 5 Mart 1950 tarihl
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Avrupa'daki santraller ve kömür madenleri](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Avrupa'daki santraller ve kömür madenleri
+Kömürün ötesinde Avrupa Avrupa'daki TheMediTelegraph'a göre, yenilenebilirler tavan arasına kömür gönderiyor veya neredeyse. Aslında, eldeki veriler kömürle mücadelede ve temiz enerji devrimi ve sürdürülebilir seçimlerde dev adımlar atıyor. Aslında, son beş yılda, yenilenebilir enerji kaynakları, son 2017'de üretilen enerji arzı açısından kömürü aşma 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Avrupa Konutları Çamlıvadi - Avrupa Konutları](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Avrupa Konutları Çamlıvadi - Avrupa Konutları
+Avrupa Konutları en yeni projesi Çamlıvadi ile şehrin ve ormanın kesiştiği noktada. Kağıthane Arıcılar'da konumlanan Avrupa Konutları Çamlıvadi; bir yanında orman ile huzuru, diğer yanında TEM otoyolu ile ulaşım kolaylığını bir arada sunuyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Avrupa Avrupa 89-bolumden komik sahne - YouTube](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Avrupa Avrupa 89-bolumden komik sahne - YouTube
+About Press Copyright Contact us Creators Advertise Developers Terms Privacy Policy & Safety How YouTube works Test new features
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Baymirza Hayit - Sovyetlerde Türklüğün ve İslam'ın Bazı .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Baymirza Hayit - Sovyetlerde Türklüğün ve İslam'ın Bazı .
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![avrupa kömür madenleri - GerçekBilim](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## avrupa kömür madenleri - GerçekBilim
+avrupa kömür madenleri - Gerçek Bilim Son Dakika Haberleri Grafen Balon ile Soy Gaz Tespiti Yapılabiliyor Hayvanlar, Yanardöner Renkleri İletişim Kurmak İçin Kullanıyor Olabilir mi?
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![11 tez5 by Leon Trotsky - Issuu](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## 11 tez5 by Leon Trotsky - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KURUŞ E:saharda kop=a=c=a=k=·=k=ıy=anıet](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## KURUŞ E:saharda kop=a=c=a=k=·=k=ıy=anıet
+2 H A B E R - Aqam 'Postam Yazan: OTER O. [ 42 J Tercüme eden: V. G. Berlinde Lord İmparatoru ziyaret etmemizi mu· vafık buldu.Saraya gittik. Vilhelm gerek Lorda, gerek bana büyük bir iltifat gösteriyordu. Lord S . .bunlardan biriydi. In - giltcreni.n en a_ıJ bir ismine e en
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Avrupa](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Avrupa
+Avrupa Type Daily newspaper Format Tabloid Editor Şener Levent Political alignment Cypriot nationalism Social democracy Language Turkish Headquarters Avrupa is a daily newspaper published in Northern Cyprus.Its chief editor is Şener Levent.It supports the reunification of Cyprus and espouses left-wing values, being characterised in scholarship as radical left.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür - Vikipedi](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Kömür - Vikipedi
+Kömür, katmanlı tortul çökellerin arasında bulunan katı, koyu renkli, karbon ve yanıcı gazlar bakımından zengin kayaçtır. taşkömürü torkugillerden oluşur.Kömür çoğunlukla diğer elementlerin değişken miktarlarda bulunmasıyla oluşur. Asıl bileşeni karbondur; bunun yanında değişken miktarda hidrojen, kükürt, oksijen ve azot içerir..
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

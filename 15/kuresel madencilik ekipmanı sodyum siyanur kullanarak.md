@@ -1,0 +1,53 @@
+# kuresel madencilik ekipmanı sodyum siyanur kullanarak
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![kuresel ısınma by kerem gazioglu](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## kuresel ısınma by kerem gazioglu
+alım alınabilir iki daha az sıcak su kulan amlambalaj urunden kacın alabilecekler kuresel ısınma kuresel ısınma keremgazioğlu 4b tasaruf kulamak, evdencıkarken butun eşayı kapat! kuresel ısınma atmosferde artan sera gazlarlardır nedeni insanoğlu faaliyetleri yerleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KÜRESEL ISINMANIN ETKİLERİ | Biyosferdeki Canlılığın .](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## KÜRESEL ISINMANIN ETKİLERİ | Biyosferdeki Canlılığın .
+KÜRESEL ISINMANIN ETKİLERİ. 27 Mayıs 2015 Geçmişi Değiştiremeyiz Fakat Gelecek Bizim Elimizde! Denizler yılda 3 mm kadar yükselmektedir. Tuvalu gibi Pasifik ada ülkelerinde halk adayı terk etme planları yapmakta, New York ve Londra gibi yerler de büyük tehdit altındadır. Grönland erimeye başlamaktadır ve sadece 2 günde eriyen buzullar New York'un 1 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Küresel Isınma](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Küresel Isınma
+Küresel Isınma. Doğal sera etkisinin kuvvetlenmesine neden olan karbondioksit,metan,kloroflorokarbon gibi gazların miktarlarındaki artışlar,atmosferin alt tabakalarındaki ve yeryüzündeki sıcaklığı arttırmaktadır bu da 'Küresel Isınma' olarak adlandırılmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KÜRESEL ISINMAYI NASIL DURDURABİLİRİZ? - Birgül Kükrer](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## KÜRESEL ISINMAYI NASIL DURDURABİLİRİZ? - Birgül Kükrer
+Dünyada yedi milyardan fazla insan yaşıyor ve sanırım birçoğumuzun başımızın dertte olduğundan haberi vardır. Sanayileşme, ormanların azalması ve bunun paralelinde binaların çoğalması, hayvancılık, hava kirliliği gibi etkenler ile birlikte atmosferdeki sera gazı artıyor ve anormal iklim hadiseleri ortaya çıkıyor. Peki tüm bunlara kim sebep oluyor? Tabi ki biz! O 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Haberleri | Madencilik Sektörü Hakkında .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Madencilik Haberleri | Madencilik Sektörü Hakkında .
+Madencilik Sektörü Hakkında Herşey Yalan: Altın çıkarılması için siyanür kullanılıyor. Gerçek: Siyanür, altının çıkarılmasında değil, 'ayrıştırılmasında' kullanılıyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilikte siyanür kullanılmasına karşı eylem düzenlendi](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Madencilikte siyanür kullanılmasına karşı eylem düzenlendi
+Kuzey Kıbrıs ve Güney Kıbrıs'tan bazı sivil toplum örgütleri, bugün ara bölgede düzenledikleri eylemle, adada madencilik için siyanür kullanımının ve çevreye olumsuz etki yapacak madencilik faaliyetlerinin durdurulmasını talep etti.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KüreseL Isınma | Kimyacı eda](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## KüreseL Isınma | Kimyacı eda
+Google hesabınızı kullanarak yorum yapıyorsunuz. ( Çıkış Yap / Değiştir )
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KÜRESEL ISINMANIN TARIM VE SU KAYNAKLARI ÜZERĐNDEKĐ .](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## KÜRESEL ISINMANIN TARIM VE SU KAYNAKLARI ÜZERĐNDEKĐ .
+KÜRESEL ISINMA Dünya atmosferi çeşitli gazlardan oluşur. Güneşten gelen ışınlar (ısı ışınları/kısa dalgalı ışınlar), atmosferi geçerek yeryüzünü ısıtır. Atmosferin, ışığı geçirme ve ısıyı tutma özelliği vardır. Atmosferin ısıyı tutma yeteneği sayesinde
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![.pdf - Scribd](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## .pdf - Scribd
+HNO3 kullanarak bakırın neredeyse tamamını (=%100); çinko, nikel, demir gibi metalleri ise %60'tan daha düşük verimle çözeltiye aldıklarını belirtmiştir. Yapılan çalışmalar sonucu %30 Pd ve %80 Ag çözündüğü sonucuna ulaşmışlardır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">!['Küresel yönetim kurmalıyız'](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## 'Küresel yönetim kurmalıyız'
+2/10/2020· TBMM açılışında konuşan Cumhurbaşkanı Erdoğan, küresel düzenin kurumlarının tıkandığını belirterek "Dünyanın korunmaya ihtiyacı vardır. Bunları sağlayacak bir küresel yönetim düzeni kurmamız şarttır" dedi. Erdoğan, Azerbaycan'la ilgili de "Barışın yolu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Küresel piyasalarda karışık seyir - Dünya Gazetesi](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Küresel piyasalarda karışık seyir - Dünya Gazetesi
+Madencilik Mobilya Savunma Sanayi İklimlendirme Sürdürülebilir Dünya Şehirler İGA Enerji Dünya
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ « Futbol Tv](https://github.com/technlg/images/blob/main/47.jpg)</a>
+##  « Futbol Tv
+Yukarıdaki yöntemi kullanarak iPhone'unuzun konumunu, onu nerede unuttuğunuzu Google Maps üzerinde görebileceksiniz. iPhone'unuzu apartmanınızın herhangi bir yerinde unuttuysanız, onun çalmasını sağlayabilir ve sesi takip ederek cihazınızı bulabilirsiniz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">!['Küresel siyasetin günahları cinsel günahlardan daha .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## 'Küresel siyasetin günahları cinsel günahlardan daha .
+Küresel siyasetin günahları cinsel günahlardan çok daha büyüktür. O küresel günahlar Irak'ı bombaladı, bir milyon insanı öldürdü. Biz gusubetin sebeplerini izah ederken asla belirli bir gruba belirli bir günaha, belirli bir şahsa yöneltmemiz lazım.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

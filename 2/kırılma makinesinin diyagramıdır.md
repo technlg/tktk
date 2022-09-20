@@ -1,0 +1,61 @@
+# kırılma makinesinin diyagramıdır
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kıyma Makinesi Nasıl Çalışır? İzle Öğren - YouTube](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Kıyma Makinesi Nasıl Çalışır? İzle Öğren - YouTube
+About Press Copyright Contact us Creators Advertise Developers Terms Privacy Policy & Safety How YouTube works Test new features
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Shishonin: servikal osteokondrozlu boyun jimnastiği](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Shishonin: servikal osteokondrozlu boyun jimnastiği
+Osteochondrosis için jimnastik, bir bilgisayarın önünde, bir dikiş makinesinin arkasında, vb. - Bir kişi birkaç saat boyunca hareketsiz oturmaya zorlanırsa. Tüm egzersiz kompleksi 15-20 dakika sürüyor. Bu, bu arada İş Kanunu uyarınca sağlanan küçük bir kırılma
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırılma-7 (Prizmalarda Kırılma) + PDF - YouTube](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Kırılma-7 (Prizmalarda Kırılma) + PDF - YouTube
+24/9/2019· Kırılma-7 (Prizmalarda Kırılma) + PDFhttps://yadi.sk/i/ChUbhs0LF-HsxgFizik MakinesiFizik Kanalı10.4.6. KIRILMA10.4.6.1. Işığın kırılmasını, su dalgalarında k
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Öncü Teknolojiyle Verimli kazık kırma makinesi - .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Öncü Teknolojiyle Verimli kazık kırma makinesi - .
+Ürün ve tedarikçiler hakkında: Büyüleyici bir sağlam, verimli ve sağlam ürün yelpazesi. kazık kırma makinesi Alibaba'da mevcuttur. Çeşitli inşaat uygulamaları için gelişmiş özelliklerle yüklü.kazık kırma makinesi en son teknolojileri kullanır ve tüm inşaat, kazı ve sondaj gereksinimlerinizi üstün verimlilikle çözmek için özel olarak tasarlanmıştır 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Teknik İngilizce | A B](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## (PDF) Teknik İngilizce | A B
+aletler kaldırılmalıdır ve tüm kırılma ve kayıplar bildirilmelidir. 6)  Bir montaj teknisyeni kabloları ve anahtarlama donanımını bağlar.3) Çamaşır makinesinin kapısındaki plastik parça ısınır ve kilidi yerine iter. 4) Araba tekerleri, fren disklerini 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![150615 çağil korkusuz karakterizasyon by Çağıl .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## 150615 çağil korkusuz karakterizasyon by Çağıl .
+Buna göre, 320 nm dalga boyunda %1, %3 ve %5 kil içerikli nanokompozitlerin kırılma indisi değerleri sırasıyla 1,62; 2,18 ve 2,44 olarak ölçüldü [20]. 2.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dikiş Makinesi İğnesi Neden Kırılır?](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Dikiş Makinesi İğnesi Neden Kırılır?
+Dikiş makinesinin en çok kullanılan kısmı hiç şüphesiz iğnelerdir. Bu yüzden iğneler çok dikkatli şekilde kullanılmalı ve uzun süre kullanıldıktan sonra, değiştirilmelidir. Çünkü uzun süre kullanım sonrası iğnelerde körelme ve kırılma durumları çok yaşanıyor. Eğer dikiş makinanızın iğnesi herhangi bir nedene bağlı yeni aldığınız halde kırıldıysa 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![kırım makinesi - YouTube](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## kırım makinesi - YouTube
+About Press Copyright Contact us Creators Advertise Developers Terms Privacy Policy & Safety How YouTube works Test new features
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Beklentileri aşan tasarımlar: Geçmişten günümüze çamaşır .](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Beklentileri aşan tasarımlar: Geçmişten günümüze çamaşır .
+Yüzyıllar boyunca kadınlar çamaşırlarını dere veya akarsu kenarlarında ya da evlerinde leğenlerin içinde el gücüyle ovarak yıkadılar. Akarsuların olmadığı yerlerde çamaşırlar, demir ya da bakır leğenler içinde yıkanırdı. Çamaşırlarını el gücüyle yıkamak zorunda kalan kadınlara çocuklar da yardımcı olurdu. 18.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![polat-muhammet - Kaynak Tekniği](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## polat-muhammet - Kaynak Tekniği
+Kaynak makinesinin güç kaynağı uçları uzatılabildiği için uzak mesafedeki bağlantılarda kaynak yapılabilir.  olur.İkinci Dünya Savaşı esnasında ABD'de imal edilmiş Liberty tipi şileplerin büyük bir kısmı bu gevrek kırılma olayının kurbanı olmuş ve gemiler 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) TASARIMSAL DÜŞÜNME BECERİLERİ](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## (PDF) TASARIMSAL DÜŞÜNME BECERİLERİ
+kırılma noktalarını seçmek için gereken uyarlamalı uz manlık ve pratik gerektiren ayrıca yüksek dereceli bir entelektüel aktiviteyi gerekli kılar (Meinel ve Leifer, 2011). Şekil 2.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çamaşır Makinesi Rezistans Nasıl Değiştirilir ? Açıklamalı .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Çamaşır Makinesi Rezistans Nasıl Değiştirilir ? Açıklamalı .
+Arızalı bir ısıtıcı, hesaplanan değere yakın bir değer gösterecektir. Örneğimizde 24.2 ohm. Eğer multimetre 1 çıkışında ise, o zaman parçanın yapısında bir kırılma olur, eğer 0 – TEN kısa devresinde – TEN'i (servis merkezinde veya bağımsız olarak – farketmeden) .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırılma nedir? Kırılma indisi nedir? - Fizik Dersi](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Kırılma nedir? Kırılma indisi nedir? - Fizik Dersi
+Makine Kırılması Nedir? Bu poliçe imalat yılları, nitelikleri ve değerleri yazılı makine ve tesisleri, deneme devresinden sonra, normal çalışır halde iken veya aynı iş yerinde temizleme, revizyon veya değiştirme esnasında, dururken ani ve beklenmedik her türlü sebepten 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![malzeme - Scribd](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## malzeme - Scribd
+• Kırılma indisi küçük olan malzemelerde ışığın yayılması kolaylaşır, cisim ışığı yansıtır. Işığın vakumdaki C hızının malzeme içindeki v hızına oranına o malzemenin n kırılma indisi denir. Kırılma indisinin karesi, o cismin k dielektrik sabitine eşittir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırma Makinesi - YouTube](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Kırma Makinesi - YouTube
+VELİ İKİZ MAKİNE SANAYİİ0324 234 26 840533 356 26 84 bir çok noktadan kırım yaptığı için badem kolaylıkta bütün halinde çıkar. Andız 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

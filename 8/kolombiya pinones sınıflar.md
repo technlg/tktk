@@ -1,0 +1,49 @@
+# kolombiya pinones sınıflar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya Notları – Yol Hiç Bitmez, Uzar Gider..](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Kolombiya Notları – Yol Hiç Bitmez, Uzar Gider..
+Güney Amerika'nın her iki okyanusa da kıyısı olan tek ülkesi Kolombiya'nın nüfusu 46 milyon. Meksika'dan sonra dünyanın en çok İspanyolca konuşulan ikinci ülkesi. Ekvatora yakınlığı sayesinde ülkede yıl boyunca tek mevsim var: yaz. 1000Peso= 1 TL. Kahvesini duymayan yoktur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya Turu](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Kolombiya Turu
+Kolombiya, hem Karayip Denizi'ne ve hem de Pasifik Okyanusu'na açılabilen tek Güney Amerika ülkesidir. Ayrıca, And Dağları kuzeyden güneye doğru üç sıra halinde (cordilleras) uzanarak, ülkeyi değişik coğrafi bölgelere ayırır. Kahve diyarı olarak tanıdığımız Kolombiya tahmin edilemesi güç bir zenginliğe sahiptir. Altın tohumu kahvenin yanı sıra, Kolomb öncesi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya Bölgesindeki Doğa ve Vahşi Yaşam Bölgeleri: .](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Kolombiya Bölgesindeki Doğa ve Vahşi Yaşam Bölgeleri: .
+Kolombiya sınırlarındaki Eski Kalıntılar Kolombiya sınırlarındaki Mimari Yapılar Kolombiya sınırlarındaki Köprüler Kolombiya sınırlarındaki Kaleler Kolombiya sınırlarındaki Mezarlıklar Kolombiya sınırlarındaki Halk Merkezleri Kolombiya sınırlarındaki Dini Yerler
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![kolombiya bitkilerin göruntuleri](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## kolombiya bitkilerin göruntuleri
+kolombiya satılık cene kırıcılar kullanılır peru kolombiya taş kırıcılar satışı kolombiya madencilik hidrosiklonlar kolombiya pinones sınıflar mısır değirmenleri kolombiya fabrikalar 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya Amazonları'ndaki bu göl PİRANA BALIĞI .](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Kolombiya Amazonları'ndaki bu göl PİRANA BALIĞI .
+Kolombiya Merhabalar, ben Hale. Kolombiya gezisi sırasında Kolombiya Amazonları'ndaki bu göl PİRANA BALIĞI kaynıyor! gezi vlog videomu sizlerle paylaşıyorum.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![kolombiya panama ayrılmasını](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## kolombiya panama ayrılmasını
+University of Illinois at Urbana–Champaign İskoçya İngiltere Galler ve Kuzey İrlanda ile birlikte Birleşik Krallıkı oluşturan 4 ülkeden biri; İngiltereden sonra en fazla nüfusa sahip olan 2 Birleşik Krallık ülkesidir Ülke bağımsızlık isteğini referanduma götürme kararı almıştır 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya Gezi Notları -1- | Rotasız Seyyah](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Kolombiya Gezi Notları -1- | Rotasız Seyyah
+Her 3 sokakta bir kumarhane ya da tombala tarzı oyun oynatan yerler vardır. Erkek, kadın farketmeksizin dans etmeye bayılırlar. Normal bir cafede bile hoşlarına giden müzik çalarsa sıradan bir çiftin kalkıp dans ettiğini görebilirsin. 60 Yaşındaki amcalar bile dans eder.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya Hakkında](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Kolombiya Hakkında
+Kolombiya ya da resmî adıyla Kolombiya Cumhuriyeti, Güney Amerika´da yer alan bağımsız bir cumhuriyettir. Ülke 32 Departamento ve başkenti ilçesi adı verilen eyaletlerden oluşur. Başkenti Bogotá´dır. Kolombiya kuzeyinde Karayip Denizi; doğusunda Venezuela 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KOLOMBİYA ÜLKE RAPORU-2017 - konya ticaret odası](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## KOLOMBİYA ÜLKE RAPORU-2017 - konya ticaret odası
+Kolombiya, Latin Amerika'nın 4., dünyanın 28. büyük ekonomisidir. Mayıs 2013'te OECD ile üyelik müzakerelerine başlayan Kolombiya, OECD'ye üye olmayan ekonomilerin de en
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya - İNSAMER](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Kolombiya - İNSAMER
+Türkiye'nin Kolombiya'ya ihraç ettiği başlıca ürünler demir-çelik, çimento, kara taşıtları aksamı ve yedek parçaları ve hazır gıda mamulleridir. Türkiye'nin Kolombiya'dan ithalatının %96 gibi tamamına yakınını taşkömürü ve taşkömüründen elde edilen yakıtlar oluşturur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya'nın Şehirleri: Bogota, Cartagena, Medellin | .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Kolombiya'nın Şehirleri: Bogota, Cartagena, Medellin | .
+Kolombiya'nın Şehirleri Kolombiya'nın birbirinden güzel ve büyüleyici şehirlerinden bazıları; Bogota, Cartagena, Medellin, Guatape, Cali, Barranquilla, Leticia. Bogota
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolombiya - Vikipedi](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Kolombiya - Vikipedi
+3/4/2005· Economist Intelligence Unit tarafından, BRIC ülkelerine (Brezilya, Rusya, Hindistan ve Çin) ek olarak belirlenen yeni gelişmekte olan ülkeler sınıflaması CIVETS (Kolombiya, Endonezya, Vietnam, Mısır, Türkiye ve Güney Afrika Cum.). içinde Latin Amerika'dan yalnızca Kolombiya yer almaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

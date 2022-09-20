@@ -1,0 +1,69 @@
+# koni kırıcılar yılında partikul şekil artırma
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KON İKLER](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## KON İKLER
+ ÇEMBER KES İŞ EN İKİDO ĞRU ÇAKI ŞIK İKİDO ĞRU NOKTA HİPERBOL PARABOL EL İPS Bir dik koni ile bir düzlemin de ğişik açılarda kesi şmesi ile olu şan arakesite KON İK denir. MERKEZ İL EL İPS EL İPS İN ÇEMBERLER İ EL İPS İN ANAL İTİK İNCELENMES İHAKKINDA GENEL B İLG İLER, HATIRLATMALAR 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KONSİL - TDV İslâm Ansiklopedisi](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## KONSİL - TDV İslâm Ansiklopedisi
+Sözlükte "Kurul, meclis" anlamındaki Latince concilium dan gelen konsil (concile, council) kelimesi terim olarak özellikle Katolik Hıristiyanlık'ta inanç, ahlâk ve disiplin konularındaki problemleri karara bağlamak üzere davet edilen Katolik kilisesi piskoposlar kuruluna verilen addır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Cevher Hazırlama (Laboratuvar Deney Föyleri) | .](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## (PDF) Cevher Hazırlama (Laboratuvar Deney Föyleri) | .
+Koni üstten bastırılarak düzleştirilir. Düzleştirilmiş numune küçük karelere bölünür ve spatül yardımıyla her kareden büyüklüğü ile orantılı olarak numune alınır. Daha sonra, alınan numuneler birleştirilir (Şekil 7).Şekil 7. Spatül ile numune küçültme.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) YARAŞ, A., "Antik Sağlık Merkezi Allianoi ve .](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## (PDF) YARAŞ, A., "Antik Sağlık Merkezi Allianoi ve .
+YARAŞ, A., "Antik Sağlık Merkezi Allianoi ve Hastanesi'', Uluslararası Bergama Sempozyumu (07-09.04.2011 Bergama): .(ISBN: )
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konik Kırıcı - Pi Makina](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Konik Kırıcı - Pi Makina
+Konik kırıcılar granit, bazalt ve andezit gibi sert ve aşındırıcı dere ve ocak malzemelerini kırmak için tasarlanmıştır. Sekonder ve tersiyer kırıcı olarak kullanılmaktadır. Konik kırıcıların çalışma prensibi malzemeleri sıkıştırma, kesme ve bükme etkisiyle kırmaktır. Malzemeyi sıkıştırarak kırdıkları için düşük toz ve aşınma oranları sunmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![RAF 11 by Arkitera - Issuu](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## RAF 11 by Arkitera - Issuu
+Kasım 2007'de 11. sayısı yayınlanan RAF Ürün Dergisi'nde birçok yeni firma ve ürünleri tanıtılıyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Cevher Hazırlama (Laboratuvar Deney Föyleri) | .](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## (PDF) Cevher Hazırlama (Laboratuvar Deney Föyleri) | .
+Tuşlara 5 saniye basılmadan beklenirse cihaz tekrar çalışma konumuna geri döner (Zaman ayarında hızlı bir şekilde artırma ve azaltma yapmak istendiğinde tuşlara birkaç defa kısa süreli basıldıktan sonra uzun süreli basmak yeterlidir). Zaman ayarı yapıldıktan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konsillerin Hıristiyanlık Tarihindeki Yeri ve İznik Konsili](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Konsillerin Hıristiyanlık Tarihindeki Yeri ve İznik Konsili
+etrafında cereyan etmekteydi. İznik Konsil'i 325 yılında toplanmıştır. Arius, Oğul'un Baba ile aynı özden olmasını reddediyor ve Oğul'u, dünyadan önce yaratılmasına rağmen, yaratılmış/mahluk seviyesine indiriyordu. Konsilin kararı, anlaşmazlıkları sona erdirmek
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Koni Hesabı - MaliyetBul Türkiye](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Koni Hesabı - MaliyetBul Türkiye
+Geometrik Şekil Hesaplamaları Daire Daire Dilimi Daire Halkası Dikdörtgen Düzgün Altıgen Elips Paralel Kenar Üçgen Yamuk Küp Küre Silindir Koni Kare Tabanlı Piramit Birim Çevirici ÇŞB Yapı Yaklaşık Maliyetleri Pursantajdan Maliyet Hesaplama
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Koni ile ilgili Maksimum Minimum - Matematik](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Koni ile ilgili Maksimum Minimum - Matematik
+A) 1 B 4 3 8 ) C) D) 2 E) 3 2 3 : Çözüm 2 2 2 2 2 2 2 2 3 h 2 x r 2 x 1 Koninin hacmi r h 3 1 2 x 2 x 3 1 4 x 2 x 3 1 8 4x 2x x 3 Türev alıp 0'a eşitleyelim. 2 2 3x 2 x 1 (4 4x 3x ) 0 3 1 2 3x 2 x 0 3 3 x dir. 2 2 8 h 2 cm buluruz. 3 3 66.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAHÇIVANLIK EL KİTABI (2. KISIM) by Heisenberg - Issuu](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## BAHÇIVANLIK EL KİTABI (2. KISIM) by Heisenberg - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ekoyapı Ekolojik Yapı ve Yerleşimler Dergisi Sayı: 27 by .](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Ekoyapı Ekolojik Yapı ve Yerleşimler Dergisi Sayı: 27 by .
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bohemler by Cihan Eyri - Issuu](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Bohemler by Cihan Eyri - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İSTANBUL SERBEST MUHASEBECİ MALİ MÜŞAVİRLER ODASI .](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## İSTANBUL SERBEST MUHASEBECİ MALİ MÜŞAVİRLER ODASI .
+KONKORDATO KOMISERLIĞI BAŞVURUSU YOL HARITASI g) Fiilen yürütmekte olduğu mesleğinin ilgili mevzuatında, komiserliği yürütmesine engel bir hüküm bulunmamak. ğ) 26/9/2004 tarihli ve 5237 sayılı Türk Ceza Kanununun 53 üncü maddesinde belirtilen
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bilgiyelpazesi.Com](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Bilgiyelpazesi.Com
+KONİ, KONİNİN ÖZELLİKLERİ, KONİ ÇEŞİTLERİ İLE İLGİLİ KONU ANLATIMLAR (MATEMATİK DERSİ İLE İLGİLİ KONU ANLATIMLAR, ÖRNEKLER, ÇÖZÜMLÜ SORULAR) Tabanı daire biçiminde olan piramide koni adı verilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![4 Adımda Kondisyon Arttırmak](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## 4 Adımda Kondisyon Arttırmak
+Adım #4: Sürdürme Aşaması Kondisyon Arttırmak için son adım.İsminden de anlayacağımız gibi, programın bu son kısmı, hayat boyu yüksek bir kardiyovasküler işlev sürdürmenizi hedefler. Bu aşamada yapılacak antremanların haftada üç ila beş kez 30-45 dakika 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sâl-i Hezâr | Sâl-i Hezâr ne demek? | Sâl-i Hezâr anlamı .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Sâl-i Hezâr | Sâl-i Hezâr ne demek? | Sâl-i Hezâr anlamı .
+Yani Şubat 2000 yılında 29 çekebilirken 2100, 2200 ve 2300 yıllarında çekemeyecekti, o yıllarda Şubat 8 senede bir 29 gün olabilecekti. Bu sayede kullanılan takvim ile ideali arasındaki fark yılda 0,00030 güne düşürülmüştü ki bu da 33.000 yılda l günlük kayma demektir ve çok önemli değildir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

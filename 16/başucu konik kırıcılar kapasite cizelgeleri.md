@@ -1,0 +1,69 @@
+# başucu konik kırıcılar kapasite cizelgeleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ebsad - Eğitim Bilimleri ve Sosyal Araştırmalar Derneği](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Ebsad - Eğitim Bilimleri ve Sosyal Araştırmalar Derneği
+Kalp davulu metal konik gövde olarak yapılacak. Geniş tarafı 335cm, dar tarafı 20cm ve derinlik 35cm olup statik boya ile boyanacaktır. Kalp davulu 10cm çapında statik boyalı bir düzeneğe monte edilecek. 1 14 Mobius Bandı Bandın genişliği 120cm dir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En İyi Kalite taşınabilir konik kırıcı tesisi](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## En İyi Kalite taşınabilir konik kırıcı tesisi
+Alibaba'da en iyi fiyatlarla verimli taşınabilir konik kırıcı tesisi satın alın. Bunların taşınabilir konik kırıcı tesisi birden çok sektörde uygulamaları vardır. Sevkiyata Hazır Ticaret
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![A' Design Award and Competition - Content in Turkish](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## A' Design Award and Competition - Content in Turkish
+Turkish content and descriptions of award winning works This page provides A' Design Awards' Award winning work descriptions translated in Turkish. • Optik Enstalasyon: Opx2, doğa ve teknoloji arasındaki simgesel bağı inceleyen bir enstallasyon.Opx2'de 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kapı Altı Rüzgar Önleyici Gri - Bauhaus](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Kapı Altı Rüzgar Önleyici Gri - Bauhaus
+• 20 mm'ye kadar kapı altı aralıklarının kapatılması içindir.• Katlanabilir.• Isı kaybını önler.• Hava akımını engeller.• Toz ve kir geçirmez.• Dış yüzeyi deri kaplamadır.• Oda içerisindeki sıcak havanın dışarı çıkmasını engelleyerek enerji tasarrufu sağlar.• Kullanımı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![%ø5.,50$(/(0(7(6ø6ø1ø13(5)250$16,1,1'(ö(5/(1'ø5ø/0(6ø9( .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## %ø5.,50$(/(0(7(6ø6ø1ø13(5)250$16,1,1'(ö(5/(1'ø5ø/0(6ø9( .
+Konik kırıcı testlerine ait koşullar Çizelge 5'te su-nulmaktadır. Çizelge 5. Konik kırıcı test koşulları Test 1 Test 2 Test 3 Kapalı Ağız Açıklığı (mm) 22 18 15 Açık Ağız Açıklığı (mm) 54 50 47 Kapasite (t/s) 207 202 193 Devre etrafı numune alınan koşul
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ Katlanır Kapı Ceviz 82x203 cm | Katlanır .](https://github.com/technlg/images/blob/main/29.jpg)</a>
+##  Katlanır Kapı Ceviz 82x203 cm | Katlanır .
+Katlanır Kapı Ceviz 82x203 cm modelini uzun yıllar yıpranmadan kullanabilirsiniz. Farklı tasarıma sahip Katlanır Kapılar Koçtaş'ta! 500 TL VE ÜZERİ KARGO BEDAVA
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Türkiye Dergisi Sayı 10 by Madencilik .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Madencilik Türkiye Dergisi Sayı 10 by Madencilik .
+Sekonder kırıcılar olarak değerlendirilen CH serisi konik kırıcılar daha çok sert kayaçların  1600 ton/saat kapasiteye çıkılabilirken CM kırıcılar, 2500 ton/saat kapasite ile 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Seramik Konik Çapak Üreticilerinden ve .](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Yüksek Kaliteli Seramik Konik Çapak Üreticilerinden ve .
+Yüksek Kaliteli Seramik Konik Çapak Üreticilerini Seramik Konik Çapak Tedarikçilerini ve Seramik Konik Çapak Ürünleri en iyi fiyatta Alibaba'da bulun. Sevkiyata Hazır Ticaret Fuarı Kişisel Koruyucu Ekipman Alibaba'dan alın. Alibaba üzerinden satın Yardım
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) kirma-eleme-devrelerinin-tasarimi (1).pdf | deniz .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## (PDF) kirma-eleme-devrelerinin-tasarimi (1).pdf | deniz .
+3.1.6. Kırıcı Kapasiteleri Ve Ürün Tane Boyu Dagılımları Kapasite: Çeneli, döner konik, darbeli, standart, ve kısa kafalı symons, konik kırıcılar için yaklaşık kapasiteler. Çizelge 3.3 – 3.14'da verilmiştir. Daha önce belirtildiği gibi bu kapasite değerleri cevher
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Konik Kırıcı Tesisi Düzeni Üreticilerinden ve .](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Yüksek Kaliteli Konik Kırıcı Tesisi Düzeni Üreticilerinden ve .
+Yüksek Kaliteli Konik Kırıcı Tesisi Düzeni Üreticilerini Konik Kırıcı Tesisi Düzeni Tedarikçilerini ve Konik Kırıcı Tesisi Düzeni Ürünleri en iyi fiyatta Alibaba'da bulun. 24 saat
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Güçlü, Kesin karbür kaplı konik freze](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Güçlü, Kesin karbür kaplı konik freze
+Alibaba güvenebileceğiniz karbür kaplı konik freze ekipman sunmaktadır. İşi tamamlamanızı sağlayan güçlü, güvenilir endüstriyel karbür kaplı konik freze ve parçalara güvenin. Sevkiyata Hazır Ticaret Fuarı Kişisel Koruyucu Ekipman
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ürün ve Servislere Göre Firmalar: Yapı / İnşaat](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Ürün ve Servislere Göre Firmalar: Yapı / İnşaat
+Fındık kırıcılar, metal Fırın damlalık tepsileri, metal - ev içi kullanımına yönelik Fıçıda parlatılmış aletler, elmas Gaz kaynak çubukları, bakır ve alaşımları için Gaz kaynak çubukları, alaşım çelik için Gaz kaynak çubukları, paslanmaz çelik için Gaz lambaları
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Temel Madencilik Bilgileri .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## (PDF) Temel Madencilik Bilgileri .
+Basic Mining Handbook by Dr. E. Kömürlü, Dr.O.Aksoy and H.E. Yaman (Editors) May 2017, e-book of Madencilik Türkiye Dergisi, Ankara
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) AN OVERVIEW OF ASBESTOS EXPOSURE IN .](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## (PDF) AN OVERVIEW OF ASBESTOS EXPOSURE IN .
+AN OVERVIEW OF ASBESTOS EXPOSURE IN URBAN TRANSFORMATION AREAS IN TERMS OF OCCUPATIONAL HEALTH AND SAFETY
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Müşteri Al](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Müşteri Al
+Toggle navigation
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konut Kapıcıları Yönetmeliği - ](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Konut Kapıcıları Yönetmeliği - 
+Konut Kapıcıları Yönetmeliği. Bu Yönetmeliğin amacı, kapıcıların hizmetlerinin kapsam ve niteliği ile çalışma süresi, hafta tatili, ulusal bayram ve genel Amaç ve Kapsam Madde 1 — Bu Yönetmeliğin amacı, kapıcıların hizmetlerinin kapsam ve niteliği ile çalışma süresi, hafta tatili, ulusal bayram ve genel tatil günleri, yıllık ücretli izin hakları ve kapıcı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Elektirikli Basçek Kapı Açıcı | | Tedarik Hırdavat](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Elektirikli Basçek Kapı Açıcı | | Tedarik Hırdavat
+Elektirikli Basçek Kapı Açıcı Kol SİYAH,BEYAZ VE GRİ RENK SEÇENEKLERİ İLE Bina apartman giriş kapılarında Aliminyum,ahşap kapılarda hem kapıyı kendinize doğru çekip hemde butona basarak kapının açılmasını sağlar üzerine bağlantılı kablosu ile kolay 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,41 @@
+# kırıcılar d epiedra
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İ İ ÜİİĞİ AYA İ - Elektrik-Elektronik Mühendisliği](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## İ İ ÜİİĞİ AYA İ - Elektrik-Elektronik Mühendisliği
+İkili sayıların onlu sisteme dönüştürülmesi Daha önce değinildiği gibi, ikili sayılar onlu sisteme basamak değerlerine göre 2 üzeri değerlerle çarpılarak elde edilirler. Örneğin (100110,101) 2. sayısı için; 100110=0x20+1x21+1x22+0x23+0x24+1x25=2+4+32=38 0,101=1x2-1+0x2-2+1x2-3=. =0,625 (100110,101) 2. =(38,625)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![- YouTube](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## - YouTube
+About Press Copyright Contact us Creators Advertise Developers Terms Privacy Policy & Safety How YouTube works Test new features
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konjenital Kataraktlarda Cerrahi Tedavi Endikasyonları ve Optik .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Konjenital Kataraktlarda Cerrahi Tedavi Endikasyonları ve Optik .
+çocuklarda 1.50- 3.50 D, bir-dört yaş arasında ise 0.50-1.50 D ekleme önerilmektedir (19). Son yıllarda sıklıkla günlük değişim yumuşak lensler kullanılmaktadır. Neumann, günlük değişim yumuşak kontakt lenslerle çift taraflı afaklarda %78, tek taraflı afaklarda
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Primer Darbeli Kırıcılar - Fabo](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Primer Darbeli Kırıcılar - Fabo
+Primer Darbeli Kırıcılar Anasayfa Ürünler Sabit Konkasör Tesisleri Primer Darbeli Kırıcılar PDK-70 Primer Darbeli Kırıc ı PDK-90 Primer Darbeli Kırıcı PDK-100 Primer Darbeli Kırıcı PDK-120 Primer Darbeli Kırıcı PDK-150 Primer Darbeli Kırıcı PDK-180 Primer 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolorektal Kanser Cerrahisi Sonrası Önemli Bir Sorun: Fekal .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Kolorektal Kanser Cerrahisi Sonrası Önemli Bir Sorun: Fekal .
+Atıf/Citation: Aktaú D, Koçaúlı S. (2020). Kolorektal kanser cerrahisi sonrası önemli bir sorun: Fekal inkontinans. Ordu Üniversitesi Hemúirelik Çalımaları Dergisi, 3(1), 36-43. DOI:10.38108/ouhcd.712645 Ordu Üniversitesi Hemşirelik Çalışmaları Dergisi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çok Satanlar | D&R - Kültür, Sanat ve Eğlence Dünyası](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Çok Satanlar | D&R - Kültür, Sanat ve Eğlence Dünyası
+Çok Satanlar | D&R - Kültür, Sanat ve Eğlence Dünyası. Binlerce kitap, teknoloji ürünü, hediye, müzik, film ve daha fazlası indirim kampanyalarıyla kültür, sanat ve eğlence dünyası D.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Din Görevlisi hatıra defteridd 1 13.4.2017 11:53:16](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Din Görevlisi hatıra defteridd 1 13.4.2017 11:53:16
+D RE TIR EFTER˜ rırdım kendimi. "Benim yerim, yurdum, mekânım burasıdır." der, işe koyulurdum. Her şeyden önce caminin fizikî durumunu gözden geçirir, yapılması gerekenleri yapardım. "Ey cemaat! Para verin şu işle-ri yaptırayım." demezdim. Cemaatten
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![D uygulama dersleri de yapılacaktır.](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## D uygulama dersleri de yapılacaktır.
+SAĞLIK BİLİMLERİ FAKÜLTESİ UYGULAMA PROGRAMI İsim Staj GünüSoyisim Üyesi/GörevlisiBölüm Staj Saati İlgili Öğretim CANSEL GİDER Fizyoterapi ve Rehabilitasyon 21.11.2017 Salı 09:30-12:30 Sevgi Tetik- Arzu Dilekçier ELİF ÇEP Fizyoterapi ve
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÜNİVERSİTEDE SKANDAL! O REKTÖR İLE ÖĞRETİM .](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## ÜNİVERSİTEDE SKANDAL! O REKTÖR İLE ÖĞRETİM .
+Bir üniversitenin rektörü ile aynı üniversitenin öğretim görevlisi arasındaki mide bulandıran ilişkiden bahsetmiştim. O günden beri herkesten aynı soruyu ald
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![diyalize girmem gerekiyor mu - Tekin Akpolat](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## diyalize girmem gerekiyor mu - Tekin Akpolat
+ DİYALİZE GİRMEM GEREKİYOR MU? Prof. Dr. Tekin AKPOLAT Böbrek hastalığı ilerlerse böbrek birçok görevini daha az yapar, hastada daha önce olmayan belirti ve bulgular ortaya çıkar, hastanın yaşam kalitesi düşer ve kanda kreatinin
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

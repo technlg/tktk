@@ -1,0 +1,41 @@
+# kırıcılar osmaq öncesi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![OSMANLI-ALMAN ORTAKLIĞI BAŞLANGICI: BİRİNCİ .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## OSMANLI-ALMAN ORTAKLIĞI BAŞLANGICI: BİRİNCİ .
+Birinci Dünya Savaşı öncesinde çok yakın işbirliği içinde olmaktan uzak olmakla birlikte, iki imparatorluğun savaştaki ittifakı, savaş öncesi yakınlıklarının sonucu olmaktan çok her iki imparatorluğun kendi politik ve askeri amaçlarının doğal bir sonucudur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Okul Öncesi Öğretmenlerinin Okuma Yazmaya Hazırlık .](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Okul Öncesi Öğretmenlerinin Okuma Yazmaya Hazırlık .
+algılarının belirlenmesi için "Okul Öncesi Öğretmenlerinin Okuma Yazmaya Hazırlık Çalışmalarına İlişkin Yeterlilik Algılarını Belirleme Ölçeği"ni geliştirmektir. Araştırmanın örneklemini, Ankara ili merkez 8 ilçesine bağlı okul öncesi eğitim kurumlarında görev yapan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![I.Uluslararası Kıbrıs'ta Osmanlı İmparatorluğu Öncesi .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## I.Uluslararası Kıbrıs'ta Osmanlı İmparatorluğu Öncesi .
+Bilindiği üzere Kıbrıs'ın, tarih öncesi ve ortaçağ dönemlerine ait bilgiler genellikle objektif olarak değerlendirilememiş hatta bu dönemlerde adada yerleşik bir Türk varlığının 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Önce Okul Öncesi Ekibi Forum Sitesi - Biz Bu İşi Biliyoruz - .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Önce Okul Öncesi Ekibi Forum Sitesi - Biz Bu İşi Biliyoruz - .
+Önce Okul Öncesi Forum Sitesi > Forum > ETKİNLİKLER BÖLÜMÜ > OKUMA YAZMAYA HAZIRLIK ÇALIŞMALARI > KAVRAM GELİŞİM ÇALIŞMALARI
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Osmanlı ve Öncesi - En Yeni ve En Çok Satan Osmanlı ve .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Osmanlı ve Öncesi - En Yeni ve En Çok Satan Osmanlı ve .
+İlköğretim Yardımcı Okul Öncesi Eğitim 1.Sınıf İlköğretim 2.Sınıf İlköğretim 3.Sınıf İlköğretim 4.Sınıf İlköğretim Ortaokul Yardımcı 5.Sınıf Ortaokul 6.Sınıf Ortaokul 7.Sınıf Ortaokul 8.Sınıf Ortaokul
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Okul Öncesi İlk Günler Makas Çalışması Etkinlikleri](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Okul Öncesi İlk Günler Makas Çalışması Etkinlikleri
+Okul Öncesi Sınıf Grafikleri Okul Öncesi Çizgi Çalışmaları 2. BÖLÜM Şiirler,Tekerlemeler,Parmak Oyunları ve Masallar Okul Öncesi Planlar Okul öncesi Drama Planları Okul Öncesi Sınıf Kapı ve Duvar Süsleri Mezuniyet Etkinlikleri 3. BÖLÜM Baskı-Boya
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Osmak Rulo Makina San. ve Tic. Ltd. Sti. Osmaniye Makine .](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Osmak Rulo Makina San. ve Tic. Ltd. Sti. Osmaniye Makine .
+Osmak Rulo Makina San. ve Tic. Ltd. Sti. Osmaniye Makine Sanayi Endüstrisi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![kış konulu çizgi çalışması çizgiler sanat etkinliği çizgi ve .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## kış konulu çizgi çalışması çizgiler sanat etkinliği çizgi ve .
+3-4-5 Yaş Çocuklar İçin Sevimli Çizgi Çalışmaları1 sayısı çizgi çalışması,2 sayısı çizgi çalışması,3.3-4-5 Yaş Çocuklar İçin Sevimli Çizgi Çalışmaları.3-4-5 Yaş Çocuklar İçin Sevimli Çizgi ÇalışmalarıÇocuklar İçin Basit Yazıya Hazırlık Çalışmalarıokul öncesi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![önce şimdi sonra kavramı - OkulöncesiTR-Preschool](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## önce şimdi sonra kavramı - OkulöncesiTR-Preschool
+Okul öncesi önce şimdi sonra kavramı, önce şimdi sonra kavramı çalışmaları, önce şimdi sonra kavramı boyama sayfaları, kes yapıştır kalıbı, kalıpları, önce şimdi sonra kavramı örnekleri ve önce şimdi sonra kavramı planı, anasınıfı etkinlikleri çalışma sayfaları
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kıbrıs'ta Osmanlı Öncesi Türk Varlığı > Bilimdili](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Kıbrıs'ta Osmanlı Öncesi Türk Varlığı > Bilimdili
+Bunlar 1974 Mutlu Barış Harekâtı öncesi adada var olan Türkler ve bu harekât sonrasında adaya getirilip iskân ettirilen veya kendiliğinden gelip yerleşen Türkiyeli göçmenlerdir. Resmî tarih, harekât öncesinde adada yaşayan Kıbrıs'ın yerli Türk
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

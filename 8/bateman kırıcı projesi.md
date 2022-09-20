@@ -1,0 +1,161 @@
+# bateman kırıcı projesi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Emmy ödülünün kazananlarını seçti - Kadın ipuçları - 2021](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Emmy ödülünün kazananlarını seçti - Kadın ipuçları - 2021
+En iyi kadın oyuncu unvanı "Kadın akıntısı olabilirdi" adlı TV projesi için Alman kadın Anne Schudt'a gitti. İngiliz filmi "Elveda Halep" en iyi belgesel film ödülünü kazandı ve Sky News TV kanalı, Myanmar'daki Rohingya mültecilerini çevreleyen krizi kapsayan "Haberler" kategorisinde yer aldı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bateman Olayında Yeni Gelişmeler Ortaya Çıktı ~ Dijital .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Bateman Olayında Yeni Gelişmeler Ortaya Çıktı ~ Dijital .
+Bateman, Twitlonger mesajında, ekran görüntüsü ile yapılan tweetlerin sözde saldırıdan dört gün sonra 3 Ekim'den geldiğini açıkladı. Krystlin tarafından paylaşılan mesajlarda iddia edilen saldırı sonrasında bir otel odasını tutmaya çalıştıkları gözüküyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Batman projeleri - 05/04/2021](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Batman projeleri - 05/04/2021
+Batman projeleri Batman, yeni bir Anadolu Lisesi, Pansiyon ve Spor Salonlarına kavuşacak. Toplu Konut İdaresi (TOKİ) tarafından Batı Raman eteklerinde Karayün köyüne yakın yapılacak olan inşaatların ihalesi ilana çıktı. Batman, yeni bir Anadolu Lisesi, Pansiyon 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Cumhuriyet Tarihi Eğitim alanındaki Gelişmelerin .](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## (PDF) Cumhuriyet Tarihi Eğitim alanındaki Gelişmelerin .
+Bu çalışma yılları arasında Türk basınından hareketle, Türk eğitiminin geçirmiş olduğu süreci ortaya koymayı amaçlamaktadır. Bu bağlamda, dönemin öne çıkan konuların ilköğretim, orta öğretim, yükseköğretim alanındaki gelişmeler,
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Çivi Yazılı Kaynaklar ve Arkeolojik Bulgular Işığında .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## (PDF) Çivi Yazılı Kaynaklar ve Arkeolojik Bulgular Işığında .
+Academia.edu is a platform for academics to share research papers. Çivi Yazılı Kaynaklar ve Arkeolojik Bulgular Işığında Anadolu'da Demir Madeni ve Kullanım Alanları(IRON METAL AND USAGE AREA IN ANATOLIA IN THE LIGHT OF CUNEIFORM SCRIPT
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Eduardo Noriega – Kayıp Paylaşımlar Koleksiyoncusu](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Eduardo Noriega – Kayıp Paylaşımlar Koleksiyoncusu
+Yalanlarla gidersen, asla geri dönemezsin! 90'ların sonunda komedi ağırlıklı filmleriyle sinemaya giriş yapan Brad Anderson, kazandığı görece popcorn başarı sonrasn
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Peki kim alacak bizim boyumuzun ölçüsünü | Ayşe ÖZEK .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Peki kim alacak bizim boyumuzun ölçüsünü | Ayşe ÖZEK .
+Beslenme uzmanlarına göre, kadın ve erkeklerin beden ölçüsünün giderek genişlediği son 20-30 yıl, tarihteki en ani ve dramatik evrim geçirme süreci.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SM (1) - Scribd](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## SM (1) - Scribd
+Bu olumsuz ve çalışan açısından onur kırıcı davranışlar, örgütlerin kaçınılmaz sorunu mobbing (yıldırma) olarak tanımlanır. Mobbing, etik dışı davranış süreçleri aracılığıyla, çalışanların iş ve özel haya- tını, iş doyumunu, performansını, örgüt kültürünü, iklimini olumsuz yönde et- kileyen bir olgudur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gelbabana / Müzik / Mp3 / Mp3 Dinle / Mp3 İndir / Video .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Gelbabana / Müzik / Mp3 / Mp3 Dinle / Mp3 İndir / Video .
+Yapım : 2006, Fransa Tür : Komedi / Romantik Yönetmen : Alek Keshishian Oyuncular : Orlando Bloom, Catherine Tate, Brittany Murphy, Gwyneth Paltrow, Michael Lerner 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Batman Konut Projeleri](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Batman Konut Projeleri
+Yaşam alanlarında konfor ve huzuru bir arada yaşamak isteyenler için Batman'da çok sayıda konut projesi ile hayata geçirilen güzel projeler var. Bu projelere dâhil olarak kiradan kurtulmak isteyenler detaylar ile ilgili merak ettikleri her şeyi firmalar vasıtasıyla edinebilirler. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Batman Konut Projeleri - Batman Projeleri ve Fiyatları](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Batman Konut Projeleri - Batman Projeleri ve Fiyatları
+Batman konut projeleri konum, fiyat, ödeme planı, teslim tarihi, proje özellikleri, kat planları ve tüm proje detayları burada. Batman konut projeleri Konut Projeleri Batman Bölge Hastanesi'nin ek binası hizmete giriyor Batman Bölge Hastanesi'nin 100 yataklı ek hizmet
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Chris Hero - Chris Hero](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Chris Hero - Chris Hero
+Chris Spradlin (24 Aralık 1979 doğumlu), yüzük adı Chris Hero Amerikalı profesyone l güreşçi ve antrenör.Kahraman çalışanı var d Pro Wrestling Gerilla (PWG), Ring of Honor (ROH), Independent Wrestling Association Mid- dahil olmak üzere bir dizi bağımsız güreş promosyonu için Güney, Combat Zone Wrestling (CZW) ve Chikara ve ayrıca Japonya de Pro Wrestling Noah .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cenevre'de Nörobilim Masterı Eğitimi / Support for .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Cenevre'de Nörobilim Masterı Eğitimi / Support for .
+In the master, I'll be researching the effects of mentalization based therapy-developed by Peter Fonagy and Antony Bateman, renowned scholars in clinical psychology. I'll be research assistant in a project which aims to investigate the effects of mentalization-based therapy on children with ADHD (attention deficit hyperactivity disorder).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konya Vizyon sayı 13 by Medya F Group - Issuu](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Konya Vizyon sayı 13 by Medya F Group - Issuu
+Hüyük Kaymakamlığı Köylere Hizmet Götürme Birliği tarafından projesi hazırlanan Tolca Köyü Süt Sağım , yanlışlar karşısında isyankâr ve kırıcı olma özelliğini 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ford Otosan Yolsuzluk Haberleri - Timeturk Haber](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Ford Otosan Yolsuzluk Haberleri - Timeturk Haber
+Bateman ve Anne Leighton'un yer aldığı 'Dengesiz' izleyici ile buluşacak- 2016 yılında gösterime  dünya rallisinin kırıcı toprak ayağı olarak nitelendirilen Marmaris'te kıyasıya 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tüpraş, Batman'da Şemsiye Hareketi Projesini Hayata .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Tüpraş, Batman'da Şemsiye Hareketi Projesini Hayata .
+TÜPRAŞ Batman Rafinerisi çalışanlarının ürettiği "Şemsiye Hareketi Batman'da 100 güler yüz projesi" tanıtıldı. Projeyle, Batman'ın yakın köy ve kenar mahallelerinde, ekonomik ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Robert Sheehan 'Şemsiye Akademisi'nde Neden Dans .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Robert Sheehan 'Şemsiye Akademisi'nde Neden Dans .
+Robert Sheehan 'Şemsiye Akademisi'nde Neden Dans Etmekten Korktu? Robert Sheehan Netflix Orjinali'nde Klaus Hargreeves rolüyle geniş çaplı medyanın ilgisini çekiyor Şemsiye Akademisi.Ve hızlı zekâlı ve keskin dilli karakter sürekli olarak hoş görünmese de
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Haber Kategorileri - Batman Olay Gazetesi](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Haber Kategorileri - Batman Olay Gazetesi
+Diyanet İşleri Başkanı Prof. Dr. Ali Erbaş, programına Batman Valisi Hulusi Şahin'i ziyaret edere
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Sayı: 37, Dosya: Mektep: Okuyup Adam Olmak II | .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## (PDF) Sayı: 37, Dosya: Mektep: Okuyup Adam Olmak II | .
+İçindekiler Kudret EMİROĞLU: Sunuş DOSYA: Mektep: Okuyup Adam Olmak II Chris GRATIEN: Alternatif Öğrenci Hikayeleri Esra YAKUT: II. Meşrutiyet Dönemi'nde Mekteplerde Dinî Eğitim Ercan UYANIK: II. Abdülhamit İle Amerikan Protestan Misyonerlerinin
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) BİLDİRİLER KİTABI | Mustafa Kemal Topcu - .](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## (PDF) BİLDİRİLER KİTABI | Mustafa Kemal Topcu - .
+BİLDİRİLER KİTABI
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Borderline Kişilik Bozukluğunun Aktarım Odaklı .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Borderline Kişilik Bozukluğunun Aktarım Odaklı .
+Borderline kişilik bozukluğu geliştiren çocuklarda, bu entegrasyon süreci görülmez ve en yoğun duygulanım deneyimleri sabit ve patolojik bir intrapsişik yapı şeklinde kalarak idealize ve acı veren kısımlar arasında daha kalıcı bir bölme olarak yerleşir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Batman'da 'Sıfır Atık Projesi' açılış programı yapıldı - .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Batman'da 'Sıfır Atık Projesi' açılış programı yapıldı - .
+Batman Çevre Şehircilik İl Müdürlüğü tarafından 'Sıfır Atık Projesi' açılış programı yapılarak hayata geçirildi.Kaynak: https://ilkha/haber 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Determination of Mineralogical, Petrographic .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## (PDF) Determination of Mineralogical, Petrographic .
+Piroteknik Kaya Kırıcı Malzemelerin Mermer Ocaklarında Pasa Söküm İşlemlerinde Kullanılmas ı The Usage of Pyrotechnic Rock Br eaker Materials to Excavate of Waste Rock in Marble Quarries 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Batman haberleri "İnternetle Hayat Kolay Projesi" - 05 .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Batman haberleri "İnternetle Hayat Kolay Projesi" - 05 .
+"İnternetle Hayat Kolay Projesi" 16:13 05 Ağustos 2017 PAYLA Ş Facebook'ta Paylaş Twitter'da Paylaş WhatsApp'ta Paylaş KAYNAK AA EKLENME 05 Ağustos 2017, 16:13 GÜNCELLEME 05 Ağustos 2017 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mahkeme, photos on Flickr | Flickr](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Mahkeme, photos on Flickr | Flickr
+Flickr photos, groups, and tags related to the "Mahkeme," Flickr tag. Explore Recent Photos Trending Events The Commons Flickr Galleries World Map Camera Finder Flickr Blog Create Get Pro
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sirenin Sesi: Eylül 2014](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Sirenin Sesi: Eylül 2014
+Bateman karakteri, kuleleri şımarıkça gökyüzüne uzanan Manhattan'ın salt iktidarla beslenen büyük oyuncularını değil,  Guardian'ın haberine göre Gelecek Kütüphanesi projesi, 2114'e değin her yıl çeşitli yazarlardan yeni kaleme aldıkları metinlerin 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Abdullah Ado – Kayıp Paylaşımlar Koleksiyoncusu](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Abdullah Ado – Kayıp Paylaşımlar Koleksiyoncusu
+"Hikâye, tüm ülkeyi kasıp kavuran 12 Eylül 1980 darbesinin günler öncesi ve hemen sonrasının yansımalarının yaşandığı Mardin'in Nusaybin İlçesi'nde geçer.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Martin Buber'in Diyolojik Eğitim Anlayışı ve Karakter .](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## (PDF) Martin Buber'in Diyolojik Eğitim Anlayışı ve Karakter .
+Martin Buber'in Diyolojik Eğitim Anlayışı ve Karakter Eğitimine Yansıması
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Eosen yaşlı Avliyana Granitoyidinin (Gümüşhane) .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## (PDF) Eosen yaşlı Avliyana Granitoyidinin (Gümüşhane) .
+laboratuvarında çeneli kırıcı ve halkalı öğütücü ile yaklaşık 200 mesh boyutuna kadar öğütülerek toz haline getirilmiştir. H azırlanan 10 adet örn eğin tüm- ka ya jeoki mya 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Investigation of Usage of Basalts as Building Stone .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## (PDF) Investigation of Usage of Basalts as Building Stone .
+Piroteknik Kaya Kırıcı Malzemelerin Mermer Ocaklarında Pasa Söküm İşlemlerinde Kullanılmas ı The Usage of Pyrotechnic Rock Br eaker Materials to Excavate of Waste Rock in Marble Quarries 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Notlar ](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Notlar 
+<div style="text-align: justify;"><br /></div><div style="text-align: justify;"><br /></div><div style="text-align: justify;"><br /></div><div style="text-align 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Zehra Tunçcu (zehratuncu) - Profil | Pinterest](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Zehra Tunçcu (zehratuncu) - Profil | Pinterest
+Dünyanın en büyük fikir koleksiyonu olan Pinterest'te, Zehra Tunçcu adlı kullanıcının (zehratuncu) neler keşfettiğini görün.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mereto - BATMAN'DA HAYVANCILIK PROJESİ!..(3)](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Mereto - BATMAN'DA HAYVANCILIK PROJESİ!..(3)
+BATMAN'DA HAYVANCILIK PROJESİ!..(3) Mereto batmanmereto@gmail 28 Ekim 2020, 15:02 336 kez okundu. Dünden devam Değerli Okurlar, iki gün süreyle besicilik sorunu ve gündeme getirilen proje ile ilgili değerlendirmeler yaptım. Kanaatimce Batman 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ahlakınızı sevsinler | Ayşe ÖZEK KARASU | Köşe Yazıları](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Ahlakınızı sevsinler | Ayşe ÖZEK KARASU | Köşe Yazıları
+Film projesi masaya konduğunda doğal olarak Eliza Doolittle rolünü onun oynaması gerekirken, Audrey Hepburn'ün elinde kalıyor.  Karikatürün, onur kırıcı, edebe aykırı olduğunu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konya Vizyon sayı 13 by Medya F Group - Issuu](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Konya Vizyon sayı 13 by Medya F Group - Issuu
+MEDYA F GROUP ADINA İMTİYAZ SAHİBİ Funda ÇAKIR YAZI İŞLERİ MÜDÜRÜ Ahmet ÇAKIR EDİTÖR Ahmet ÇAKIR SANAT YÖNETMENİ Volkan ÇAKIR Ahmet ÇAKIR ahmet@medyafgroup GÖRSEL YÖNETMEN 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Borderline Kişilik Bozukluğunun Aktarım Odaklı .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Borderline Kişilik Bozukluğunun Aktarım Odaklı .
+Bu netleştirme süreci AOP'den sonra geliştirilen zihinselleştirmeye dayalı terapi yaklaşımına benzer niteliktedir (Bateman ve Fonagy 2004). Terapist hastaya şöyle diyebilir, "Seansın başından beri ketum davranıyor ve kaçamak cevaplar veriyorsun, sanki beni tehlikeli görüyormuşsun gibi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Toraks Bülteni - Aralık 2012 by LookUs Scientific - Issuu](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Toraks Bülteni - Aralık 2012 by LookUs Scientific - Issuu
+Refika Ersu (Level 3/4) MECOR'un faydaları: Araştırma projesi hazırlama aşamalarını öğrenmek: 1) İyi bir araştırma sorusu sormak 2) Araştırma sorusunu cevaplayabilmek için gereken 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ben Kingsley – Kayıp Paylaşımlar Koleksiyoncusu](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Ben Kingsley – Kayıp Paylaşımlar Koleksiyoncusu
+Yalanlarla gidersen, asla geri dönemezsin! 90'ların sonunda komedi ağırlıklı filmleriyle sinemaya giriş yapan Brad Anderson, kazandığı görece popcorn başarı sonrasn
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Birkin'lerin şifresi nasıl kırıldı | Ayşe ÖZEK KARASU | .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Birkin'lerin şifresi nasıl kırıldı | Ayşe ÖZEK KARASU | .
+Film projesi masaya konduğunda doğal olarak Eliza Doolittle rolünü onun oynaması gerekirken, Audrey Hepburn'ün elinde kalıyor.  Karikatürün, onur kırıcı, edebe aykırı olduğunu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Batman'ın dev projesi onay bekliyor](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Batman'ın dev projesi onay bekliyor
+Batman'ın dev projesi onay bekliyor Batman Şehirlerarası otogarı yanında yapılacak olan ve yaklaşık 3 bin kişinin istihdam edileceği belirlenen 5 yıldızlı otel, açık AVM ve konutlar içeren proje yetkililerin onayından geçmesine rağmen Batman Belediyesinde onay
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

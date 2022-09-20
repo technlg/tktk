@@ -1,0 +1,49 @@
+# kozhikode kerala kırıcı i̇şler muduru
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mali İşler Koordinatörü | Kariyer](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Mali İşler Koordinatörü | Kariyer
+Mali İşler Koordinatörü pozisyonuyla ilgili tüm detaylar şimdi Kariyer'te! İş başvurusu yapmadan önce pozisyonlar hakkında merak ettiklerini bizimle keşfet! Mali İşler Koordinatörü Kimdir? Mali işler koordinatörü; hizmet verdiği şirketin tüm finans ve muhasebe 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Koronavirüs Tedbirleri Genelgesi Kapsamında 149.382 İş .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Koronavirüs Tedbirleri Genelgesi Kapsamında 149.382 İş .
+Bakanlığımızın 81 İle Gönderdiği Koronavirüs Tedbirleri Genelgesi kapsamında, ülke genelinde 149.382 iş yeri geçici süreliğine faaliyetlerine ara verdi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![10 Bin Liraya Kadar Sermayesi Olanlar İçin İş Fikirleri | Karlı .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## 10 Bin Liraya Kadar Sermayesi Olanlar İçin İş Fikirleri | Karlı .
+Türkiye'de 10 bin lira yeni bir iş kurmak için yeterli görünmese de, birçok iş fikri için yeterli bir rakam. Bu kapsamda 10 bin lira sermayeniz varsa eğer Karlı İş Fikirleri platformunda yer alan aşağıdaki işlerden biri ile para kazanma fırsatı yakalayabilirsiniz. 10 bin liranız varsa ve hangi işi yapacağınızı bilmiyorsanız eğer; Bu süreçte 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İŞKUR](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## İŞKUR
+Ulvi YILMAZ. 1969 yılında Kocaeli'de doğdu. Lisans eğitimini İşletme Fakültesinde tamamladı. Farklı kurumlarda; Memur, Basın Müşaviri, İl Müdür Yardımcısı görevlerini gerçekleştiren YILMAZ, halen Kocaeli Çalışma ve İş Kurumu İl Müdürü görevini yürütmektedir. Orta derecede İngilizce bilmektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Google](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Google
+Search the world's information, including webpages, images, videos and more. Google has many special features to help you find exactly what you're looking for. Advertising Programs Business Solutions About Google Google
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kızılderili Astrolojisine Göre Siz! - Hürriyet](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Kızılderili Astrolojisine Göre Siz! - Hürriyet
+Aşırı korkusuzluk sonucu tehlikeli işler yapabilir. Arkadaşları tarafından sevilen sayılan bir kişiliktir; herkesle dost olabilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ayda 5000 Liradan Fazla Gelir Getiren 12 Parlak İş Fikri | .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Ayda 5000 Liradan Fazla Gelir Getiren 12 Parlak İş Fikri | .
+Ayda 5000 liradan fazla gelir elde etmek isteyenlere yönelik iş fikirlerini bu yazıda sizler için paylaştık. İşini sevmeyen birçok kişi var ve sırf para kazandıkları için bu işi yapmaya mecbur hissediyorlar. Bu şekilde olan üniversite mezunu kişi sayısı bile oldukça fazla.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mali İşler Müdürü | Kariyer](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Mali İşler Müdürü | Kariyer
+11/5/2020· Mali İşler Müdürü mesleği için 19 adet mülakat bilgisi girilmiştir. Mali İşler Müdürü. 11 Mart 2021. MÜLAKAT SÜRECİ Pozitif. Tüm Mülakatları Gör.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gelecekte En Çok Para Kazandırabilecek İşler – Kobi Vadisi](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Gelecekte En Çok Para Kazandırabilecek İşler – Kobi Vadisi
+Dekoratif mum yapmak için en klasik olan gerekli malzemeler; beyaz mum, pastel boya, çiçek esansları, mum şekillendirmek için kap. İhtiyacınız olan malzemeler bu kadardır. Eğer daha profesyonel şekilde mum yapmak istiyorsanız mum boyası, parafin, çiçek esansı, stearin, mum kabı .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Uluslararası İslam Eğitimi Kongresi 2019 Bildiriler .](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## (PDF) Uluslararası İslam Eğitimi Kongresi 2019 Bildiriler .
+About International Congress on Islamic Education (ICIE) Considering the historical roots of modern education, it seems that it has a structure that has developed immediately after the industrial revolution and the nationalization movements, and
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İlçe Yazı İşleri Müdürlüğü - Koçarlı Kaymakamlığı](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## İlçe Yazı İşleri Müdürlüğü - Koçarlı Kaymakamlığı
+İLÇE YAZI İŞLERİ MÜDÜRLÜĞÜNÜN GÖREVLERİ 1- Kaymakamlığa gelen evrakları inceleyerek, konusu itibariyle ilgili kurumlara havalesi için makama sunmak, 2- Kaymakamlk
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kamu İhale Kurulu Kararı](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Kamu İhale Kurulu Kararı
+ihale üzerinde kalan şirketin ihaleyi yapan idareye daha önce yaptığı işler sırasında belirlenen aykırılıkların göz ardı edilerek, yeniden ilgili şirkete ihale bırakılması mevzuata uygun mudur? 86 ihale üzerine kalan isteklinin sözleşmeyi imzalamaması durumunda 18
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

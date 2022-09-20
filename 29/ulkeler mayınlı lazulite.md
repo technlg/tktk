@@ -1,0 +1,41 @@
+# ulkeler mayınlı lazulite
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lazulite MgAl2(PO4 2(OH)2 - Handbook of Mineralogy](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Lazulite MgAl2(PO4 2(OH)2 - Handbook of Mineralogy
+Mineral Group: Lazulite group. Occurrence: Disseminated in metamorphic quartzites, schists and quartz veins; in the border zones of complex granite pegmatites; in alluvium and colluvium. Association: Quartz, andalusite, rutile, kyanite, corundum, muscovite
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ülkelerin, Dünyanın Geri Kalanını Oldukça Şaşırtacak .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Ülkelerin, Dünyanın Geri Kalanını Oldukça Şaşırtacak .
+Endonezya'daki Tidong topluluğunda, evli bir çiftin, evlendikten sonra 3 gün boyunca tuvalete gitmesine izin verilmiyor.Bunun, evliliklerine kötü şans getireceğine inanılır. Yeni evlilere, az miktarda yiyecek ve su verilir ve bu geleneği bozup bozmadıkları aile üyeleri tarafından izlenir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mineralienatlas Lexikon - Lazulit](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Mineralienatlas Lexikon - Lazulit
+Lazulith (Lazulit) Lazulith. (Lazulit) Größe: 2,41 mm; Fundort: Rapid Creek, Dawson, Yukon-Territorium, Kanada. Lazulite specimen, from Rapid Creek, Dawson Mining District, Yukon, Canada; Size 58 х 54 х 17 mm. Lazulite specimen, from Rapid Creek, Dawson Mining .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lapis Lazuli'nin "Mayınlı Vadilerdeki İmkansız Yolculuğu" .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Lapis Lazuli'nin "Mayınlı Vadilerdeki İmkansız Yolculuğu" .
+Philip Poupin'in Afganistan'daki Lapis Lazuli madenciliğinin ne kadar zor olduğunu anlatan fotoğraflarını sizler için paylaşmak istedik. Kokcha Vadisi'ndeki lapis madenlerine giden kıvrımlı yol uzun ve tehlikeli olmasıyla bilinir. Afganistan'ın kuzeydoğusundaki Badakhshan eyaletinin başkenti Feysbad'dan, 1832 depremi nedeniyle düzensiz bir zemin 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÜLKE İSİMLERİ VE TANIMLAMALARI LİSTESİ](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## ÜLKE İSİMLERİ VE TANIMLAMALARI LİSTESİ
+T.C. Dışişleri Bakanlığı Tercüme Dairesi Başkanlığı Kasım 2013 Kod TÜRKÇE İNGİLİZCE TÜRKÇE İNGİLİZCE TÜRKÇE İNGİLİZCE TÜRKÇE İNGİLİZCE ÜLKENİN RESMİ ADI KISA ADI ÜLKEYLE İLGİLİ SIFAT UYRUK CİBUTİ CUMHURİYETİ Republic of Djibouti
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lazulite®](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Lazulite®
+© 2012 Honden. All Rights Reserved.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tổng quan về lazulit (lazulite) – Đá quý Việt Nam](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Tổng quan về lazulit (lazulite) – Đá quý Việt Nam
+Tên khoa học: đá lazulit (lazulite) Nguồn gốc: Hình thành trong các mạch thạch anh, pegmatit granit, trong các đá biến chất (metaquartzit) Những nơi phân bố chính: Angola, Bolivia, Brazil, Ấn Độ, Madagasca, Áo, Thụy Điển, Mỹ.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lazulite Mineral Data](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Lazulite Mineral Data
+Location: Malo-Bystrinskoye lazurite deposit, Tunka Valley, Sludyanka, Lake Baikal Region, Russia. Scale: Picture size 7 mm. © Thomas Witzke / Abraxas-Verlag. Images: Lazulite. Comments: Lustrous dark blackish-blue crystals of lazulite to 5 mm in size. Location: Crosscut Creek, Rapid Creek, Yukon Territory, Canada.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dünyanın pek fazla bilinmeyen sıra dışı ülkeleri - Seyahat .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Dünyanın pek fazla bilinmeyen sıra dışı ülkeleri - Seyahat .
+30/12/2019· İtalya, Fransa, İspanya gibi ülkeler, herkesin seyahat hayalini süsler. Ancak kendi yolunuzun ışıltısını arıyorsanız gizli hazineleri keşfetmek için ülkeler var. İşte ismi cismi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lazuli Label | Women's Gym Clothes, Workout Clothes & .](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Lazuli Label | Women's Gym Clothes, Workout Clothes & .
+Shop the latest Lazuli women's gym clothing online. Workout in exclusive, flattering & high quality activewear. Free UK returns. UK STANDARD: £3.95 US STANDARD: $6.50 USD US EXPRESS: $16 USD AUS STANDARD: $13 AUD AUS EXPRESS: $35 AUD
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

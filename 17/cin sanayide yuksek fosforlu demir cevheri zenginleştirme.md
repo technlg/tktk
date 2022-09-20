@@ -1,0 +1,109 @@
+# cin sanayide yuksek fosforlu demir cevheri zenginleştirme
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Türkiye Dergisi Sayı 74 by Madencilik Turkiye .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Madencilik Türkiye Dergisi Sayı 74 by Madencilik Turkiye .
+10. YIL ISSN 1309 ISSN- 1309 1670 - 1670 Fiyat 8 TL | 1 Eylül 2015 Fiyat| 14 Yıl 7 TL| Sayı | 15 Ekim 49 | 2018 | Yıl 10 | Sayı 74| Dosya 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) ODUNPAZARI VE TEPEBAŞI İLÇELERİNİN .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## (PDF) ODUNPAZARI VE TEPEBAŞI İLÇELERİNİN .
+ÖZET Bu eserde İç Anadolu Bölgesi'nin Yukarı Sakarya Bölümü'nde yer alan Odunpazarı ve Tepebaşı ilçelerinin (Eskişehir) idari sınırları dâhilindeki sahanın Beşeri ve Ekonomik Coğrafya özellikleri araştırılmıştır. Toplam 2.682 km² yüzölçümüne sahip bu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En İyi Pigmentli yüz fosforlu sıvı Sıvı ve Toz](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## En İyi Pigmentli yüz fosforlu sıvı Sıvı ve Toz
+yüz fosforlu sıvı İle güzellik salonuna veya eve stil katın. Alibaba'daki bu harika yüz fosforlu sıvı sertifikalı toptancılar ve üreticiler tarafından satılmaktadır. Sevkiyata Hazır
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MADENCİLİK ÖZEL İHTİSAS KOMİSYONU](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## MADENCİLİK ÖZEL İHTİSAS KOMİSYONU
+Kavrulma işleminde elde edilen demirin curufu, demir dışı metalleri ayırmak için genellikle liç edilir, bazen de demir cevheri olarak satılır. İyi geliştirilmiş ve geniş kullanım alanı olan bu yöntem, elementer kükürt kaynaklarından ucuza üretim olanağı bulunmayan veya birlikte üretilen minerallere ve cevher değeri önemli olan piritli yataklara sahip dünya 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Sanayi | Madencilik Haberleri | Sayfa 23](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Madencilik Sanayi | Madencilik Haberleri | Sayfa 23
+IMIDRO'un son istatistiklerine göre, bu süre zarfında 90 milyon ton demir cevheri ve 120 milyon ton kömür rezervi tesbit edildi. İran'ın Batı Azerbaycan eyaletindeki Tekab ilçesine bağlı Zere Şuran bölgesinde ise daha önceden tesbit edilen 89 ton altın rezervi yaklaşık 30 ton daha arttı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Türkiye Dergisi Sayı 43 by Madencilik .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Madencilik Türkiye Dergisi Sayı 43 by Madencilik .
+Mayeb yayınlarının ilk ve ana yayını olan Madencilik Türkiye dergisinin 43. sayısıdır. Dergide madencilik sektörü ile ilgili güncel bilgiler yer almaktadır. Gelecek sayılarımızda 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Terimleri Sözlüğü-Madencilik Terimleri .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Madencilik Terimleri Sözlüğü-Madencilik Terimleri .
+Bir demir cevheri olan manyetit, tabii bir mıknatısdır. Aluminyum, nikel ve kobalt alaşımı da mıknatıslıdır, manyetit ve pirotit parçalarını çeker. Bazı manganez, nikel ve demir-titanyum cevherleri hamlaçta ısıtıldıklarında mıknatıslanır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Terimleri Sözlüğü](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Madencilik Terimleri Sözlüğü
+Misal olarak demir, a, ß, d ve Ğ olmak üzere dört ayrı strüktürde olabilen allotropik bir metaldir. Miknatisi ve yumuşak olan a demir "ferrit" 768 ½C da ß demire, ß demir 910½C'da "austenit" d demire, d demir 1390½C Ğ demire dönüşür. a demir d demir haline
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![tuik.gov.tr](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## tuik.gov.tr
+07.29 Diğer demir dışı metal cevherleri madenciliği 07.29 Yüksek oranda demir içermeyen cevherlerin madenciliği ve hazırlanması 07.29 Kum içindeki çinko ve kurşun elementlerinin zenginleştirme faaliyeti 08.11 Alçı taşı ve anhidrit madenciliği 08.11
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Demir eksikliği anemisi](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Demir eksikliği anemisi
+Demir eksikliği anemisi dünyada en sık görülen anemidir. WHO verilerine göre gelişmekte olan ülkelerdeki kadın ve çocukların yarısında erkeklerin ise %25'nde demir eksikliği anemisi mevcuttur. WHO 2 milyar kişiden daha fazlasında demir eksikliği olduğunu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) "ORTAÖĞRETİM ÖĞRENCİLERİNE BAZI KÂĞIT .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## (PDF) "ORTAÖĞRETİM ÖĞRENCİLERİNE BAZI KÂĞIT .
+49.su düzenlenen TÜBİTAK Lise Öğrencileri Araştırma Projeleri Yarışması için hazırlanan bir makaledir. PDF DOSYASINDA 36. SAYFADA AÇIKLAMA VAR. ÖZET: Bu çalışmanın iki temel amacı vardır. Birincisi, ortaöğretim öğrencilerinin Origami, Kirigami ve
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Maden Ekonomisi | Madencilik Haberleri | Sayfa 23](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Maden Ekonomisi | Madencilik Haberleri | Sayfa 23
+TTK'da mekanizasyon, pres, elektrik, talaşlı imalat, kaynak, tarama ve söküm, bakım-onarım, yer altı ve yer üstü nakliyat, kuyu vinç, sinyal, sondaj işçisi, iş yeri sağlık görevlisi ve iş makinası operatörü olmak üzere 13 meslekte alınacak 162 kişi, TTK tarafından yapılacak mülakatla belirlenecek.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![YTÜ Fen Bilimleri Enstitüsü](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## YTÜ Fen Bilimleri Enstitüsü
+Demir esaslı takım mazlemeleri, ii. Demir içermeyen takım malzemeleri. Proseslere Göre Standart Takımlar: i. Tornalama işleminde kullanılan takımlar, ii. Frezeleme işleminde kullanılan takımlar, iii. Delme işleminde kullanılan takımlar, iv. Taşlama işleminde 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Memurlar.Net](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Memurlar.Net
+Memurlar.Net
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KAMBĐYOSENEDĐBORÇLUSUTARAFINDANAÇILAN .](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## KAMBĐYOSENEDĐBORÇLUSUTARAFINDANAÇILAN .
+308 Yrd. Doç. Dr. Ahmet TÜRK likler sonucu,butakip yolunun"biçimsel niteliği" daha da art tırılmış 3 buna paralel olarak borçlununsavunma olanakları da önem kazanmışt ır.Nitekim,
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Biyolojik Oksidasyon - Ankara Üniversitesi](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Biyolojik Oksidasyon - Ankara Üniversitesi
+Sitokromlar ò Elektron taşıyan proteinler olup, hemoglobinin hem halkasına benzer şekilde bir porfirin halkasına bağlı demir (Fe) içerir. ò Sitokromlardaki Fe atomları, Fe+3'ün Fe+2'ye geri dönüşümlü olarak değiştirilebilen tek elektron taşıyıcılarıdır
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Slayt 1.tr](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Slayt 1.tr
+24.1 Ana demir ve çelik ürünleri ile demir alaşımları imalatı Bu grup, demir cevherinin doğrudan indirgenmesi, ergimiş veya katı formda pik demir imalatı, pik demirin çeliğe dönüştürülmesi, demir alaşımlarının imalatı gibi faaliyetleri kapsamaktadır. 24.10 Ana demir
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![FOSFORLU DÖKME DEMİRLERİN YAPILARINDA OLUŞAN, .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## FOSFORLU DÖKME DEMİRLERİN YAPILARINDA OLUŞAN, .
+FOSFORLU DÖKME DEMİRLERİN YAPILARINDA OLUŞAN, KÜÇÜK AK BENEKLER BİÇİMİNDE BELİREN, FOSFOR VE DEMİR FOSFÜRE (FE3P)' DOYMUŞ ÖTEKTİK bulmaca sorusunun cevabını içeren sözlük sayfası. Nedir? ne demek? bulmaca cevabı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Terimleri Sözlüğü - Page 3 - FrmTR](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Madencilik Terimleri Sözlüğü - Page 3 - FrmTR
+27/9/2011· Madencilik Terimleri O O OBRUK, 1) Kireç taşları içinde, bacaya benzeyen 30m ya da daha çok derinlikte, genel olarak altında bir yeraltı mağarası (ini) bulunan tabii kuyu. 2) İçinde su biriken çukur yer, doğal kuyu. 3) İçbükey, konkav. OCAK, 1) Açık (yerüstü 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çin demir cevheri piyasası yükseldi Perşembe, 07 Nisan .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Çin demir cevheri piyasası yükseldi Perşembe, 07 Nisan .
+Çin'in doğu ve kuzey bölgelerinde, konsantre demir cevheri fiyatları sürekli olarak yükselirken, haftalık fiyat artışı 20-40 RMB/mt (3-6$/mt) seviyesinde gerçekleşti. Bununla birlikte, alımların yavaş olduğu görüldü. Geçen bir haftalık süreçti, Tangshan piyasasında 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Kurumları | Madencilik Haberleri | Sayfa 6](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Madencilik Kurumları | Madencilik Haberleri | Sayfa 6
+IMIDRO'un son istatistiklerine göre, bu süre zarfında 90 milyon ton demir cevheri ve 120 milyon ton kömür rezervi tesbit edildi. İran'ın Batı Azerbaycan eyaletindeki Tekab ilçesine bağlı Zere Şuran bölgesinde ise daha önceden tesbit edilen 89 ton altın rezervi yaklaşık 30 ton daha arttı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Uluslararası Sanat ve Sanatta Yüksek Teknoloji .](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## (PDF) Uluslararası Sanat ve Sanatta Yüksek Teknoloji .
+Uluslararası Sanat ve Sanatta Yüksek Teknoloji Kullanımı Kongresi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![kitap-a-dan-z-dec49ferli-tac59flar.pdf - Scribd](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## kitap-a-dan-z-dec49ferli-tac59flar.pdf - Scribd
+Bunlar a) Sanayide (alaşım, metal, seramik) kullanılan Beril cevheri, b) Beril grubu taşlar, c) İngilizcede mavi –gri renk. Eski adı Glusinyum olan Be elementinin 40 kadar minerali bilinmektedir. Yeşil, mavi-gri, mavi, sarı ve başka renklerde olur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## 
+Ana demir ve çelik ürünleri ile demir alaşımları imalatı Bu grup, demir cevherinin doğrudan indirgenmesi, ergimiş veya katı formda pik demir imalatı, pik demirin çeliğe dönüştürülmesi, demir alaşımlarının imalatı gibi faaliyetleri kapsamaktadır. 24.10 Ana demir ve
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇEVRE YÖNETİMİ GENEL MÜDÜRLÜĞÜ.tr](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## ÇEVRE YÖNETİMİ GENEL MÜDÜRLÜĞÜ.tr
+Sıra No EC No Maddenin Türkçe Adı Maddenin İngilizce Adı 1 Formaldehid % Formaldehyde .% 2 D-glusitol D-glucitol 3 Askorbik asit Ascorbic acid 4 Glikoz Glucose 5 Gliserol Glycerol 6 Palmitik
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Fosforlu'nun Hikayesi Tuncer Cücenoğlu](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Fosforlu'nun Hikayesi Tuncer Cücenoğlu
+Fosforlu'nun Hikayesi "Fosforlu'nun Hikayesi, Cücenoğlu'nun yalın anlatımıylaSuat Derviş'ibir kez daha anmamıza neden olduğu içinönemlidir. Suat Derviş'in gözle
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![YTÜ Fen Bilimleri Enstitüsü](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## YTÜ Fen Bilimleri Enstitüsü
+1.Bilim ve teknolojide eser elementlerin analizleri/ Zenginleştirme tekniklerine genel bakış 2.Eser element analizlerinde zenginleştirme tekniklerinin rolü, kayıp ve bulaşmanın kontrolü 3.Buharlaştırma 4. Sıvı-sıvı ekstraksiyonu 5. Seçimli çözme/ Çöktürme 6.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

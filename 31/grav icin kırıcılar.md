@@ -1,0 +1,97 @@
+# grav icin kırıcılar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![K.T.Ü. MADEN MÜHEND İSL İĞİ BÖLÜMÜ CEVHER & KÖMÜR .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## K.T.Ü. MADEN MÜHEND İSL İĞİ BÖLÜMÜ CEVHER & KÖMÜR .
+2. Kırıcı ve cevher özellikleri tartı şılır, farklı kırıcılar ve hangi cevherlere uygulandı ğı tartı şılır. 3. Kırma öncesi kırıcı parametreler belirlenir. 4. Numune kırma i şlemi gerçekle ştirilmeden önce belirlenmi ş eleklerden geçirilerek kaydedilir. 5.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Quantum gravimetrik karıştırıcı, Dozlama ve kariştirma .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Quantum gravimetrik karıştırıcı, Dozlama ve kariştirma .
+G25 serisi – küçük boy kırıcılar S30 - orta boy kırıcılar B serisi - orta ve büyük boy kırıcılar N serisi - orta ve büyük boy kırıcılar G40 series - large size granulators N45 serisi - büyük boy kırıcılar N/S 60 serisi - büyük boy kırıcılar Film ve kenar döşeme kırıcılar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kirpik Kıvırıcı - Gratis](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Kirpik Kıvırıcı - Gratis
+Kirpik Kıvırıcı için koleksiyon sayfası yüklendi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ucuz.io](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## ucuz.io
+Memnuniyet Garantisi. en.ucuz.io 'da listelenen market ve alışveriş sitelerini sizin için özenle seçiyoruz. Her şikayetinizi dikkatle inceleyip gerekli adımları hemen aty
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Quantum E gravimetrik dozajlma, Dozlama ve kariştirma - .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Quantum E gravimetrik dozajlma, Dozlama ve kariştirma - .
+Quantum E gravimetrik dozajlma. Bu yenilikçi dozajlama sistemi, ekstrüzyon proseslerinde yüksek doğruluk, çok yönlülük ve hassasiyet sağlamak için geliştirildi, hem gravimetrik toplu teknolojinin hem de ağırlık kaybı sistemlerinin avantajlarını arttırdı. 8 dozlama istasyonu sayesinde Quantum E, daha önce hiç elde edilemediği çok yönlü kullanıma 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En.ucuz.io | lotto](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## En.ucuz.io | lotto
+En.ucuz.io | Pintinin alışveriş rehberi En ucuzu burada çünkü: 340.000+ ürün Üstelik ürünler saatlik taranır ve sunulur. 5+ firma 5 firma çok azmış diyenler var ama biz .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Etkili, yaratıcı ve profesyonel bir CV nasıl hazırlanır? İşte, .](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Etkili, yaratıcı ve profesyonel bir CV nasıl hazırlanır? İşte, .
+İş hayatının ilk adımı olan iş başvurularında ana nokta, firmaların dikkatini CV'nize çekmeyi başarabilmenizdir. İş aramak, iş başvurusu yapmak, kendine uygun meslek bulmak, aile ve çevrenin baskısı vs. ile meşkul olan sizler, haklı olarak profesyonel CV'nizi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![biruni.tuik.gov.tr](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## biruni.tuik.gov.tr
+A CANLI HAYVANLAR VE HAYVANSAL ÜRÜNLER 01 Canlı hayvanlar 0101 Canlı at, eşek, katır ve bardolar 010110 Canlı at, eşek, katır ve bardolar (damızlık) At; ehli a
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![#Drinks Business Online • Raw Ranked Sites](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## #Drinks Business Online • Raw Ranked Sites
+Buy Marijuana Online | MOM - Your Canadian Marijuana Connection Buy Marijuana Online at MOM. We have been in the business since 2010 producing edibles, strains, drinks, flowers, and more high-quality hemp products. Free Shipping at $150
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kars Kaşarı – Gravyer Peyniri: Üretimi, Faydaları, Nasıl .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Kars Kaşarı – Gravyer Peyniri: Üretimi, Faydaları, Nasıl .
+İşgal yıllarından kalma bir lezzet, sabırlı emeğin ürünü Kars kaşarının özellikleri, yapılışındaki püf noktalar, besin değerleri, faydaları, tüketim önerileri ile saklama koşulları ve fiyat bilgileri tüm ayrıntılarıyla bu yazımızda sizlerle.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En Ucuz Fiyata En iyi Kampanyalar Her Zaman Burada - .](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## En Ucuz Fiyata En iyi Kampanyalar Her Zaman Burada - .
+ Ana Sayfa  Kategoriler  En Paketler  En Yeni Ürünler  En Fırsatlar  0 850 303 03 26  __0 530 6
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Quantum E gravimetrik dozajlma, Dozlama ve .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Quantum E gravimetrik dozajlma, Dozlama ve .
+Bu yenilikçi dozajlama sistemi, ekstrüzyon proseslerinde yüksek doğruluk, çok yönlülük ve hassasiyet sağlamak için geliştirildi, hem gravimetrik toplu teknolojinin hem de ağırlık kaybı sistemlerinin avantajlarını arttırdı. 8 dozlama istasyonu sayesinde Quantum E, daha önce hiç elde edilemediği çok yönlü kullanıma imkân verir: her bir istasyon kompleks manevra 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırıcılar - dikmaksan](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Kırıcılar - dikmaksan
+Kırıcılar Karıştırıcılar Taşıyıcı Helezonlar Meyve Sıkma Makineleri Hurma İşleme Makineleri Rafinasyon Sistemleri Dolum Makineleri Sabun İmalat Hatt ı MİNİ UN DEĞİRMENİ REFERANSLAR HAKKIMIZDA Bize Ulaşın BELGELERİMİZ Home DİĞER Ürünler 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En İyi Kalite agrega darbeli kırıcı için satış](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## En İyi Kalite agrega darbeli kırıcı için satış
+Alibaba'da en iyi fiyatlarla verimli agrega darbeli kırıcı için satış satın alın. Bunların agrega darbeli kırıcı için satış birden çok sektörde uygulamaları vardır. Sevkiyata Hazır
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yeni Planlar ve Canavar Avı - GRAV # 2 - YouTube](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Yeni Planlar ve Canavar Avı - GRAV # 2 - YouTube
+Beğeni ve yorumlarınız ile desteklerinizi eksik etmeyin .Daha çok video için Abone olmayı unutmayın :D Oyun listeleri için "DAHA FAZLA GÖSTER"i tıklayınız
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Norman Davies - Avrupa Tarihi | Armagan Cakır - .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## (PDF) Norman Davies - Avrupa Tarihi | Armagan Cakır - .
+Norman Davies - Avrupa Tarihi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Quantum gravimetrik karıştırıcı, Dozlama ve kariştirma - .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Quantum gravimetrik karıştırıcı, Dozlama ve kariştirma - .
+Quantum gravimetrik karıştırıcı. Enjeksiyonlu döküm makinelerinin ve ekstriderlerin yolunu köklü bir şekilde değiştiren Quantum gövde yenilikleri, malzemelerin karışımıyla beslenir (temiz, geri dönüşümlü, masterbatch ve eklentileri). Bu yenilikler, üretimin etkililiği, özelliği iyileştirilmiş tasarımları, yenilikçi teknolojileri ve kullanıcı için 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GRAV Türkçe Online - İlk Bakış / İnceleme - Aga Bu .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## GRAV Türkçe Online - İlk Bakış / İnceleme - Aga Bu .
+19/1/2015· GRAV'ın türkçe oynanış videosu ile karşınızdayım, oyun survival yani hayatta kalma ve açık dünya oyunu ve henüz erken erişim alphada olduğu için oyunu Aga Bu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MDW toplu gravimetrik karıştırıcılar, Dozlama ve .](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## MDW toplu gravimetrik karıştırıcılar, Dozlama ve .
+Piovan MDW serisi yerçekimsel karıştırıcılar, çeşitli yapılandırmalar halinde sunulur ve 8 adede kadar granül malzemeyi dozlayıp tartabilmesi sayesinde en uygun silo kapasitelerinin ve dozlama cihazlarının seçilmesini sağlar. Karıştırıcılar enjeksiyon ve üflemeli 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![JESDERGİ 3. Sayı/ Temmuz-Ağustos-Eylül 2018 by JESDER .](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## JESDERGİ 3. Sayı/ Temmuz-Ağustos-Eylül 2018 by JESDER .
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Rezerv yıllık ihtiyacı Karşılar mı ? | Ceviz Kabuğu 22 .](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Rezerv yıllık ihtiyacı Karşılar mı ? | Ceviz Kabuğu 22 .
+About Press Copyright Contact us Creators Advertise Developers Terms Privacy Policy & Safety How YouTube works Test new features
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![örneklerle](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## örneklerle
+II bursalı yazılar ÖĞRENCİLER VE ARAŞTIRMACILAR İÇİN KAYNAK KİTAP Şaban AKBABA PENCEREMDEN SIZAN IŞIK II bursalı yazılar Bursa'da Yazın'ın ayrıntılarıyla ilgili "Kaynakça"da adı geçen yapıtların ve o yapıtların yararlandığı çalışmaların yazarlarına
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Maden Mühendisliği Bölümü Cevher Hazırlama ve Zenginleşttime Laborattuvarları .](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Maden Mühendisliği Bölümü Cevher Hazırlama ve Zenginleşttime Laborattuvarları .
+Çeneli Kırıcılar Sayfa 13 Maden Mühendisliği Bölümü Cevher Hazırlama ve Zenginleşttime Laborattuvarları  Grav i tte Zeng nleşirme Özellikle yüksek yoğunluklu ince taneli minerallerin yoğunluk farkına Maksimum 2400 devir/dak bowl devri Russel Elek 300 G 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kanalt.tr - Best Similar Sites | BigListOfWebsites](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Kanalt.tr - Best Similar Sites | BigListOfWebsites
+Last updated on Feb 1 2021. Here are the best websites we found: kanalt.tr • kanald.tr • kanaldoyunlari • kanal7avrupa • kanaltedavisi • temizdekorasyon • kanal7 • asyadokum.tr • tegel.tr Kanal d oyunları, kanal d oyun..
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

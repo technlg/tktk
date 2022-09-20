@@ -1,0 +1,109 @@
+# işleme petrokok fırını
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bilim Ve Teknik Dergisi - Haziran 2009 - Scribd](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Bilim Ve Teknik Dergisi - Haziran 2009 - Scribd
+Scribd is the world's largest social reading and publishing site. Yıldız Takımı Derginizle Birlikte Charles Darwin 200 Yaşında Bilim Teknik ve Aylık Popüler Bilim Dergisi Haziran 2009 Yıl 42 Sayı 499 3,5 TL Bugünün sorunlarını Bilim ve Teknik
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![..::Türkiye İstatistik Kurumu Web sayfalarına Hoş Geldiniz::..](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## ..::Türkiye İstatistik Kurumu Web sayfalarına Hoş Geldiniz::..
+Petrokok (Petrol koku): Fırınlarda karbonlaşma ve parçalanma sonucu elde edilen ve çoğunlukla karbon içeren (% 90-95) parlak-siyah artık maddedir. Genellikle metalürjik işlemlerde kullanılmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İÇİNDEKİLER](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## İÇİNDEKİLER
+İÇİNDEKİLER ETÜTLER 1 JEOLOJİK ETÜTLER 1 UZAKTAN ALGILAMA 1 DENİZ ARAŞTIRMALARI ETÜTLERİ 3 TIBBİ JEOLOJİ ETÜDÜ 4 JEOFİZİK ETÜTLER 5 MADEN JEOLOJİSİ ETÜTLERİ 8 ENERJİ HAMMADDE ETÜTLERİ 10 JEOTEKNİK ETÜT VE PROJE HİZMETLERİ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Petrokok ithalat artışı nasıl durur? - Dr. Nejat TAMZOK](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Petrokok ithalat artışı nasıl durur? - Dr. Nejat TAMZOK
+Genellikle kısaca petrokok olarak anılan petrol koku, ham petrolün rafinasyonu sırasında oluşan siyah renkli katı bir yan üründür. Yüzde 90-95 oranında karbondan oluşur. Önceleri rafinasyon işleminin istenmeyen bir atığı olarak tanımlanan petrol koku; yüksek ısıl değeri, düşük kül içeriği ve benzeri katı yakıtlar karşısındaki fiyat avantajıyla 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Graphite Block, Graphite Crucible, Graphite Electrode - .](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Graphite Block, Graphite Crucible, Graphite Electrode - .
+Yüksek işleme hassasiyeti vb. ilerleme üretmek: Ham Malzeme-> Orta kırma / ferze> Bir taramanın> Dozajlama ve> kneading-> vibrasyonlu molding-> emdirme> baking-> grafit hale NOT: Bizim grafit blok Çin Ulusal Petrol Şirketi Daqing, Jinxi ve Fushun
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ENERJİ VE JEOFİZİK](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## ENERJİ VE JEOFİZİK
+3 "Enerjide Jeofizik Mühendisliği" Yazarları KONU BAŞLIKLARI Yazarı, Ünvanı Kurumu 1. Genel Enerji Çetin Koçak, Enerji SBTK Başkanı, DEK-TMK Denetim K.Üyesi TKİ 2. Kömür Çetin Koçak TKİ 3. Petrol ve Doğal Gaz Cüneyt Şapcıoğlu,
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TEHL KEL ATIK PETROKOK 27.08 - MADEN](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## TEHL KEL ATIK PETROKOK 27.08 - MADEN
+Petrokok Ham petrolün rafinerilerde işlenmesi sonucunda petrol içeriğindeki her türlü uçucu madde türleri ve yağların kazanılmasından sonra zorunlu olarak çıkan katı artık bir maddedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endüstriyel Hammaddeler | Madencilik Haberleri | Sayfa 4](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Endüstriyel Hammaddeler | Madencilik Haberleri | Sayfa 4
+Buna göre, 2015 başından itibaren 50 taş ocağı ile 29 adet kırma tesisi Gebze ve Dilovası'nın bulunduğu bölgeye taşınacak. Taş ocaklarının taşınmasına en sert tepkiyi CHP Kocaeli milletvekili M. Hilal Kaplan gösterirken, iktidar partisini bölge milletvekillerinin
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tüm Projeler - PROKON](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Tüm Projeler - PROKON
+PETROKOK Depolama Yükleme Boşaltma Sistemleri İZMİT / TÜRKİYE TÜRKİYE PETROL RAFINERILERI A.Ş. 16/09/2013  EAO Ve Pota Fırını Modernizasyonu ORHANGAZİ BURSA / TÜRKİYE ASİL ÇELİK SANAYİ VE TİCARET A.Ş. 11/05/1998 15/03 482 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![csb.gov.tr](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## csb.gov.tr
+• Kuru dip cüruf fırını: Buharlaştırıcı veya yanma odalarının duvarlarına yakın yerde küllerin ergime sıcaklığının çok altındaki ısı derecelerinde çalışır. Bu işlemde yaklaşık olarak küllerin %10-20'si cüruf olarak dışarı atılır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Sektörü | Madencilik Haberleri | Sayfa 30](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Madencilik Sektörü | Madencilik Haberleri | Sayfa 30
+Madencilik Sektörü hakkında madensitesi tarafından yazılan gönderiler Madencilik Sektörü Hakkında Herşey
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) ENDÜSTRİYEL YAKIT TÜRÜ PETROKOK'UN İNSAN .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## (PDF) ENDÜSTRİYEL YAKIT TÜRÜ PETROKOK'UN İNSAN .
+Petroleum coke (petcoke), especially high vanadium (V) petcoke, has been produced increasingly because of the growing consumption of petroleum oil. Petcoke ash fusibility is closely related to ash 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çimento sektörü ve beklentiler [Arşiv] : .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Çimento sektörü ve beklentiler [Arşiv] : .
+10/10/2012· [/B]Sektörde başta ithal petrokok olmak üzere, ithal taş kömürü, ithal linyit, yerli linyit, yerli taşkömürü ve az miktarda fuel oil ile doğal gaz kullanılmaktadır. Kullanılan petrokokun ısıl değeri 7.500 Kcal/kg, ithal taş kömürün ısıl değeri 6.000-6.300 Kcal/kg, yerli
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![csb.gov.tr](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## csb.gov.tr
+Hurda metal işleme tesisinin alanı en az 20.000 metrekare, demir dışı hurda metal işleme tesisinin alanı ise en az 5.000 metrekare olmalıdır İşletme girişinde araçları ve yüklerini kontrol edecek özellikte radyasyon ölçüm cihazı bulunmalıdır İşletmelerdeki atık
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![csb.gov.tr](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## csb.gov.tr
+ÇED Yönetmeliği'nin Ek-2 Listesi'nde klinker öğütme, asfalt plent, kireç ve alçı üretimi, manyezit işleme, perlit ve benzeri maden genleştirme tesislerine ilişkin olarak verilen tanımlama ise Kutu 2'de sunulmaktadır. Görüldüğü gibi; hazır beton, çimento veya diğer 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PETROKOK VE LİNYİT KARIŞIMLARININ DOLA IMLI AKI KAN .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## PETROKOK VE LİNYİT KARIŞIMLARININ DOLA IMLI AKI KAN .
+Petrokok, normal koşullarda kimyasal tepkimelere girmez, polimerize olmaz. Ham petrolde bulunan nikel, çinko, toryum, arsenik, molibden, cıva, baryum, kurşun, kobalt, antimon,
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Maden İşleme Çözümleri Kataloğu](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Maden İşleme Çözümleri Kataloğu
+No category Maden İşleme Çözümleri Kataloğu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇED Raporu - Çevre ve Şehircilik Bakanlığı](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## ÇED Raporu - Çevre ve Şehircilik Bakanlığı
+VOTORANTİM ÇİMENTO. SAN. ve TİC. A.Ş. ÇİMENTO FABRİKASI VE MALZEME OCAKLARI KAPASİTE ARTIŞI PROJESİ SİVAS İLİ, MERKEZ İLÇESİ, YAPI MAHALLESİ ÇED RAPORU SİVAS, 2014 Serdar Mühendislik Çevre ve Atık Yönetimi İnşaat Taahhüt Sanayi ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Petrokok Özellikleri Üreticilerinden ve .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Yüksek Kaliteli Petrokok Özellikleri Üreticilerinden ve .
+petrokok özellikleri yüksek düzeyde karbon ve sülfür gibi çok az safsızlık içerir. Yandıklarında, normal kömür ve diğer yakıt türlerine göre daha az kül ve duman üretirler. İyi aşınma direnci, her bir parçanın nakliye sırasında ve emniyette kalmasını sağlar.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Kereste Kurutma Fırını Satılık .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Yüksek Kaliteli Kereste Kurutma Fırını Satılık .
+Kalsine petrokok güvenilir kalite 2.245m döner kalsinasyon fırını Iso Güneydoğu Asya Profesyonel üreticisi tarafından $220.000,00-$10.000.000,00 / Takım 1 Takım (Minimum Sipariş Miktarı)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ardahan Yatırım Ortamı ve Yapılabilecek Yatırımlar Araştırması](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Ardahan Yatırım Ortamı ve Yapılabilecek Yatırımlar Araştırması
+2005 yılı için 350 ton hurda bakır, 2.500 ton hurda demir, 1.500 ton demir sac, 5.000 ton suni gübre, 5.000 m3 tomruk kereste, 5.000 ton kömür (petrokok hariç), 30.000 ton odun (yakacak) ithali izni verilmiş ve bu çerçevede yıl içerisinde 75.525 kg. kereste ve
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En İyi Kalite petrokok fiyat](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## En İyi Kalite petrokok fiyat
+petrokok fiyat yüksek düzeyde karbon ve sülfür gibi çok az safsızlık içerir. Yandıklarında, normal kömür ve diğer yakıt türlerine göre daha az kül ve duman üretirler. İyi aşınma direnci, her bir parçanın nakliye sırasında ve emniyette kalmasını sağlar.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Firmalar - Mineraller - İstanbul | İşletme rehberi .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Firmalar - Mineraller - İstanbul | İşletme rehberi .
+Kurulum ve bakım hizmetleri, ağaç işleme ekipmanı için Kauçuk ürünler İstanbul - Turkiye  Çimento ve klinker ihracatı ile petrokok ve kömür ithalatı yapılmaktadır. Supplier of: Kömür Enerji, yakıt ve su Kömür, ev içi kullanımına yönelik İstanbul - Turkiye
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Genel Planlama Süreci | harun s](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## (PDF) Genel Planlama Süreci | harun s
+MSGSÜ Planlama Atölyesi II PLAN,PROJE VE YASAL ÇERÇEVE GRUBU Harun Yasir Sarıdaş Hüseyin Günay Can Oktay Solak
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ürünler ‹ Şahin Kömür Ticaret A.Ş.](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Ürünler ‹ Şahin Kömür Ticaret A.Ş.
+Petrokok Kömür Petrolden üretilen ikame bir yakıttır. Petrokoklar, çimento, kireç, demir-çelik gibi bir çok sanayi sektöründe kullanılır. En az 7.500 kcal/kg (&pm;500 tolerans) KALİBRE 60mm SATIŞ ŞEKLİ Açık (dökme) KULLANIM ALANI Çimento, kireç, demir 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![eğitim notları-A.F.](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## eğitim notları-A.F.
+Klinker en fazla 20 dakikası sinter bölgesinde olmak üzere yaklaşık 1 saat içinde fırını terk eder.  Fırında kullanılan yakıtlar fueloil (4 no.lu, 6 no.lu v.b.), kömür (linyit, petrokok, steamcoal, yerli v.b.), doğalgaz veya alternatif yakıtlardır (lastik, kâğıt, boya çamuru 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Petrokok | ÖZERSOYLAR DIŞ TİCARET A.Ş](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Petrokok | ÖZERSOYLAR DIŞ TİCARET A.Ş
+Özersoylar, Türkiye'nin ilk petrokok ihcaratını gerçekleştiren firma olmuştur. İhracatını yaptığımız petrokok, Tüpraş İzmit Rafinerisi tarafından üretilmekte ve yüksek kükürt ihtiva etmektedir. Tonajlarımız min. 5000 mt olup 50.000 mt DWT gemiler İzmit Körfezi'ndeki limanlarından yüklenmektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

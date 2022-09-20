@@ -1,0 +1,97 @@
+# altın madenciliğinde kullanılan ellecleme ekipmanının işlevleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İSG Sözlük - B Harfi ile Başlayan Teknik Terimler | İSG .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## İSG Sözlük - B Harfi ile Başlayan Teknik Terimler | İSG .
+İSG Sözlük - B harfi ile başlayan teknik terimlere İSG Kütphanesinden ulaşabilirsiniz. Tekstil sanayiinde kullanılan ve bakır sülfatın katılması ile elde edilen bir cins yapay ipek. Pamuk yağından temizlenen pamuk artıkları (lentersler) bakır sülfat ile sodyum 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İŞ SAĞLIĞI VE GÜVENLİĞİ YÖNETİMİ DERSİ 8-14 ÜNİTE](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## İŞ SAĞLIĞI VE GÜVENLİĞİ YÖNETİMİ DERSİ 8-14 ÜNİTE
+İş Güvenliği temel prensipleri 10 tanedir. 29 yaralanmalı kaza, 300 ramak kala yaşandı ise 1 ölümlü ya da ağır yaralanmalı kaza olması beklenir. Çalışma ve sosyal güvenlik bakanlığı müfettişleri devlet adına denetleme yapar. İş kazası ve meslek hastalıkları sonucu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![dökümanı indirmek için resme tıklayın - Maden-İş](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## dökümanı indirmek için resme tıklayın - Maden-İş
+No category dökümanı indirmek için resme tıklayın - Maden-İş
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bakanlar Kurulu Kararı](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Bakanlar Kurulu Kararı
+1.Gıda sanayiinde kullanılan ve ağırlık itibariyle % 68,75 bütirik yağ, % 17 şeker, % 13 su ve % 1,25 kazein içeren, sürülebilen ve yağ görünümlü, yağ içinde su tipi emülsiyon şeklinde bütirik yağ esaslı karışım. 0405.20 2.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Altın İşlemleri](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Altın İşlemleri
+Saf altın yani 24 ayar altın çok yumuşak ve kolayca şekli bozulabilecek bir yapıdadır. Bu sebeple ve fiyatının daha uygun olması açısından 24 ayar altının içerisine gümüş, bakır ve çinko eklenerek saflık derecesi düşürülüp, şeklinin bozulmaması da sağlanarak fiyatı daha uygun hale getirilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![[PDF] İKTİSADİ VE İDARİ BİLİMLER DERGİSİ - Free .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## [PDF] İKTİSADİ VE İDARİ BİLİMLER DERGİSİ - Free .
+1 İKTİSADİ VE İDARİ BİLİMLER DERGİSİ JOURNAL OF ECONOMICS AND ADMINISTRATIVE SCIENCES Sahibi / Owner Atatürk Ü
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TURKISH LANGUAGE EDITION - Milling and Grain - Issue .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## TURKISH LANGUAGE EDITION - Milling and Grain - Issue .
+CILT 129 SAYI 07 Temmuz 2018 Perendale Publishers Ltd 7 St George's Terrace St James' Square, Cheltenham, Glos, GL50 3PT, Birleşik Krallık Tel: +44 1242 267700 Editör Roger Gilbert rogerg 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TURKISH LANGUAGE EDITION - Milling and Grain - Issue .](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## TURKISH LANGUAGE EDITION - Milling and Grain - Issue .
+COMMERCIAL BINS COMMERCIAL DRYERS STEEL BUILDINGS COMMERCIAL SWEEPS BUCKET ELEVATORS COMMERCIAL CONVEYORS • 47.548m Diameter Bins (20320..2 mt) • Tower Dryers (22.5-281.2 t/h) • Peak 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ESKİŞEHİR KAYMAZ EPİTERMAL ALTIN CEVHERLERİ ÜZERİNDE .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## ESKİŞEHİR KAYMAZ EPİTERMAL ALTIN CEVHERLERİ ÜZERİNDE .
+does not have a significant role in efficiency and Au contents. Concentrate containing 40.2 ppm Au was obtained with 67.8% efficiency at 1000 g/t. By increasing the product amount to raise the Au content, 4 steps of rough floatation was performed by a 6000 g. sample .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Altın madenciliğinin gözardı edilen boyutu](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Altın madenciliğinin gözardı edilen boyutu
+Altın madenciliğinin gözardı edilen boyutu Prof. Dr . Şinasi Eskikaya, bir süredir ülkemizin gündemini meşgul eden altın madenciliğinin pek de gündeme gelmeyen bir boyutunu, atık 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Özelleştirme-Privatization: Şubat 2016](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Özelleştirme-Privatization: Şubat 2016
+a) Liman ekipmanının kiraya verilmesi Liman işleticileri (özel operatörler) liman işletmesine ait olan ekipmanı operatörü ile birlikte veya operatör olmaksızın kiralamaktadır. Antwerp, Rotterdam gibi limanlarda römorkör, yüzer vinç, rıhtım vinci gibi belediyeye ait ekipmanlar kiralanmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Türkiye'de Altın Madenciliği - Dokuz Eylül University](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Türkiye'de Altın Madenciliği - Dokuz Eylül University
+Altın Madenciliğinin Basamakları 1. Rezervin tespiti –Fizibilite - Cevherin Çıkarılması - Boyut Küçültme 2. Altını NaCN İle Çözerek Sıvı Faza Alma 3. Sıvı Fazdaki Altının Aktif Karbon Üzerine Emilmesi 4. Aktif Karbondandan Sıyırma 5. Elektroliz Ünitesinde Sıvı-)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MADEN-MADENCİLİK, ALTIN VE ÇEVRE](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## MADEN-MADENCİLİK, ALTIN VE ÇEVRE
+"Altın, tenör ve tenöre bağlı kazı miktarı açısından diğer birçok madenlerden ayrılır. Örtü kazı miktarı hariç sadece cevher açısından kazı miktarı çok büyüktür. Örneğin (1) ton kömür için yaklaşık (1) ton kömür kazılır. (1) Ton demir için, (2-3) ton demir cevheri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CottGroup Blog](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## CottGroup Blog
+<br /><br />Acil Durumlarda Yükümlülükler<br /><br />Resmi Gazete'nin 18 Haziran 2013 tarihli 28681 sayılı nüshasında, İşyerlerinde acil durumlar hakkında yönetmelik yayımlandı.<br /><br />Yayımlanan bu yönetmeliğe gore, 6331 sayılı İş Sağlığı ve Güvenliği
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TURKISH LANGUAGE EDITION - Milling and Grain - Issue .](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## TURKISH LANGUAGE EDITION - Milling and Grain - Issue .
+Birçok ülkede kullanılan ana parametrelerden bir diğeriyse tebeşirliliktir. Tebeşir, tohumun içinde beyaz kütle olması demektir. Beyaz kütle oranu yüzde 50'yi geçerse, tohum 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CottGroup Blog](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## CottGroup Blog
+<br /><br />Acil Durumlarda Yükümlülükler<br /><br />Resmi Gazete'nin 18 Haziran 2013 tarihli 28681 sayılı nüshasında, İşyerlerinde acil durumlar hakkında yönetmelik yayımlandı.<br /><br />Yayımlanan bu yönetmeliğe gore, 6331 sayılı İş Sağlığı ve Güvenliği 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sürdürülebilir Madencilik – A. Vedat OYGÜR - .](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Sürdürülebilir Madencilik – A. Vedat OYGÜR - .
+Altın, parlak sarı rengi, oksitlenmemesi (paslanmaması), kolaylıkla işlenebilmesi ve doğada serbest metal halinde bulunması nedeniyle bakır ile birlikte insanlar tarafından kullanılan ilk metallerden birisidir. İnsanoğlunun altın madenciliğine ne zaman başladığını
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lisansüstü Ders Kataloğu | Sabancı Üniversitesi](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Lisansüstü Ders Kataloğu | Sabancı Üniversitesi
+Uygulamalı çalışmalar işlevsel genomikte kullanılan yaklaşımları içermektedir. Proteinlerin işlevleri, farklı genlerin aynı zamanda ekspresyonu ve birleştirilmiş genel hücresel işlevler çerçevesinde incelenecektir. İleri Biyoinformatik BIO 511 Mühendislik ve Doğa
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Temel Madencilik Bilgileri .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## (PDF) Temel Madencilik Bilgileri .
+Basic Mining Handbook by Dr. E. Kömürlü, Dr.O.Aksoy and H.E. Yaman (Editors) May 2017, e-book of Madencilik Türkiye Dergisi, Ankara
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Türkiyede Altın madenciliği - Acil Servis](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Türkiyede Altın madenciliği - Acil Servis
+Diğer yöntemlerin geliştirilmesine yönelik araştırmalar halen sürdürülmektedir. Altın madenciliğinde bilinen eski yöntemlerden olan amalgamasyon, altının cıva ile alaşım yaparak özütlenmesidir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Altın madenciliğinde bilinmeyenler - Çanakkale Haber](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Altın madenciliğinde bilinmeyenler - Çanakkale Haber
+Altın madenciliğinde merak edilen konuları Gazeteci Vedat Sezer, uzmanına sordu. Maden Mühendisi Dr. Muhterem Köse'nin konuk olduğu Bakış açısı özel programında madencilik merak edilen 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![[PDF] İKTİSADİ VE İDARİ BİLİMLER DERGİSİ - Free .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## [PDF] İKTİSADİ VE İDARİ BİLİMLER DERGİSİ - Free .
+Short Description 1 İKTİSADİ VE İDARİ BİLİMLER DERGİSİ JOURNAL OF ECONOMICS AND ADMINISTRATIVE SCIENCES Sahibi / Owner Atatürk Ü Description
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">!["Kirli Altın" madenciliği - Dünya Gazetesi](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## "Kirli Altın" madenciliği - Dünya Gazetesi
+Altın madenciliğinde çoğunlukla "Yığın Liçi" (Heap leaching) denen bir süreç kullanılıyor. Bu süreçte siyanür eriyiği, büyük maden filizi yığınına karıştırılıyor. Bu eriyik, altını filizden ayırıyor ve bir havuzda toplanıyor. Sonra elektro-kimyasal bir proses ile altın
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Koza Altın İşletmeleri A.Ş. - DÜNYADA ve TÜRKİYE™DE ALTIN .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Koza Altın İşletmeleri A.Ş. - DÜNYADA ve TÜRKİYE™DE ALTIN .
+Altın madenciliğinde kullanılan sodyum siyanür, hidrojen siyanürden (HCN) elde edilmektedir. Dünyadaki yıllık HCN üretimi 1.4 milyon ton civarındadır. Bu HCN in yaklaşık % 13 ünden madencilik sektöründe kullanılan sodyum siyanür üretilmektedir. Hidrojen
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

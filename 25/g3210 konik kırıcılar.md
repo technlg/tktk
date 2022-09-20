@@ -1,0 +1,41 @@
+# g3210 konik kırıcılar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kod (G) Açıklaması G00 Pozisyona h F T G01 F T - Bilkey](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Kod (G) Açıklaması G00 Pozisyona h F T G01 F T - Bilkey
+T.C. M.E.B. ÖZEL ATILIM BİLKEY BİLİŞİM KURSU [CNC Freze-Torna Programlama Kursu] Sayfa 1 Kod (G) Açıklaması (CNC Freze-Torna) G Listesi Frz Trn G00 Pozisyona hızlı ilerleme (talaş almaksızın kesicinin boşta hızlı hareketi) F T G01 Doğrusal interpolasyon (talaş alma ilerlemesi ile doğrusal hareket) 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KNK3212K Plastik Konik Kasa | İSTOÇ PLASTİK](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## KNK3212K Plastik Konik Kasa | İSTOÇ PLASTİK
+Ürün Referansı: KNK3212K Hammadde: PP Ağırlık: 450 GR ±%2 Dış Ölçüler: 200300120 mm İç Ölçüler: 180275115 mm Şekil Özellikleri: Altı kapalı, yanları kapalı, sapı kapalı. Stok Renkleri: – A. Mavi Ürün Aksesuarları: – TKN3201 Kapak Üretici Notu: – Konik üründür, iç içe sevk edilebilir. – Kapak ayrı satılır. – Kapaksız olarak üst üste 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ANAÇ G36 KAZLARIMIZI BÜYÜTMEYE BAŞLADIK.. .](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## ANAÇ G36 KAZLARIMIZI BÜYÜTMEYE BAŞLADIK.. .
+About Press Copyright Contact us Creators Advertise Developers Terms Privacy Policy & Safety How YouTube works Test new features
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gıcık komşu çocuğu 20.000 TL'lik PC'yi kırarsa | Technopat .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Gıcık komşu çocuğu 20.000 TL'lik PC'yi kırarsa | Technopat .
+Ben videodakinden daha fazlasını yapardım. Üstüne sıvı nitrojen döker, merdivenlerden aşağı bırakırdım. Sonrasında tekrardan evime alır, o yavaş yavaş kendine gelmeye başladığında Frisby PSU ile başbaşa bırakırdım(!) Ben videodakinden daha fazlasını yapardım.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KONNEKTÖR & SOKET & KLEMENS - ÇAKIR ELEKTRONİK](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## KONNEKTÖR & SOKET & KLEMENS - ÇAKIR ELEKTRONİK
+YARI İLETKEN ENTEGRE, TRANSİSTÖR,DIOD,MOSFET, IGBT,RÖLE,TRİSTÖR,KAMÇILI DİYOT, NTC,PTC, DİRENÇ TRİSTÖR VE BİNLERCE ÇEŞİT MALZEME İLE SİZLERLEYİZ. HAFTA İÇİN HER GÜN SAAT 15:00 KADAR VERİLEN SİPARİŞLER 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bilgisayar Kapatan Kedi Komik Anlar #27 - YouTube](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Bilgisayar Kapatan Kedi Komik Anlar #27 - YouTube
+Uzun bir komik anlar videosu sizlerle. Türkçe, eğlenceli ve komik anlar ile dolu bir video izlemeye hazırsanız başlayalım. İyi seyirler. Yeni videolardan anı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![- YouTube](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## - YouTube
+About Press Copyright Contact us Creators Advertise Developers Terms Privacy Policy & Safety How YouTube works Test new features
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KONİK DİREK Fiyatları ve Özellikleri](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## KONİK DİREK Fiyatları ve Özellikleri
+KONİK DİREK en iyi özellikleri ve gerçek kullanıcı yorumları en ucuz fiyatlarla n11'da. Kampanyalı ve indirimli fiyatlarla satın al. n11'dan satın aldığınız ürünler için cayma hakkınızı kullanabilirsiniz. İade Sürecini Gör Farklı bir model, beden veya renkle Ürün Değişimi yapabilirsiniz. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Canon G2410 G2411 G3410 G3411 Servis Modu Nedir? .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Canon G2410 G2411 G3410 G3411 Servis Modu Nedir? .
+20/5/2020· LÜTFEN DİKKAT - BİLGİLENDİRME:Canon G2410 - G2411 – G3410 – G3411 gibi üzerinde küçük led ekranı olan yeni model yazıcılarda servis moda girme işlemi farklıd
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KNK3220K Plastik Konik Kasa | İSTOÇ PLASTİK](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## KNK3220K Plastik Konik Kasa | İSTOÇ PLASTİK
+Ürün Referansı: KNK3220K Hammadde: PP Ağırlık: 585 GR ±%2 Dış Ölçüler: 200300200 mm İç Ölçüler: 180275195 mm Şekil Özellikleri: Altı kapalı, yanları kapalı, sapı kapalı. Stok Renkleri: – A. Mavi Ürün Aksesuarları: – TKN3201 Kapak Üretici Notu: – Konik üründür, iç içe sevk edilebilir. – Kapak ayrı satılır. – Kapaksız olarak üst üste 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

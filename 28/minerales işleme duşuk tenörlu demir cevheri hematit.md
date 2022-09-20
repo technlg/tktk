@@ -1,0 +1,41 @@
+# minerales işleme duşuk tenörlu demir cevheri hematit
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MİNERALLER - Ankara Üniversitesi](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## MİNERALLER - Ankara Üniversitesi
+Emilen demir transferin denilen bir kan proteinine bağlanarak kemik iliği ile dalak ve karaciğere gider. Ferritin karaciğer, dalak ve kemik iliğinde bulunur. Kandaki ferritin seviyesini belirlemek demir depoları hakkında fikir verir. Normali 60 - 110 mcgr. dır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![METAL KÖPÜK MALZEMELER VE YÜZEY SOĞUTMADA KULLANIMI](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## METAL KÖPÜK MALZEMELER VE YÜZEY SOĞUTMADA KULLANIMI
+Alüminyum, demir, nikel, kurĢun, çinko ve titanyum metal köpük yapımında kullanılan malzemelerdir. Ancak günümüzde alüminyum, düĢük yoğunluğu, korozyon direnci ve düĢük ergime sıcaklığı gibi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MEM-313 EKSTRAKTİF METALURJİ](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## MEM-313 EKSTRAKTİF METALURJİ
+Metaller yKolaylıkla elde edilebildiği için, ilk bulunan ve kullanılan metaller bakır, gümüşve altın şeklinde sıralanmaktadır.Öyle ki bu metaller bazen yaşanan döneme adını vermiştir. Demir çağı, Bronz çağı gibi. yBugün bilinen mevcut elementlerin %75'inden fazlası 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İ İĞİ İ ZM R ISI YALITIM ÖZELLİKLERİYİLEŞTİRİLMİŞ YAPI .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## İ İĞİ İ ZM R ISI YALITIM ÖZELLİKLERİYİLEŞTİRİLMİŞ YAPI .
+ağırlıklı bir alüminosilikat kompozisyonuna sahip olup %8.8 orannda demir içermektedir. Hammadde ı olarak kullanılan killi topraktan 10mmx10mmx20mm ebatlarında numuneler hazırlanarak dilatometrede ısıl genleşme davranışı incelenmiştir. Yaklaşık %1-2 o
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HİDROMETALURJİ - Dokuz Eylül University](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## HİDROMETALURJİ - Dokuz Eylül University
+reaksiyonla hematite dönüşür: Bu demir oksit (hematit) siyanür çözeltisinde çözünmez. 2FeS(k) + 7/2O 2 (g) = Fe 2 O 3 (k) + 2SO 2 (g) (6) (3.3.1.3) Çözündürme reaksiyonları cevher içinde bazı empürite elementlerinin bulunmasıyla bazen kısıtlanabilir
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kalite fiyat manyetit demir cevheri](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Yüksek Kalite fiyat manyetit demir cevheri
+Demir cevheri 45%/ hematit demir cevheri manyetit demir cevheri / demir cevheri para cezaları, topaklar ve pelet $50,00-$350,00 / Metrik Ton 10000 Metrik Ton (Minimum Sipariş Miktarı)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![1. DÜNYADA DEMİR-ÇELİK SEKTÖRÜ](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## 1. DÜNYADA DEMİR-ÇELİK SEKTÖRÜ
+2.2 Demir Cevheri Entegre demir-çelik tesislerinin ana hammadde girdileri demir cevheri ve kok kömürüdür. Cevher kalitesine, kömür ve yüksek fırın teknolojilerine bağlı olarak yaklaşık 1 ton kömürden 800 kg kok, 1,5 ton cevher+500 kg kok kömüründen de 1 ton
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Düşük Tenörlü Oolitik Demir Cevherinin Flotasyon«](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Düşük Tenörlü Oolitik Demir Cevherinin Flotasyon«
+Düşük Tenörlü Oolitik Demir Cevherinin Flotasyon« Gülhan ÖZBAYOĞLU ÖZET Bu çalışmadan amaç, flotasypn yöntemi nin oozitik tipli ve düşük tenörlü demir cevherlerinin zenginleştirilmesine olan etkinliğini göstermektir. Silifke Gilindire mıntıkasına ait numune
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![8. lE5c 1 VoGVkGGV](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## 8. lE5c 1 VoGVkGGV
+2 D. Soruları cevaplayarak bulmacayı tamamlayınız. 1. Türkiye'de güneyden kuzeye doğru gidildikçe Güneş ışınlarının gelme açısı azalır. 2. Türkiye'ye Güneş ışınlarının en küçük açıyla geldiği tarihte en uzun gece yaşanır. 3. 21 Aralık tarihinde Yengeç Dönencesi'ne .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İzmir Kâtip Çelebi Üniversitesi - MSETE37 ÜRETİM .](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## İzmir Kâtip Çelebi Üniversitesi - MSETE37 ÜRETİM .
+Demir ve alaşımları mühendislik malzemeleri olarak. Demirli alaşımların sınıflandırılması. Demir cevheri. Yüksek fırınlarda demir yapmak için hammaddeler. Aglomerasyon, sinterleme ve peletleme. Yüksek fırın yapımı. Refrakter astar. Sıcak hava sobaları. Gaz
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

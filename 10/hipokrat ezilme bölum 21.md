@@ -1,0 +1,41 @@
+# hipokrat ezilme bölum 21
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HİPOKRAT GÜNLÜKLERİ | KANAL SİM](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## HİPOKRAT GÜNLÜKLERİ | KANAL SİM
+sağlık konularını irdeliyor, konuklarıyla sağlık politiklarına farklı açılardan bakıyor. PERŞEMBE 21.00 KANAL SİM Başlang ıç About ELEKTRİKTE NELER OLUYOR? HİPOKRAT GÜNLÜKLERİ Posted by kanalsim on 15 Ağustos 2011 · Yorum Yapın 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hippokrat — Vikipediya](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Hippokrat — Vikipediya
+Hippokrat (yun. Ἱπποκράτης, lat. Hippocrates; təxminən e.ə. 460 – e.ə. 370) — ən tanınmış qədim yunan həkimi olmuşdur. Onu "təbabətin atası" adlandırmışdırlar. O, həm də təbabətdə əxlaq məsələlərinə toxunaraq həkimin davranış qaydalarına dair fikirlərini açıqlamışdır. "Hippokrat andı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Hipokrat'ın Felsefesi, The Philosophy of Hypocrates](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## (PDF) Hipokrat'ın Felsefesi, The Philosophy of Hypocrates
+PDF | On Jun 1, 2012, Okan Bolukbasi published Hipokrat'ın Felsefesi, The Philosophy of Hypocrates | Find, read and cite all the research you need on ResearchGate
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yayınlarımız - Hipokrat Kitabevi](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Yayınlarımız - Hipokrat Kitabevi
+Hipokrat Kitabevi 150,00 TL 120,00 TL Sepete Ekle % 20 Masaj Teknikleri - İnci Yüksel İnci Yüksel Hipokrat Kitabevi 110,00 TL 88,00 TL 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HİPOKRAT - TDV İslâm Ansiklopedisi](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## HİPOKRAT - TDV İslâm Ansiklopedisi
+3/6/2020· Hipokrat'ın klinik gözlemci yanının İslâm dünyasındaki en önemli temsilcisi Ebû Bekir er-Râzî'dir. Onun el-Ḥâv î 'si Hipokratik külliyata atıflarla doludur. Ayrıca Ya'kūb b. İshak el-Kindî'nin eṭ-Ṭıbbü'l-Buḳrâṭî 'si ile Ebü'l-Hasan et-Taberî'nin el-Muʿâlecâtü'l 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kategoriler - Hipokrat Kitabevi](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Kategoriler - Hipokrat Kitabevi
+Fizyoterapi Kitapları Ergoterapi Tıp Kitapları Beyin Cerrahi Mikrobiyoloji Türkçe Tıp Kitapları Yabancı Dil Tıp Kitapları Bilgisayar Bilgisayara Giriş Bilgisayarlı Muhasebe Bilimsel Uygulamalar Donanım Internet, E–Ticaret İşletim Sistemleri Network, Sistem Yönetimi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hipokratova zakletva u 21. veku](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Hipokratova zakletva u 21. veku
+Hipokratova zakletva u 21. veku Svaki lekar je dužan da pacijentu pomogne bez obzira na to da li je mito u kešu ili u naturi. 10:36:23 +0100 Ивке_Гробар 4 .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hippocrates Congress - ULUSLARARASI HIPOKRAT TIP VE .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Hippocrates Congress - ULUSLARARASI HIPOKRAT TIP VE .
+ULUSLARARASI HIPOKRAT TIP VE SAĞLIK BİLİMLERİ KONGRESİ İnsanlık her dönemde, sağlıklı kalmanın ve hatta ölüme çare bulmanın peşinde olmuştur. Eskiçağlardan itibaren insanlar, yakalandıkları hastalıklara şifa aramış, Eski Mısır'da veya Yunan'da olduğu gibi, .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hipokrat - 4 dilde haberler ve ansiklopedi](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Hipokrat - 4 dilde haberler ve ansiklopedi
+Hipokrat'ın öğrencilerini para karşılığında eğittiğini ve hekimlik alanında Polykleitos ile Phidias'ın heykelcilikte kazandığı üne yakın bir ün kazandığından bahseder. Eflatun, "Phaidros" adlı yapıtında ise Hipokrat'a değinerek onun tıbba felsefi bir yaklaşım getirmiş ünlü bir Asklepiades olduğunu ve insan vücudunu bir bütün olarak ele aldığını anlatır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HİPOKRAT by Derya Çınar](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## HİPOKRAT by Derya Çınar
+HİPOKRAT YEMİNİNİN İÇERİĞİ Bu yeminin başlıca iki bölümü vardır. Birinci bölümde, hekimin tıp öğrencilerine, ikinci bölümde ise hastalarına karşı olan sorumlulukları ve yükümlülükleri belirtilir. Aşağıda da okuyacağınız gibi, hastaya zarar vermemek, daima onların
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

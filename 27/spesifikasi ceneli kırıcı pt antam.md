@@ -1,0 +1,49 @@
+# spesifikasi ceneli kırıcı pt antam
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(XLS) Sozluk | Ade Irvan](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## (XLS) Sozluk | Ade Irvan
+(XLS) Sozluk | Ade Irvan  Sozluk
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cek Keaslian Emas Antam CertiCard Dengan Aplikasi .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Cek Keaslian Emas Antam CertiCard Dengan Aplikasi .
+Pada tahun 2018 Antam meluncurkan emas batangan berbentuk kartu yang memiliki teknologi CertiCard dimana teknologi CertiCard memungkinkan aplikasi CertiEye untuk cek keaslian emas Antam. CertiCard dan CertiEye adalah produk dari perusahaan Italia bernama Certiline yang berdiri sejak tahun 1989.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TIPS cara mengecek keaslian Emas LM Antam dan .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## TIPS cara mengecek keaslian Emas LM Antam dan .
+Tanda keaslian sertifikat Antam itu minimal ada 3: Pertama, ada tanda 'bulu' semacam goresan pendek acak berwarna merah/hijau. Bisa dilihat jg dng cara diterawang ke arah sinar matahari. Kedua, ada invisible printing bbrp blok warna hijau di bagian baris data sertifikat Antam dan jg logo perusahaan Logam Mulia Antam berwarna hijau. Tanda ini hrs di lihat dengan bantuan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Full text of "İngilizce PDF Sözlük İndir"](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Full text of "İngilizce PDF Sözlük İndir"
+An icon used to represent a menu that can be toggled by interacting with this icon.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sertifikat CE Alat Kesehatan](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Sertifikat CE Alat Kesehatan
+Sertifikat CE Alat Kesehatan Alat kesehatan dipahami sebagai alat, peralatan, bahan, dan perangkat lunak yang digunakan dalam diagnosis, pencegahan, pemantauan, perawatan, dan mitigasi penyakit. Istilah perangkat medis termasuk perangkat diagnostik in vitro 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mengenal Aplikasi CertiEye untuk Cek Keaslian Logam .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Mengenal Aplikasi CertiEye untuk Cek Keaslian Logam .
+Setelah pemindaian scan di barcode CertiEye, akan muncul logo 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bagaimana Mengecek Keaslian Sertifikat Antam? | ODNV](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Bagaimana Mengecek Keaslian Sertifikat Antam? | ODNV
+Setelah kita mengetahui bentuk fisik sertifikat Antam, maka kami akan coba sharing bagaimana mengecek keaslian sertifikat Antam tersebut. Meskipun secara kasat mata, sertifikat Antam tersebut nampak seperti kertas biasa, namun sesungguhnya dia punya karakteristik seperti kertas uang yang bisa kita cari tahu mengenai keasliannya.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mengecek Keaslian Sertifikat Antam | galeryemas](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Mengecek Keaslian Sertifikat Antam | galeryemas
+Bagi yang sering memegang sertifikat emas antam mungkin bisa mengenali mana yang asli mana yang palsu, berikut ini ada cara-cara mengenal sertifikat emas Antam barangkali bisa membantu Anda : 1. Terawang Sertifikat tersebut, akan muncul huruf S bolak 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Emas ANTAM, Benarkah Emas Anda Asli? Ini Cara .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Emas ANTAM, Benarkah Emas Anda Asli? Ini Cara .
+Emas ANTAM adalah alat investasi yang digemari banyak orang. Namun, banyak juga oknum-oknum yang menjual emas batangan palsu. Supaya tidak salah, simak cara mengecek keasliannya di sini! Gunakan kode voucher "UNTUKIBU" untuk menikmati promo ini 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yuk Berkenalan dengan Teknologi CertiEye di Emas .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Yuk Berkenalan dengan Teknologi CertiEye di Emas .
+PT ANTAM Tbk Unit Bisnis Pengolahan dan Pemurnian Logam Mulia Gedung Graha Dipta. Jalan Pemuda, No.1 Jatinegara Kaum, Pulo Gadung, Jakarta 13250 [email protected] Berlangganan buletin logammulia Berlangganan Produk dan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cara Mengetahui Keaslian Emas Logam Mulia PT Antam .](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Cara Mengetahui Keaslian Emas Logam Mulia PT Antam .
+PT Antam Tbk. cukup pintar dalam hal sertifikat, mereka menggunakan printing security untuk cetakan sertifikat mereka. Berikut ini adalah ciri-ciri sertifikat emas logam mulia yang asli. 1. Dibawah sinar ultra violet akan ada strip-strip / garis-garis minor warna 2.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Produksi Baterai Kendaraan Listrik, PT Antam Proses .](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Produksi Baterai Kendaraan Listrik, PT Antam Proses .
+Direktur Utama Antam, Arie Prabowo Ariotedjo saat diwawancara. Medan-ORBIT: Untuk mengembangkan produksi baterai kendaraan listrik, maka PT Aneka Tambang (Antam) berupaya lakukan pengkajian dengan beberapa calon investor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

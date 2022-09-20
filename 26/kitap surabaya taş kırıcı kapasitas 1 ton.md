@@ -1,0 +1,97 @@
+# kitap surabaya taş kırıcı kapasitas 1 ton
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![AirworldTurkiye_Sayi02 by Eda - Issuu](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## AirworldTurkiye_Sayi02 by Eda - Issuu
+Surabaya Merebo 1662 17.07.2017 19.07.2017 Tekstil Texworld USA : Kumas Fuari New York Messefrankfurt 551 19.07.2017 25.07.2017 Kitap Book Fair : Kitap .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kitap Bastır | Uygun Fiyatlarla Kitap Basımı | Online Matbaa](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Kitap Bastır | Uygun Fiyatlarla Kitap Basımı | Online Matbaa
+Kitap - (Siyah, Dijital WEB Baskı) 19x27 ebat, 100 sayfa, 100 adet. 856. 96 ₺ + KDV. Detayları Göster. Dijital Tabaka Baskı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dünyayı Değiştiren Beş Denklem - Michael Guillen .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Dünyayı Değiştiren Beş Denklem - Michael Guillen .
+Publishing platform for digital magazines, interactive publications and online catalogs. Convert documents to beautiful publications and share them worldwide. Title: Dünyayı Değiştiren Beş Denklem - Michael Guillen (çev.Gürsel Tanrıöver), Author: MATH Lecture
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Taşlarla Şifa - Hasan Kocabaş | kitapyurdu](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Taşlarla Şifa - Hasan Kocabaş | kitapyurdu
+Şifalı taşlarla ilgili Türkiye'deki en kapsamlı referans kitap çıktı! Taşlar, doğadan aldıkları enerjilerini doğal yoldan insana aktaran şifa kaynağıdır. Taş deyip de geçmeyin! Milyonlarca yıldır doğada var olan taşlar, insan ömrüyle kıyaslanamayacak ölçüde ve yoğunlukta 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kitap - KitapKolik](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Kitap - KitapKolik
+Kitap Setleri Yeni Kitaplar Çok Satanlar Sepet ( 0): 0,00 TL Üye Girişi Üye Ol Fırsat Ürünleri'nde Kargo Bedava Hemen İncele + Her Siparişinize Özel Kesim Ayraç Hediye Sipariş Takibi İletişim Müşteri Hizmetleri 0 850 346 83 62 100 TL ve Üzeri Alışverişlerinizde 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![! ! ! KAMPANYA SEPETİ ! ! !: Hediye Demeti'nden .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## ! ! ! KAMPANYA SEPETİ ! ! !: Hediye Demeti'nden .
+sema kırıcı sema_adnan06@hotmail Yanıtlayın Sil Yanıtlar Yanıtlayın zehra dinler 20/1/11 16:59  Kahve veya koyu renk saçlarınız varsa aralarına birkaç ton açık renklerde sık olmayan balyajlar attırarak daha canlı ve modern bir görünüme kavuşabilirsin
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![0704-Fetihlerden Baghimsizliq Hareketlerine .](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## 0704-Fetihlerden Baghimsizliq Hareketlerine .
+No: 8 0 Kadıköy (3 1 2 ) 4 1 7 50 95/96 - 4 1 8 28 65 Tel: (2 1 6 ) 348 60 58 Faks: (3 1 2 ) 425 65 32 Faks: (2 1 6 ) 418 26 10 Marc Ferro Sömürgecilik Tarihi Fetihlerden Bağımsızlık Hareketlerine Kadar 13. .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![List Of Coal Processing Plant In Brazil](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## List Of Coal Processing Plant In Brazil
+Coal – Anglo American South Africa July was appointed CEO of Anglo American's coal business in South Africa on 1 September 2016 He was previously the Executive Head of Processing at Anglo American Platinum and held several senior managerial positions in
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![List Of Coal Processing Plant In Brazil](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## List Of Coal Processing Plant In Brazil
+July was appointed CEO of Anglo American's coal business in South Africa on 1 September 2016 He was previously the Executive Head of Processing at Anglo American Platinum and held several senior managerial positions in metallurgical operations and
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Burçlara Göre Taşlarınızı Seçebilirsiniz | Tassepeti](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Burçlara Göre Taşlarınızı Seçebilirsiniz | Tassepeti
+Burçlara Göre Taşlarınızı Seçebilirsiniz Hangi doğal taş, hangi burcun taşıdır? Benim taşım hangileri? Birincil taşlarım neler? Tüm bu soruların cevabını aşağıda bulabilirsiniz. Tavsiyemiz birincil taşlarınızdır fakat istediğiniz taş ikincil taşlarınızın içinde ise önemli olan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kitap | Amazon.tr](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Kitap | Amazon.tr
+En son çıkan popüler kitapları uygun fiyatla Amazon.tr kitap kategorisinde bulun.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(XLS) Sozluk | Ade Irvan](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## (XLS) Sozluk | Ade Irvan
+(XLS) Sozluk | Ade Irvan  Sozluk
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Atilla Taş kitap yazıyor: Sakıncalı Çökelek! - Son Dakika .](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Atilla Taş kitap yazıyor: Sakıncalı Çökelek! - Son Dakika .
+Atilla Taş'ın cezaevinde kitap yazdığını aynı davada yargılandığı gazeteci Mutlu Çölgeçen açıkladı. Taş kitabın adını ise, 'Sakıncalı Çökelek' koyacak. FETÖ'den tutuklanan ve yargılanmasına başlanan Atilla Taş'ın cezaevinde kitap yazdığı öğrenildi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırtasiye / Kırtasiye Kampanyalı](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Kırtasiye / Kırtasiye Kampanyalı
+7.00 TL 3.90 TL. 24. Mono Lead Turuncu Kutulu 6 Adet Siyah Uç 0,5mm 2B LK.T-R5-RG.BX6 2B Tombow . Kargo BEDAVA. Sepete At Hemen Al. %65 Mono Lead Turuncu Kutulu 6 Adet Siyah Uç 0,5mm 2B LK.T-R5-RG.BX6 2B Tombow. Tombow.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Y | ysmine | Directorio de páxinas](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Y | ysmine | Directorio de páxinas
+Ye Gurage lijoch - Ye 1 na 2 kefle muzika temehirt Ye 10 meda ligoch - Ye Bik Gai Hai Gormint Ye Bik Gai Hai Gormint - Ye Lay Ye Dilli hai mere yaar. Bas Ishq Mohabbat Pyaar - Ye Gannpat kaun he Bhai Ye Mera junon hy - Ye Naing Win. Ye Htet - Ye Olde
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Eyd-e Nowruz | Anlamı Nedir?](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Eyd-e Nowruz | Anlamı Nedir?
+(i. matematik). Birbiriyle kesişen iki satıh veya iki çizginin birleştiği yerde meydana gelen açıklık, zaviye. Açı ölçü birimi 360 eşit parçaya bölündüğü takdi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tul-İ Hayat | Tul-İ Hayat ne demek? | Tul-İ Hayat anlamı .](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Tul-İ Hayat | Tul-İ Hayat ne demek? | Tul-İ Hayat anlamı .
+Bu miktarda alkolü 60 kilo ağırlığındaki bir kadın aldığında suçlu olur, çünkü hesaba göre kanında 40(600,6)=1,1 gr/litre alkol çıkar. İnsanlarda bir litre kandaki alkol oranı 0,5 gramı geçtikten sonra refleksler yavaşlar, sürücü bilincine hakim olamaz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TURKISH LANGUAGE EDITION - Milling and Grain - Issue .](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## TURKISH LANGUAGE EDITION - Milling and Grain - Issue .
+Yıllık yüzde 1.3 oranında karma yemi (CAGR) yansıtan, endüstrileşmiş küresel karma yem pazarının gelişmesi 1990 ve 2000 yılları arasında gerçekleşmiştir. 2000 yılından 2010 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![| Anlamı Nedir?](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## | Anlamı Nedir?
+Sayının en küçüğü ve ilki. Ar. ahad, vâhid, Fars. yek: Bir adam, bir ev, bir taş. 1. Tenkir (bilinmezlik) beyan eder, Arapça'deki tenvîn veya bazı kelimesi ve Farsça'da isimlere kalılan (ye) gibi: Bir adam ki nasihat kabul etmez, bir iş ki elde değildir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Taş kitap - Hepsiburada Mağaza](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Taş kitap - Hepsiburada Mağaza
+Taş kitap. Satıcı Puanı 9,8. Satıcı Puanı 9,8 ( 33 değerlendirme) Satıcı puanı, Hepsiburada müşterileri tarafından verilen zamanında gönderim, paketleme ve genel alışveriş deneyimi puanlarına göre hesaplanmaktadır. Tüm siparişler Hepsiburada güvencesi altındadır. Puan hesaplama detayları. 33 değerlendirme yapılmıştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Google](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Google
+Search the world's information, including webpages, images, videos and more. Google has many special features to help you find exactly what you're looking for. Discover Black innovators and their contributions in electronic music
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırtasiye / Defter ve Kitap Kapları](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Kırtasiye / Defter ve Kitap Kapları
+3. Hazır A4 Defter Kabı Bantlı 10 lu Şeffaf U1910 B SE Umix . Kargo BEDAVA. Sepete At Hemen Al. %46 Hazır A4 Defter Kabı Bantlı 10 lu Şeffaf U1910 B SE Umix. Umix. 17.50 TL 9.45 TL. 4. Bantlı A4 Defter Kabı 3 lü Kırmızı U1914 B KI Umix .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çâk ı Giriban | Çâk ı Giriban ne demek? | Çâk ı Giriban .](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Çâk ı Giriban | Çâk ı Giriban ne demek? | Çâk ı Giriban .
+Ton balığı üretimi ve ihracatı Amerikan Samoa'sı ekonomisinin en başlıca unsurlarından biridir. İş gücü: 17,630 (2005). Sektörlere göre işgücü dağılımı: devlet %33, ton balığı avcılık ve üretimi %34, diğer %33. İşsizlik oranı: %29.8 (2005). Bütçe: gelirler: 121
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Taş Masalları 6 Kitap Takım | bkmkitap](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Taş Masalları 6 Kitap Takım | bkmkitap
+Taş Masalları serisi sizi masallı bir oyuna çağırıyor. Doğadaki en sade ve kolay bulunan malzeme olan taşlar oyun arkadaşlarımız. Bu seride, taşlar ile yaratıcılık, farkındalık, problem çözme becerileri desteklenirken birlikte hareket etme, paylaşma, saygı, sevgi, dostluk, farklı olanı kabul etme vb. pek çok değere yer verilmektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,101 @@
+# shanghai statik cevher guc ekranı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SHANGHAI SE COMPOSITE INDEX, SHI:SHH Summary - .](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## SHANGHAI SE COMPOSITE INDEX, SHI:SHH Summary - .
+SHANGHAI SE COMPOSITE INDEX + Add to watchlist SHI:SHH SHANGHAI SE COMPOSITE INDEX Actions Add to watchlist Add an alert Price (CNY) 3,456.74 Today's Change-25.81 / -0.74% Shares traded 177.20k 1 Year change +22.32% 52 week range 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mynet | Haber, Oyun, Video, Spor, Burçlar ve fazlası sizin .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Mynet | Haber, Oyun, Video, Spor, Burçlar ve fazlası sizin .
+Güncel altın fiyatları, son dakika haberleri, spor, oyun, yemek ve ilginizi çekebilecek birçok servis, Türkiye'nin lider internet platformu Mynet ile sizlerle!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Shanghai Express Kína-túlsúlyos részvény alapok .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Shanghai Express Kína-túlsúlyos részvény alapok .
+A Shanghai Express Kína-túlsúlyos részvény alapok eszközalapja bankbetét és készpénz (deviza) formában tartja ideiglenesen szabad pénzeszközeit. Az eszközalap likvid eszközeinek (számlapénz, rövid lejáratú betét, 30 napon belüli lejáratú diszkontkincstárjegy, vagy egyéb kötvény) minimális aránya az eszközérték 0%-a, maximális aránya az eszközérték 20%-a.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Samsun Ticaret ve Sanayi Odası Duyuruları](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Samsun Ticaret ve Sanayi Odası Duyuruları
+vb. sektörlerde faaliyet yürüten işyerlerinin yüksek dereceli maden/cevher eritme fırınları ile soğuk hava depoları gibi zorunlu olarak çalıştırılması gereken bölümlerinde görevli olanlar, f) Ürün ve/veya malzemelerin nakliyesinde ya da lojistiğinde yurt içi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TÜRKİYE'NİN EN POPÜLER DEFİNE ARAŞTIRMA SİTESİ: .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## TÜRKİYE'NİN EN POPÜLER DEFİNE ARAŞTIRMA SİTESİ: .
+Yegane cevher odur." Kozmik Doktrin, Dion Fortune (4) Sıfır Sıfır, sayıları içeren bu bölüm açısından, sayı olmamasına rağmen, ilk sırayı alır. Sıfır boşluğu, yokluğu ifade eder. Yokluk her yerdedir, uzayın uçsuz bucaksız derinliklerinde bütün nesnelerin aralarını 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Shanghai Composite Chart (SSEC)](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Shanghai Composite Chart (SSEC)
+This Week Expectation Buy SHANGHAI above 3540 stop loss 3480 targets Sell SHANGHAI below 3450 stop loss 3510 targets Reply 2 1 Report Jalu NM Mar 07, 2021 2:20PM ET Share
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Shanghai City](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Shanghai City
+Shanghai City SEZNAM ALERGENOV, KI JIH VSEBUJE HRANA: V naši kuhinji rokujemo z alergeni, zato lahko jedi, ki jih prirpravimo vsebujejo sledi teh alergenov. Za seznam alergenov prosim povprašajte naše osebje. Spoštovane stranke, ki imajo kakršnekoli 2 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) 21. Yüzyılın Eşiğinde Kadınlar: Değişim ve Güçlenme .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## (PDF) 21. Yüzyılın Eşiğinde Kadınlar: Değişim ve Güçlenme .
+21. Yüzyılın Eşiğinde Kadınlar: Değişim ve Güçlenme Cilt 4
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Google](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Google
+Search the world's information, including webpages, images, videos and more. Google has many special features to help you find exactly what you're looking for. Discover Black innovators and their contributions in electronic music
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![[PDF] T.C. YILDIZ TEKNİK ÜNİVERSİTESİ. Bilimsel Araştırma .](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## [PDF] T.C. YILDIZ TEKNİK ÜNİVERSİTESİ. Bilimsel Araştırma .
+YILDIZ TEKNİK ÜNİVERSİTESİ Bilimsel Araştırma Koordinatörlüğü ARAŞTIRMA PROJELERİ ÖZETLERİ (2012 YILI) T.C. YILDIZ TEKNİK ÜNİVERSİTESİ Bilimsel Araştırma Projeleri Koordinatörlüğü ARAŞTIRMA PROJELERİ ÖZETLERİ (2012 YILI) İSTANBUL, 2013 1 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DÜZ KALIPLI KESİM MAKİNELERİ - Kullanılmış Makineleri .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## DÜZ KALIPLI KESİM MAKİNELERİ - Kullanılmış Makineleri .
+DÜZ KALIPLI KESİM MAKİNELERİ - Оборудование для высечки необходимой формы из листового материала. Состоит из секций подачи, высечки, удаления отходов и выхода Komple Kullanılmış Makineler Listesi Flekso Katlama yapıştırma, kutu koli üretim makineleri, rotary düz kalıplı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![The Best ETFs for the Shanghai Composite Index](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## The Best ETFs for the Shanghai Composite Index
+27/1/2020· The Shanghai Composite Index, launched in 1991, follows all of the class A and class B shares that are listed on the Shanghai Stock Exchange, which is .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Asam](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Asam
+Panelists also said that the Shanghai Cooperation Organization will not be able to act as an efficient counterforce to the West. China continues to pose a threat to Russia in various ways, especially due to demographic developments.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Shanghai Containerized Freight Index](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Shanghai Containerized Freight Index
+Shanghai Export Containerized Freight Index (SCFI) was officially launched as of October 16, 2009. This index reflects the ocean freight and the associated seaborne surcharges of individual shipping routes on the spot market. Dominating the past year's news has
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) RED BOOK SİLİNEN TÜRKİYE 9 GÜNDE KASIM 2019 .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## (PDF) RED BOOK SİLİNEN TÜRKİYE 9 GÜNDE KASIM 2019 .
+KASIM 2019'DA SOYKIRIM KUDURDU VE 9 GÜNDE GÜNÜN ENLERİ. HİZMET'E VE KÜRTLERE ÖLÜMÜ GÖSTERİP 'SITMAYA RAZI OLUN' DENİYOR. İLK DEFA DETAYLI 11 SAYFALIK SOYKIRIM ANAYASASI 109 MADDE. NASIL ELİMİZE GEÇTİ?
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ « Futbol Tv](https://github.com/technlg/images/blob/main/32.jpg)</a>
+##  « Futbol Tv
+Muhteşem equalizer ayarları ile müziği yeniden keşfedeceksiniz, widgetlar ve müzik dinlerken kilit ekranı çok hoşunuza gidecek.-----MASS EFFECT INFILTRATOR v1.0.39 Final Çığır açan grafik ve yoğun ses özelliği. Gizli bir tesiste yasadışı deneyler
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ODTÜ | Strateji Geliştirme Daire Başkanliği](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## ODTÜ | Strateji Geliştirme Daire Başkanliği
+Sayfa1 BaslaSatir HarcamaAd HarcamaKod IlAd IlKod liste.asp?marka_Brother_kategori_Siyah_20Toner_katid_1_markaid_5_altid_1 liste.asp?marka_Brother_kategori_Siyah_20Toner_katid_1_markaid_5_altid_1_1 MuhasebeAd MuhasebeKod TutanakNo Radyatör
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SHANGHAI STOCK EXCHANGE](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## SHANGHAI STOCK EXCHANGE
+©2019 SHANGHAI STOCK EXCHANGE. ALL RIGHTS RESERVED.ICP  
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Shanghai - China | Data and Statistics](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Shanghai - China | Data and Statistics
+World and regional statistics, national data, maps, rankings – World Data Atlas Data Briefs Curated by Knoema's data analysts to deliver leading short-term and long-term indicators and forecasts from trusted sources for each of the covered industries.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ekşi sözlük - kutsal bilgi kaynağı](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## ekşi sözlük - kutsal bilgi kaynağı
+günlerden bir gün, köylerden birinde bir çiftçinin eşeği kör kuyuya düşer. eşek saatlerce acı içinde kıvranır ve bağırır. sesini duyan sahibi gelip baktığında zavallı eşeği kuyunun dibinde görür. çaresiz çiftçi köylüleri yardıma çağırır. köylüler kör kuyudaki eşeği kurtarmak için .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gemi detayları: XIN SHANGHAI (Container Ship) - IMO .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Gemi detayları: XIN SHANGHAI (Container Ship) - IMO .
+Gemi detayları: XIN SHANGHAI. Gemi IMO / gemi MMSI ve gemi Çağrı işareti de dahil olmak üzere geminin temel Ayrıntılar keşfedin. Tür: Hong Kong içinde kayıtlı Container Ship Gemisi. Ölü-tonaj, Brüt Tonaj ve İnşa Yılı gemi detaylarını bulun. XIN SHANGHAI ile ilgili gemi ayrıntıları Mevcut Gemi Konumu, Yolculuk bilgileri ve fotoğrafları içerir. XIN SHANGHAI 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![AirworldTurkiye_Sayi02 by Eda - Issuu](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## AirworldTurkiye_Sayi02 by Eda - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vladimir Pistalo - Tesla - Maskelerle Çevrili Bir Hayat.pdf - .](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Vladimir Pistalo - Tesla - Maskelerle Çevrili Bir Hayat.pdf - .
+Statik jeneratöre bağlandığında hızla, sessizce so dönen bir topa dönüşüyordu. Adeta, "İşte geldim buradayım," cevabını alana kadar gece kelebeklerinin aklını çelmeye çalı şan ışık gibi çağırdı Nikola'yı. Topun görünür kıldığı enerji ye tapmak istiyordu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SHANGHAI SE COMPOSITE INDEX, SHI:SHH Historical .](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## SHANGHAI SE COMPOSITE INDEX, SHI:SHH Historical .
+SHANGHAI SE COMPOSITE INDEX + Add to watchlist SHI:SHH SHANGHAI SE COMPOSITE INDEX Actions Add to watchlist Add an alert Price (CNY) 3,450.68 Today's Change-31.88 / -0.92% Shares traded 280.09k 1 Year change +22.11% 52 week range 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## 
+Evet,takımlar kadrolarını yavaş yavaş oluştururken,kuralar çekimleride gerçekleşmeye başlıyor Uleb Cup kura heyecanı bir tarafa,Euroleague yönetimide gelecek yıln
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

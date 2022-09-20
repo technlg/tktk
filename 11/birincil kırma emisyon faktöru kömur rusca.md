@@ -1,0 +1,41 @@
+# birincil kırma emisyon faktöru kömur rusca
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Rusya Federasyonu'nda Kamu Diplomasisi: Evrim ve Kurumlar](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Rusya Federasyonu'nda Kamu Diplomasisi: Evrim ve Kurumlar
+179 Marmara Üniversitesi Siyasal Bilimler Dergisi • Marmara University Journal of Political Science • Cilt 3, Sayı 2, Eylül 2015, ISSN, ss. • DOI: 10.14782/sbd. Rusya Federasyonu'nda Kamu Diplomasisi: Evrim ve Kurumlar Erhan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TÜRKİYE'DE KÖMÜR MADENCİLİĞİ VE ENERJİDEKİ ROLÜ TKİ K .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## TÜRKİYE'DE KÖMÜR MADENCİLİĞİ VE ENERJİDEKİ ROLÜ TKİ K .
+2010 yılı sonu itibariyle Dünya Birincil Enerji Tüketimlerinin Kaynak Bazlı değerlerine bakıldığında (Grafik 4) fosil yakıtlar grubunun toplam 10.442 milyon ton petrol .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![12.Okuma Kuralı. Şimdiki Zaman Fiili. Durum Belirteci. - .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## 12.Okuma Kuralı. Şimdiki Zaman Fiili. Durum Belirteci. - .
+'Писать' fiili -e tipi fiili olduğuna rağmen 'делать' vb. fiili gibi çekilmiyor, bu fiilin -ать kısmı atılıyor ve 'с' harfi 'ш' harfine dönüşüyor. Bu şekilde davranan fiillere 1.Grup fiiller denir ve bunlar azınlık olan fiillerdir. 'Делать' gibi fiiller ise 1.Sınıfa ait ve bunun gibi Rusçada birçok fiil var. Toplam 4 sınıf ve 12 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Rusça Sayılar](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Rusça Sayılar
+Двадцать один Yirmi bir Сто Yüz Двадцать два Yirmi iki Двести İki yüz Двадцать три Yirmi üç Триста Üç yüz 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![RUS YAYILMACILIĞINA BİR ÖRNEK: 1944 KIRIM TÜRKLERİNİN .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## RUS YAYILMACILIĞINA BİR ÖRNEK: 1944 KIRIM TÜRKLERİNİN .
+Rusya için, Osmanlı Devleti'nin bir parçası olan Kırım'ı ele geçirmek kolay olmadığından, Kırım'ın Osmanlı'dan ayrılarak bağımsız olması için büyük çaba sarf etmiştir. Osmanlı-Rus Savaşı bir dönüm noktası olup, Osmanlı Devleti'nin yenilgisi ile sonuçlanan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Rusya'da Kur'an Çalışmaları](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Rusya'da Kur'an Çalışmaları
+| Rusya'da Kur'an Çalışmaları | ERUIFD 2013/2 37 ÖZ Tarihe baktığımızda Kur'an ile ilgili çalıúmalar Batı Avrupa'da pek çok sayıda yapılırken, jeopolitik konumuna rağmen, Rusya için aynı ey söylemek mümkün değil. XIX. yüzyılın baları Rusya'da bilimsel
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konsul əməliyyatları üçün dövlət rüsumları dəyişdi - .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Konsul əməliyyatları üçün dövlət rüsumları dəyişdi - .
+Prezident İlham Əliyev "Dövlət rüsumu haqqında" Azərbaycan Respublikasının Qanununda dəyişiklik edilməsi barədə Azərbaycan Respublikasının Qanununu imzalayıb. Qanununun 16-cı maddəsi yeni redaksiyada verilib. "Maddə 16.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![RUS DEVRİMİ ÜZERİNE MAKALELER - Murat Çakır](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## RUS DEVRİMİ ÜZERİNE MAKALELER - Murat Çakır
+Çeviri ve dizgi: Murat Çakır Ocak 2018 COPYLEFT - Bilgi paylaşımla çoğalır: Bu PDF-dosyası, ticari amaçla olmamak üzere, ücretsiz kullanılabilir, basılabilir ve dağı - tılabilir. Yukarıda anılan webadresinin kaynak olarak gösterilmesi rica olunur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![RUSYA FEDERASYONU - SİTSO](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## RUSYA FEDERASYONU - SİTSO
+2 TEMEL BİLGİLER Ülke Adı: Rusya Federasyonu Yüzölçümü: 17,098,242 km2 Yönetim Biçimi: Yarı Başkanlık Sistemine Sahip Federasyon Devlet Başkanı: Vladimir Putin (Mayıs î ì í'den bu yana.Öncesinde de í õ õ õ- î ì ì Başbakanlık, Başkanlık, î ì ì ô- î ì í î Başbakanlık) 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KÖMÜR İŞLETMELERİ KURUMU 2015](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## KÖMÜR İŞLETMELERİ KURUMU 2015
+Dünya birincil enerji arzı 1973 ve 2013 yılları arasındaki 40 yılda iki kattan fazla artarak 2013 yılı itibariyle 13.541 mtep (milyon ton eşdeğer petrol) düzeyine ulaşmıştır. 2013 yılındaki artış oranı bir önceki yıla göre %1,3 düzeyindedir (IEA 2014a, s.6; IEA 2015a, s 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

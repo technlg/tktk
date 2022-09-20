@@ -1,0 +1,41 @@
+# suni gubre icerisine celik curufu dönuşturulmesi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sıvı Gübre - Organik - Fiyatları - Faydaları - .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Sıvı Gübre - Organik - Fiyatları - Faydaları - .
+Sıvı gübrelerin uygulanması, diğer gübre çeşitleri ile kıyaslandığında daha kolay olmaktadır. Sıvı gübre kullanılarak yapılan gübrelemelerde, bitkiler toprağa daha kolay tutunurlar ve bitki köklerinin güçlenmesi daha kolay olur. Sıvı gübre ile, toprak daha da güçlenir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇELİKLERİN SINIFLANDIRILMASI VE STANDART GÖSTERİMİ](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## ÇELİKLERİN SINIFLANDIRILMASI VE STANDART GÖSTERİMİ
+ÇELİKLERİN SINIFLANDIRILMASI 3-Kalite Çelikleri: Kimyasal bileşimi ile beraber mekanik özellikleri esas alınan ve içinde genellikle fosfor ve kükürt miktarlarının her biri % 0,050'den az olan (otomat çelikleri hariç), sıcak şekillendirildikten sonra gerektiğinde ısıl
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TÜRK İYE'DE K İMYASAL GÜBRE ÜRET İM VE TÜKET İM DURUMU, .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## TÜRK İYE'DE K İMYASAL GÜBRE ÜRET İM VE TÜKET İM DURUMU, .
+1 TÜRK İYE'DE K İMYASAL GÜBRE ÜRET İM VE TÜKET İM DURUMU, SORUNLAR, ÇÖZÜM ÖNER İLER İ VE YEN İLİKLER Figen ERASLAN 1, Ali İNAL 2, Aydın GÜNE Ş2, İbrahim ERDAL 1, Ali CO ŞKAN 1 1 Süleyman Demirel Üniversitesi, Ziraat Fakültesi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Suni Gübre çeşitleri](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Suni Gübre çeşitleri
+Tag Archives: suni gübre çeşitleri Gübre Çeşitleri :Gübre Çeşitleri oldukça fazla olup amacına göre ve ekilecek ve dikilecek ürünlere göre değişir. Ancak toprak
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![suni gübre [Türkçe] | SpreadTheSign](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## suni gübre [Türkçe] | SpreadTheSign
+İşaret dilinde 'suni gübre' nasıl yapıldığını öğrenin. 30 dilde karşılığını bulun. Video işaretleme Uluslararası İşaretler Şimdi 'suni gübre' işaretinin nasıl yapıldığını gör ©2018 European Sign Language Center Web: E-mail: info@signlanguage 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TUCSA - ÇELİK YAPILARIN](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## TUCSA - ÇELİK YAPILARIN
+6 9.5.4 Çekme Başlığı Akma Sınır Durumu 9.6 Zayıf Eksenleri Etrafında Eğilme Etkisindeki I- Enkesitli ve U-Enkesitli Elemanlar 9.6.1 Akma Sınır Durumu 9.6.2 Yerel Burkulma Sınır Durumu 9.7 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Suni Gübre Nedir? Faydaları ve Zararları Nelerdir? | .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Suni Gübre Nedir? Faydaları ve Zararları Nelerdir? | .
+Suni Gübre Fazla Kullanılırsa Doğaya Zarar Verir Bu zarar, azot ve fosforun akarsulara ve nehirlere karışması ve algler de artışa neden olması durumunu ortaya çıkarır. Büyüme, sudaki mevcut oksijeni tüketir, balıkları öldürür ve ekosistemi ötrofikasyon adı verilen
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Solucan Gübresi İçeriği Nelerdir?.tr](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Solucan Gübresi İçeriği Nelerdir?.tr
+Solucan gübresi içeriği, tarımsal faaliyetler için kullanılan gübrelerden bir tanesidir. İçerisinde bulunan bileşenler sebebiyle oldukça faydalıdır. Solucan gübresi yaklaşık olarak 50 yıldır üretimi bulunan zirai gübreler bir içerisinde bulunur. Özellikle içer
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sıvı Solucan Gübresi Nasıl Kullanılır | Rivasol](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Sıvı Solucan Gübresi Nasıl Kullanılır | Rivasol
+Sıvı Solucan Gübresi bitki çeşitlerine göre nasıl Kullanılır ve Uygulanır. Detaylar için Tıklayınız. Mehmet bey iyi günler, 5 lite sıvı solucan gübremizi 250 300 litre suya karıştırıp uygulayabilirsiniz. cevizde sıvı solucan gübresi yapraktan veya damlamadan uygulanabilir 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çelik Yapılar 2019 Sunum-2 - DPU](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Çelik Yapılar 2019 Sunum-2 - DPU
+2.1 Çeliğin Gerilme-Şekil Değiştirme Diyagramı Yapılarda kullanılan çelik malzemenin kristal bir bünyesi vardır. İzotrop ve homojendir. Çelik bir numuneye çekme deneyi uygulanırsa Şekil 2.1 de görülen gerilme-şekil değiştirme diyagramı elde edilir. Şekil 2.1: Çeliğin 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,121 @@
+# adres kırıcılar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Klasik Darbeli Kırıcılar – Kubikser | Mobil Kapalı devre .](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Klasik Darbeli Kırıcılar – Kubikser | Mobil Kapalı devre .
+Klasik Darbeli Kırıcılar – Kubikser çeneli kırıcılar -> çeneli kırıcılar –3x – 5y 15 -> –3x – 5y 15 kırıcılar dış ticaret -> kırıcılar dış ticaret klasik müzik dinle -> klasik müzik dinle
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür Kırıcılar » MTM KIRMA ELEME | Taş Kırma Makinaları](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Kömür Kırıcılar » MTM KIRMA ELEME | Taş Kırma Makinaları
+MTM Kırma Eleme tarafından üretilen ve piyasaya sunulan kömür kırıcıları özellikle nemli kömürü yüksek oranda ince malzeme üretmeden kırmak için güvenle kullanabilirsiniz. Bu kırıcılar çalışma prensibi olarak silindir kırıcılara benzer ancak rotor ve gövde tasarımlarıyla tamamen farklı kırıcılardır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İletisim | Sarıçelik | Sarıçelik Makina](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## İletisim | Sarıçelik | Sarıçelik Makina
+384 14 61 Adres: Barakfakih Sanayi Bölgesi 3. Cadde No : 3 16450 Kestel - Bursa 0090 (224) 384 14 61 info@saricelik Kurumsal Şirket Profili CEO'dan Mesaj Kalite ve Sürdürülebilirlik Satış ve Pazarlama Medya İlişkileri Ürünlerimiz Kırıcılar 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jaw Crushers | Heavy Duty | Terex Finlay](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Jaw Crushers | Heavy Duty | Terex Finlay
+Fabrika adres tarifi Exhibitions İletişim Ana Sayfa Ürünler Çeneli Kırıcılar Çeneli Kırıcılar Terex® Finlay paletli mobil çeneli kırıcılar, inşaat malzemesi agregalarının ufaltılması ve ebatlandırılması ile hafriyat atıklarının geri dönüştürülmesi konusundaki Finlay çeneli 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ermak-San](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Ermak-San
+Sıfır Kırıcılar Ermak Makina İnşaat Sanayi Yedek Parçalar Ermak-San İnşaat ve Sanayi İkinci El Kırıcılar  Adres İkitelli Organize SanayiEsenler San.Sit. 25 Blok No:, 34490 Başakşehir/İstanbul Email info@ermak-san Bizi Arayın +90 212 671 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırıcılar](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Kırıcılar
+Kırıcılar Kıskaçlar Kovalar Parçalayıcılar Yıkım Robotları Hakkımızda Haberler Referanslar Bayi Servis & Destek İletişim HOŞ GELDİNİZ  Adres & İletişim Suadiye Mh. Bağdat Cd. No:455/4 Kadıköy – 34740 İstanbul 0 216 519 88 82 / Dahili: 212 IdeaSoft ® | 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çeneli Kırıcılar | KIRMA ELEME](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Çeneli Kırıcılar | KIRMA ELEME
+Çeneli kırıcılar, bazalt, granit vb. sert karakterli veya kalker tipi daha yumuşak karakterli ocak malzemesi ile dere malzemesi, muhtelif cins ve karakterlerdeki cevherin kırılması için kullanılabilmektedir. Primer çeneli konkasörler, bilhassa ocak malzemesinden mıcır elde etmek ve muhtelif cevher kırma işlerinde ilk kırma işleri için kullanılır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İletişim - Yedek Parçam](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## İletişim - Yedek Parçam
+Kırıcılar Taşlama Makineleri Sac Kesme Makineleri Zımpara Makineleri Tırpan ve Çim Biçme Makineleri Dal Kesme Makineleri  Adres Bilgisi Hürriyet Mah.Menderes Cad.No:77/A Güneşli Bağcılar / İstanbul Bize Ulaşın +90 (850) 305 0665 İletişim Formu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İLETİŞİM – Mirpak](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## İLETİŞİM – Mirpak
+Merkez Adres : Evliya Çelebi Mh.Gümüş Pala Sk. No:3/A Tuzla / İSTANBUL TEL : 0216 494 62 60 E-MAIL : info[@]mirpak.tr  Dik Milli Kırıcılar Tersiyer Kırıcılar Galerimiz Yedek Parça İLETİŞİM 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yedek Parçam](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Yedek Parçam
+Kırıcılar Taşlama Makineleri Sac Kesme Makineleri Zımpara Makineleri Tırpan ve Çim Biçme Makineleri Dal Kesme Makineleri  Adres & Telefon Hürriyet Mah.Menderes Cad.No:77/A Güneşli Bağcılar / İstanbul 0 850 305 0665 [email protected] Facebook Twitter 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KIRICILAR - MTM MAKİNA](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## KIRICILAR - MTM MAKİNA
+Dik Milli Kırıcılar Silindir Kırıc ı Primer Darbeli Kırıcılar Sekonder Darbeli Kırıcılar Çeneli Kırıcılar Çekiçli Kırıcılar  Adres Ahi Evran OSB Mah.Özbek Hanlığı Sokak No: 25 Sincan Telefon +90 312 394 26 62 Faks +90 312 394 34 43 E-Posta mtm@mtmmakina 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İletişim | Piksel A.Ş.](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## İletişim | Piksel A.Ş.
+Güneş Kırıcılar Giydirme Cephe Hizmetlerimiz Kapaklı giydirme cephe sistemi Kenetli çatı kaplaması Kış bahçesi Otomatik döner ve fotosel kapılar İletişim Ara: Ara 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İletişim](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## İletişim
+MTB Büyük ve Orta Boy Hidrolik Kırıcılar Bitler Hidrolik Deliciler Hidrolik Burgular Hidrolik Sıkıştırıcılar Hidrolik Kavrayıcılar Hidrolik Kesici ve Eziciler GA Gazlı Tip Kırıcılar MTB C-Tipi Kırıcılar MTB Küçük Boy Kırıcılar Yeni Tip Kırıcı İletişim
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İletişim | GENERAL MAKİNA](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## İletişim | GENERAL MAKİNA
+Adres Yazıbaşı Sanayi Bölgesi, Balkan Cad. 322 Sk. 29 Ekim Torbalı/İzmir/Türkiye Telefon (+90) 232 853 72 10 Fax (+90) 232 853 72 44 Whatsapp (+90) 543 382 35 35 E-Mail info@general-makina.tr
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hidrolik Kırıcılar | Razor Spare](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Hidrolik Kırıcılar | Razor Spare
+Hidrolik Kırıcılar Hidrolik Deliciler Delici Tabancalar Hidrolik Kırıcılar Kaya Delici Ekipmanlar Kaplinler Hidrolik Kırıcılar Atlas Copco  Adres Ofis: İvedik OSB. 1122. Cadde, No: 20/16 Yenimahalle-Ankara/TÜRKİYE İRTİBAT BİLGİLERİ +90 (312) 395 03 54 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İletişim](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## İletişim
+Mobil Çeneli Kırıcılar MMJ90 MMJ110 MMJ125 Mobil Darbeli Kırıcılar MPC1313 MPC1415 Mobil Sek. Dar. Kırıcılar USC1210 USC1313 USC1315 USC1420 Mobil Tersiyer Üniteler UTC1210 UTC1313 UTC1315 Ön Elekli Mobil Sekonder Darbeli Kırıcılar USC1313E
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çekiçli Kırıcılar » MTM KIRMA ELEME | Nace Makine](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Çekiçli Kırıcılar » MTM KIRMA ELEME | Nace Makine
+Nace tarafından imal edilerek Türkiye' de kullanılmaya başlanan bu kırıcılar CK1, CK2, CK3, K13, K14, K15, CK15,  Adres Ahi Evran OSB Mah.Özbek Hanlığı Sokak No: 25 Sincan Telefon +90 312 394 26 62 Faks +90 312 394 34 43 E-Posta mtm@ Tüm 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırıcılar İnşaat](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Kırıcılar İnşaat
+Kırıcılar İnşaat, 1995 yılında öncelikli olarak hafriyat işleriyle faaliyete başlamıştır. Şirket Profili 1995 yılında kırıcılar inşaat olarak yola çıkan kırıcılar grup şirketleri, öncelikli olarak hafriyat işleriyle faaliyete başlamış olup sonrasında alt yapı, üst yapı, peyzaj, tadilat 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GEOLITECHEM | GEOLITECHEM WATER MANAGEMENT](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## GEOLITECHEM | GEOLITECHEM WATER MANAGEMENT
+Emülsiyon Kırıcılar Jeotermal Su Şartlandırma Teknik Bülten Soğutma Sistemleri ve Soğutma Kuleleri Buhar Kazanlar  Adres: Halkapınar Mah. 1348 Sk. No:2AK Konak/İZMİR Tel: +90 232 502 0278 Mobil: +90 541 646 4779 Mail: info@geolitechem 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MTM KIRMA ELEME | Taş Kırma Makinaları](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## MTM KIRMA ELEME | Taş Kırma Makinaları
+MTM Kırma Eleme Mad. Mak. Bet. Sant. İml. Müh. San. ve Tic. Ltd. Şti. Taş Kırma ve Eleme sektörünün lideri NACE Makine ve Sanayi A.Ş. nin faaliyetlerine ara vermesinden sonra 2019 yılının Mart ayında kurulmuştur. Kurucuları arasında NACE Genel Müdürü 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Razor Spare](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Razor Spare
+Razorspare | Hidrolik Deliciler, Delici Tabancalar, Hidrolik Kırıcılar, Kaya Delici Ekipmanlar, Kaplinler - OZSOFT® A.Ş. Telefon: +90 (530) 169 48 00 E-posta: [email protected]
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Agrega Makina - İletişim](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Agrega Makina - İletişim
+Adres OSB Mahallesi 1271. Cad. No: 27 Ostim - ANKARA T : +90 312 815 26 05 F : +90 312 395 28 84 info@agregamakina.tr Ürünlerimiz Çeneli Kırıcılar Yatay Milli Darbeli Kırıcılar Dik Milli Darbeli Kırıcılar Titreşimli Elekler 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nalbantoğlu Hırdavat](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Nalbantoğlu Hırdavat
+Kırıcılar-Deliciler Kesme-Dekupajlar Toz Emme Makinaları Testereler-Zımparalar Akülüler Matkap Uçları Aksesuarlar  Online Satış İletişim İletişim NALBANTOĞLU HIRDAVAT SAN. VE TİC. LTD. ŞTİ. Adres: Hırdavatçılar Sitesi 1145/7 Sokak D Blok No: 7-Z 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çekiçli Kırıcılar » MTM KIRMA ELEME | Nace Makine](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Çekiçli Kırıcılar » MTM KIRMA ELEME | Nace Makine
+Düşük ve orta sertlikte aşındırıcı olmayan malzemelerin yüksek oranda inceltilmesi amacıyla kullanılan çekiçli kırıcılar, alt gövdede bulunan ızgaralar sayesinde eleme bile yapmadan son ürünü elde edebilecek yaygın kullanımı olan kırıcılardır. MTM kırma eleme teknik ekibi geçmiş yıllar içerisinde değişik tip ve kapasitelerde yüzlerce çekiçli kırıcı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ürünler | Sun-Set Güneş Kırıcı Sistemler](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Ürünler | Sun-Set Güneş Kırıcı Sistemler
+Adres: İncek Bulvarı (1821 Cd) No: 98 06805 İncek ANKARA / TÜRKİYE Tel: +90 312 442 1 444 Tüm hakları saklıdır.SUN-SET Sun Shading Systems® ©2014 Dış Cephe Jaluziler Cephe Markizleri Cephe Storları Kış Bahçesi Tenteleri Teras Tenteleri Çok Fonksiyonlu Panjur (Visio) İç Cephe Jaluziler Stor Perdeler Panel Perdeler Dikey Perdeler Plise Perdeler Cama Monte Perdeler Tavan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırıcılar Grup - İnşaat,](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Kırıcılar Grup - İnşaat,
+Kırıcılar Grup, 21 yıllık tecrübesiyle hizmet verdiği tüm alanlarda öncü bir kuruluş olmayı hedeflemiştir. 1995 yılında kırıcılar inşaat olarak yola çıkan kırıcılar grup şirketleri, öncelikli olarak hafriyat işleriyle faaliyete başlamış olup sonrasında alt yapı, üst yapı, peyzaj 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KIRICILAR - MTM MAKİNA](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## KIRICILAR - MTM MAKİNA
+Cam Kırıcılar MTM KIRMA ELEME MAKİNALARI MTM Kırma Eleme Şirketi 2019 yılının Mart ayında kırma eleme sektörünün lideri NACE'nin faaliyetlerine ara vermesinden sonra kurulmuştur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hidrolik Kırıcılar | Razor Spare](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Hidrolik Kırıcılar | Razor Spare
+Razorspare | Hidrolik Deliciler, Delici Tabancalar, Hidrolik Kırıcılar, Kaya Delici Ekipmanlar, Kaplinler - OZSOFT® A.Ş. Telefon: +90 (530) 169 48 00 E-posta: [email protected]
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırıcılar İnşaat](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Kırıcılar İnşaat
+Adres Merkez Mahallesi Çavuşbaşı Caddesi Kırıcılar İş Merkezi No:7 Kat:5 Çekmeköy / İstanbul Telefon +90 216 642 52 05 Fax +90 216 642 52 06 E-Mail kiricilar@hotmail
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Primer Darbeli Kırıcılar | KIRMA ELEME](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Primer Darbeli Kırıcılar | KIRMA ELEME
+Primer Darbeli Kırıcılar Primer Darbeli Kırıcılar, yüksek kapasiteli kırıcılardır.Orta ve düşük sertlikteki malzemelerde; özellikle kalker türü taşlar için gerek yatırım maliyeti, gerek işletme maliyeti ve gerekse kapasite yüksekliği açısından, primer kırıcı olarak PDK tipi kırıcı kullanmak daha uygundur. . Rotorlu tip kırıcılardan olup, küçültme ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,117 @@
+# bölge kırıcı inşaat grubu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BÖLGE GRUP SIRALAMASI ACİL TIP](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## BÖLGE GRUP SIRALAMASI ACİL TIP
+A Grubu B Grubu C Grubu D Grubu VAN SİİRT AĞRI TUNCELİ BİNGÖL ŞIRNAK BAYBURT HAKKARİ ADIYAMAN IĞDIR BİTLİS GÜMÜŞHANE MUŞ ARDAHAN BATMAN KARS MARDİN 5. BÖLGE İLLER 6. BÖLGE İLLER
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![2M İnşaat Malzemeleri](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## 2M İnşaat Malzemeleri
+2M İnşaat Malzemeleri olarak sektörde uzun yıllar edindiği tecrübeler ışığında, 2016 yılında kurularak şimdiki ünvanına bürünmüştür, 2M genç ve dinamik bir firma olma özelliği taşımaktadır.Öncelikli ilkemiz müşteri memnuniyeti, zamanında termindir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Uğur Grubu - Un Fabrikası, Anahtar Teslimi Un Fabrikası](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Uğur Grubu - Un Fabrikası, Anahtar Teslimi Un Fabrikası
+Uğur Makine Un - İrmik - Mısır - Yem Degirmen Endustirisi Bakliyat Tasnif Paketleme Tesisleri - ÇORUM MERKEZ OFİS / ÇORUM Tel :+90 (364) 235 00 26 Fax :+90 (364) 235 00 30 Organize Sanayi Bölgesi 7. Cad. No:27-31/1 Çorum / Türkiye info@ugurgrubu İSTANBUL OFİS Tel :+90 (212) 465 68 82 Fax :+90 (212) 465 68 83 Levent Mahallesi Yeni Sülün Caddesi Şener Sokak No:5 Posta Kodu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ORUÇ ŞİRKETLER GRUBU | ORUC GRUP A.Ş. - Anasayfa](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## ORUÇ ŞİRKETLER GRUBU | ORUC GRUP A.Ş. - Anasayfa
+Oruç Şirketler Grubu Oruç Grup A.Ş. Oruc Group 3.000m2 alana sahip mağazamız Türkiye'nin en büyük sünger fabrikası İşbir Sünger A.Ş.'nin İç Anadolu bölge bayiliğini
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![AUTODESK UNIVERSITY | 2017](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## AUTODESK UNIVERSITY | 2017
+İnşaat Mühendisi, DSİ 14. Bölge Müdürlüğü Neil Brooker Üst Düzey Teknik Satış Müdürü, Autodesk EMEA Nilüfer Eryiğit Urfalı Bilgi Teknolojileri Şube Müdürü, DSİ 14. Bölge Müdürlüğü Niyazi Kemer Uygulama Mühendisi, Autodesk Olcayto Güleç
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ENKA İnşaat ve Sanayi A.Ş.](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## ENKA İnşaat ve Sanayi A.Ş.
+ENKA, Türkiye'nin en büyük inşaat şirketi olmakla beraber, 1981 yılından bu yana ENR En İyi Uluslararası Müteahhitler arasında yer almaktadır. İcra Kurulu Başkanı ve Genel Müdür olarak görev yapan Sn. Mehmet Tara, şirket yönetimini üstlenen Tara Ailesi'nin
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SOSYAL MEDYADA BİZ - DOĞUŞ GRUBU](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## SOSYAL MEDYADA BİZ - DOĞUŞ GRUBU
+Doğuş Grubu, Türkiye'nin önde gelen grupları arasında yer almakta ve küresel bir oyuncu olma yolunda emin adımlarla ilerlemektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![LASFALT](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## LASFALT
+KGM 13.BÖLGE MAK-YOL İNŞAAT YÜKLENİMİNDE 30 KM ANTALYA-KONYALTI-KEMER-TEKİROVA YOLU  Asfalt Grubu: TAŞ MASTİK AŞINMA TABAKASI Bitüm Miktarı: % 22 Asfalt Grubu: 2,5-3 CM AŞINMA TABAKASI Bitüm Miktarı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yapı Grubu - Sika](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Yapı Grubu - Sika
+İnşaat Çözümleri Ana Menüye Geri Dön İnşaat Çözümleri Yapım Geri Dön İnşaat Çözümleri Yapım  Yapı Grubu Satış Noktalarımız Distribütörlerimiz Size en yakın noktada bulunan Distribütörlerimize ulaşmak için lütfen tıklayın Bayilerimiz
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ana Sayfa | Demtes İnşaat](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Ana Sayfa | Demtes İnşaat
+DEMTES İnşaat; Mekanik Endüstri, Doğalgaz, İnşaat Malzemeleri ve Tesisat Malzemeleri alanlarında geniş ürün yelpazesi ile toptan ve perakende çözümler sunmaktadır. Bölge Bayiliklerimiz DEMTES İnşaat 40 dan fazla markanın bölge bayiliği ile sizlere çözümler sunuyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BÖLGE GRUP SIRALAMASI ACİL TIP](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## BÖLGE GRUP SIRALAMASI ACİL TIP
+A Grubu B Grubu C Grubu D Grubu GÜMÜŞHANE TUNCELİ IĞDIR BİTLİS MUŞ BATMAN BİNGÖL HAKKARİ MARDİN BAYBURT ADIYAMAN VAN SİİRT ARDAHAN ŞIRNAK AĞRI KARS 5. BÖLGE İLLER 6. BÖLGE İLLER BÖLGE GRUP SIRALAMASI
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ora](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Ora
+ORA İNŞAAT A.Ş. Uluslararası İnşaat alanında 1993 yılından beri faaliyet gösteren ORA İnşaat ve Ortakları, müşterilerinin kalite beklentilerini karşılamaya ve arttırmaya devam etmektedir. ORA Grubu, her projesinde müşteri memnuniyetini ön planda tutan yaratıcı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ASYOL YAPI SAN VE TİC](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## ASYOL YAPI SAN VE TİC
+İş Sahibi: Karayolları 14.Bölge Müdürlüğü İşin Adı: Bandırma Susurluk Yolundaki Karadere Grubu Köprülerinden; DDY. Üstgeçit 1, Karadere ve DDY. Üstgeçit 2 .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Öztürk Şirketler Grubu – Mimarlık-İnşaat-Yatırım](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Öztürk Şirketler Grubu – Mimarlık-İnşaat-Yatırım
+Öztürk Şirketler Grubu cesur adımlarla geçmişten geleceğe faaliyet göstermiş olup kurucusu ve Genel Müdürü Arda İlker Öztürk olmak üzere 8 yıldır hizmet sektöründe faaliyet göstermektedir. Maden ocağı işletmeciliği,müteahhit,restaurant işletmeciği,otomotiv ve bir çok sektörde faaliyet göstermiş olup kalite ve müşteri memnuniyetine önem vermiştir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hidrolik Kaya Kırıcı > Dizel Jeneratör > Arnes](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Hidrolik Kaya Kırıcı > Dizel Jeneratör > Arnes
+Sure Filtre Grubu Şirket Profili Firmamız 1994 yılında iş makinaları yedek parçaları satışı konusunda faaliyet göstermek üzere İzmir de kurulmuş olup ilerleyen yıllarda Türkiye'nin önde gelen yedek parça imalatçılarının Ege Bölge bayiliklerini alarak Ege bölgesinde çalışmalarını hızlandırmıştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Global İnşaat A.Ş.](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Global İnşaat A.Ş.
+Profil Grubu İnşaat Grubu Bölge Bayilikleri Enerji Grubu Görseller E-Bülten E-Bülten 'e kayıt olarak Global İnşaat A.Ş.'den haberdar olun. Bizden Haberler Global Fiyat Listesi 2019 İnsan Kaynaklar 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Anasayfa | Orkun Tesis Yönetim](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Anasayfa | Orkun Tesis Yönetim
+Ege Bölge Sorumlumuz - Telefon 0530 100 19 30 Ankara Bölge Sorumlumuz - Telefon 0530 144 68 53 ©2018 Orkun Şirketler Grubu Tüm hakları Saklıdır. | Web Tasarım Elitnet 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Projeler - YILMAZLAR İNŞAAT SAN TİC A.Ş](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Projeler - YILMAZLAR İNŞAAT SAN TİC A.Ş
+GENEL MÜDÜRLÜĞÜ VII. BÖLGE / Görseller Granit Maden Ocağı [GÜÇTAŞ MADENCİLİK SAN LMD ŞTİ SAMSUN] Yılmaz A.Ş. Şirketler Grubu bünyesinde faaliyet gösteren Güçtaş Görseller Duruçay Baraj VE Sulaması İnşaatı [[D.S.İ GENEL 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Öztek Şirketler Grubu](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Öztek Şirketler Grubu
+1982 yılında kurulan Öztek Şirketler Grubu, öncüsü olduğu sektörlerde her aşamada "KALİTEDEN ÖDÜN VERMEDEN BAŞARI" vizyonu ile hareket etmektedir. Tekstil, turizm, konfeksiyon, inşaat, serbest bölge yatırım ve işletmeciliği sektörlerinde uzun yıllar faaliyet gösteren Öztek Şirketler Grubu, AR-GE çalışmaları ve inovasyon ile zamanı yakalamaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Anasayfa | Siyam Group](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Anasayfa | Siyam Group
+SİYAM GROUP İNŞAAT SAN. VE TİC. A.Ş. YAMANTAŞ İNŞAAT TAAH. MÜHEN. MİMAR. SAN. VE TİC. LTD. ŞTİ. ASMERA ASFALT YOL YAPIM İNŞAAT SANAYİ VE TİCARET ANONİM ŞİRKETİ İşin Adı: Karayolları 5.Bölge Müdürlüğü otoyol ve bağlantı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yapı sınıf grupları! - Emlakkulisi](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Yapı sınıf grupları! - Emlakkulisi
+D GRUBU YAPILAR = 1.750,00 TL. Opera, tiyatro, bale yapıları, konser salonları ve kompleksleri. Restore edilecek yapılar ve tarihi ve eski eser niteliğinde olup, yıkılarak orijinaline uygun olarak yapılan yapılar. Ve bu gruptakilere benzer yapılar. İnşaat maliyetleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![STFA Grubu'nda Üst Düzey Değişiklik | Fortune Turkey](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## STFA Grubu'nda Üst Düzey Değişiklik | Fortune Turkey
+STFA Grubu'nda yönetim kademesinde görev değişimi yaşandı. Bu değişiklikle beraber STFA İnşaat Grubu Genel Müdürlüğü görevine Sayın Recep Çimen atandı 11 Temmuz 2019 tarihi itibariyle, STFA İnşaat Grubu Genel Müdürlüğü görevine atanan Sayın Recep
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ENKA İnşaat ve Sanayi A.Ş.](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## ENKA İnşaat ve Sanayi A.Ş.
+ENKA İnşaat ve Sanayi A.Ş. (ENKA) Veri Sorumlusu olarak; siz Çalışan Adaylarının iş başvuru sürecinde Şirketimiz ile paylaştığı ve/veya İnsan Kaynakları Platformlarında mevcut özgeçmiş ve bilgilerinize ilişkin kişisel verilerinizi korumada en yüksek seviyede 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Arstek İnşaat](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Arstek İnşaat
+Temelleri 2003 yılında atılan Arstek Şirketler Grubu; planlı ve istikrarlı büyüme politikasıyla (ana faaliyet alanı olan) inşaat sektöründe; anahtar teslim projeler, yüksek teknolojik binalar, endüstriyel tesisler, toplu konut projeleri, lüks konutlar ve altyapı projeleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İletişim | Bilpa Şirketler Grubu](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## İletişim | Bilpa Şirketler Grubu
+BİLPA ŞİRKETLER GRUBU Ana Sayfa Hakkımızda Sektörler FMCG Lojistik Gross Marketler Üretim Madencilik e-ticaret Basında Bilpa  E-mail: info@bilpa BÖLGE OFİS ve DEPOLARIMIZ BÖLGE ADRES TELEFON ADANA Özgür mah. 2401 sok No:3 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Özmak Makina - Hızla Büyüyoruz](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Özmak Makina - Hızla Büyüyoruz
+1985 senesinde kurucusu Adem ÖZÇELİK'in liderliğinde İstanbul'da temelleri atılan ÖZMAK şirketler grubu; Türkiye'nin dört bir yanında hafriyat-inşaat alanında ve Tekirdağ'da ki kömür ocağı ile madencilik alanında hizmetler vererek sağlam ve emin adımlarla iş dünyasında ki yükselişine başlamıştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Detaş Şirketler Grubu | 2000den bu yana lider](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Detaş Şirketler Grubu | 2000den bu yana lider
+Bölge Şube Md. Yerleşkesi Gölbaşı Turizm Meslek Lisesi ve Uygulama Oteli İletişim Ana Sayfa Kurumsal Hakkımızda Kalite Belgelerimiz Sektörlerimiz Demir Çelik Hasır Çelik İnşaat Bilişim Ürünlerimiz Demir Grubu Nervürlü İnşaat Demiri Filmaşin Kangal Grubu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Özmak Makina - Hızla Büyüyoruz](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Özmak Makina - Hızla Büyüyoruz
+1991 yılı itibari ile inşaat makinaları sektörüne dâhil olan ÖZMAK Makina 2000 yılına kadar olan süreçte farklı markaların Marmara bölge bayiliğini, 2000 ile 2017 yılları arasında ise Çin'in en büyük iş makine üreticisi olan Xcmg'nin Türkiye distribütörlüğünü
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Can Holding | Anasayfa](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Can Holding | Anasayfa
+Enerji & Petrol Grubu Grubun ilk ve lokomotif yatırımıdır. 1972 yılında Energy markası ile pazarda yer edinmiştir. Markalarımız 81 ilde 475-istasyon ile tüketicilere petrol türevleri, oto gaz ve madeni yağlar alt kollarında hizmet vermektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

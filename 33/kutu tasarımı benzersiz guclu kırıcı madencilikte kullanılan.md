@@ -1,0 +1,97 @@
+# kutu tasarımı benzersiz guclu kırıcı madencilikte kullanılan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Daron Acemoğlu - Ulusların Düşüşü by Cihan Eyri - Issuu](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Daron Acemoğlu - Ulusların Düşüşü by Cihan Eyri - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kutu Tasarımı Saat](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Kutu Tasarımı Saat
+Kutu tasarımı ürünün kimi zaman önüne geçen, ürünün kalitesini artıran, kısacası onu var eden kıyafeti gibidir. Bir kutu tasarımı ne kadar başarılı tasarlanı Çakmak desen tasarımı çakmağın kimi zaman önüne geçen, çakmağın kalitesini artıran, kısacası onu var 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![termoklima_temmuz2011 by Hakan Akbulut - Issuu](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## termoklima_temmuz2011 by Hakan Akbulut - Issuu
+İç mekanlarda kullanılan yapıştırıcı, boya ve kaplama malzemelerinin içeriğinde VOC (zararlı uçucular maddeler) değeri yüksek maddeler içermeyen ürünler kullanılmış.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Rapor - Çevre ve Şehircilik Bakanlığı](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Rapor - Çevre ve Şehircilik Bakanlığı
+No category Rapor - Çevre ve Şehircilik Bakanlığı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Özel Tasarım Kutular – Gürer Kutu](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Özel Tasarım Kutular – Gürer Kutu
+Gönder. Menü. Özel Tasarım Kutular – Gürer Kutu. <style> .wpb_animate_when_almost_visible { opacity: 1; }</style>. +90 549 591 35 45. info@gurerkutu. <img width="1500" height="480" src="https://gurerkutu/wp-content/uploads/2021/01/gurer-logo1-1.png" class="attachment-full size-full" alt="" loading="lazy" srcset="https://gurerkutu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![madencilikte bantlı konveyör](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## madencilikte bantlı konveyör
+Madencilikte yükleri veya gereçleri taşımaya yarayan aktarma mekanizması olan konveyör bant burada. Aydınoğlu Makina, Dragon Makina, Entema, General Makina gibi firmaların konveyör bantına sayfamızdan ulaşabilmeniz mümkün.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kutu Tasarım](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Kutu Tasarım
+Kutu Tasarım, Kutu Tasarımları Fiyat Teklifi Alın İletişim Freegrafiker 2009 yılından günümüze kadar Türkiye'ye ve dünyanın farklı ülkelerine freelance, uzaktan ve remote çalışma 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) FEN BİLİMLERİ BİLDİRİLER KİTABI CİLT I -Fen .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## (PDF) FEN BİLİMLERİ BİLDİRİLER KİTABI CİLT I -Fen .
+FEN BİLİMLERİ BİLDİRİLER KİTABI CİLT I -Fen Bilimleri- (Tam Metin ve Özet) Düzenleyen Kuruluşlar Destekleyen Kuruluşlar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gözlük Kutusu Üretimi, Model ve Tasarımları | Kişiye Özel .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Gözlük Kutusu Üretimi, Model ve Tasarımları | Kişiye Özel .
+Karton Kutu (26) Kişiye Özel Kutular (0) Kozmetik Kutuları (29) Kraft Çanta Poşet (0) Kravat Kutuları (8) Krem Kutuları (8) Mukavva Kutu (94) Parfüm Kutuları (12) Saat Kutuları (19) Saç Bakım Kutuları (4) Silindir Kutular (3) Takı Kutuları (21) Ürün Kutuları (46)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BİR ÖZYAŞAM ÖYKÜSÜ – GANDHİ – VEDAT GÜNYOL – .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## BİR ÖZYAŞAM ÖYKÜSÜ – GANDHİ – VEDAT GÜNYOL – .
+Bir Siyasi Ajan, babamın şefi Rajkot Thakore Saheb hakkında onur kırıcı sözler söylemiş, babam da hakarete karşılık vermiş, bunun üzerine bir kaç saat tutuklanmış. Nihayet Ajan, Kaba Gandhi'nin eğilmez bir adam olduğunu anlayınca, serbest bırakmalarını emretmiş.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) ANADOLUNUN DOGALTASLARI 92560 .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## (PDF) ANADOLUNUN DOGALTASLARI 92560 .
+Dünyanın en eski yerleşimlerinden biri olan Anadolu'da tarih boyunca çok çeşitli medeniyetler, sayıları yüzlerce olan doğaltaşları yarattıkları eserlerde ve binalarda kullanmışlardır. Bu doğal taşlardan en yaygın kullanılanları jeolojik, teknik
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hediyelik Kutular | Boş Hediye Kutusu | Bikutumutluluk .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Hediyelik Kutular | Boş Hediye Kutusu | Bikutumutluluk .
+Hediyelerinizi özel hediye paketlerinde göndermek istemez misiniz? Öyleyse, Bikutumutluluk tasarımı özel hediyelik kutuları sepetinize ekleyin.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![proje sahibinin adı mintek madencilik san. ve tic. a.ş. .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## proje sahibinin adı mintek madencilik san. ve tic. a.ş. .
+PROJE SAHİBİNİN ADI MİNTEK MADENCİLİK SAN. VE TİC. A.Ş. PROJENİN ADI 83482 RUHSAT NO'LU KROM OCAĞI VE ZENGİNLEŞTİRME TESİSİ PROJE İÇİN SEÇİLEN YERİN ADI, MEVKİİ ERZURUM İLİ, ÇAT İLÇESİ, ÇİRİŞLİ KÖYÜ RAPORU HAZIRLAYAN 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Retro Şekerleme Kutusu Tasarımları - Genç Grafiker](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Retro Şekerleme Kutusu Tasarımları - Genç Grafiker
+Örneğin bu konuda inceleyeceğiniz retro tasarımlı yuvarlak kutular bir çikolata kutusu için fazlaca şirin, üzerindeki minimal tasarımı ve eğlenceli renkleriyle adeta "beni yeme çekmecende sakla" diyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Takı Kutusu Üretimi, Model ve Tasarımları | Kişiye Özel Kutu](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Takı Kutusu Üretimi, Model ve Tasarımları | Kişiye Özel Kutu
+21 sonuçtan 1-9 arası gösteriliyor. En çok incelenene göre sırala En çok oy alana göre sırala En yeniye göre sırala Fiyata göre sırala: Düşükten yükseğe Fiyata göre sırala: Yüksekten düşüğe. Devamını oku. Neşe Design Marka Takı Kutusu. Takı Kutuları.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Formen Dergisi Sayı: 02 (Temmuz - 2016) by A4Medya .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Formen Dergisi Sayı: 02 (Temmuz - 2016) by A4Medya .
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Temel Madencilik Bilgileri .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## (PDF) Temel Madencilik Bilgileri .
+Basic Mining Handbook by Dr. E. Kömürlü, Dr.O.Aksoy and H.E. Yaman (Editors) May 2017, e-book of Madencilik Türkiye Dergisi, Ankara
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![#Kurutma Ve • Raw Ranked Sites](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## #Kurutma Ve • Raw Ranked Sites
+ve tekstil ürünlerini kurutmak için kullanılan kurutma makineleri ile buhar,  Bahçe Oyuncakları, Banyo Oyuncakları, Aktivite Setleri, Çocuk Kutu Oyunu, Sesli ve Hareketli Oyuncaklar, Kitap, Film ve Müzik, Kitap, Çocuk Kitapları, Anne Eğitim Kitapları 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ödüllü Kutu Tasarımları, Ücretsiz Kutu Şablonları, Yaratıcı .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Ödüllü Kutu Tasarımları, Ücretsiz Kutu Şablonları, Yaratıcı .
+1- Yaratıcı Kutu Tasarımları. Ürün kutu tasarımları tasarımcıların yeteneklerini sergiledikleri en güzel alan. En orjinal kutu tasarımlarını ortaya çıkarabilmek için tasarım araçlarının bir çoğu kullanılmaktadır. Renk çeşitliliği, font seçimi, farklı düşünce tarzı iyi bir kutu tasarımında öne çıkan özelliklerdir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MM Ocak 2016 mobile-Flip eBook Pages 51 - 100| .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## MM Ocak 2016 mobile-Flip eBook Pages 51 - 100| .
+View flipping ebook version of MM Ocak 2016 mobile published by emrejunk on . Interested in flipbooks about MM Ocak 2016 mobile? Check more flip ebooks related to MM Ocak 2016 mobile of emrejunk. Share MM Ocak 2016 mobile everywhere for free.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Moment Expo Dergisi Sayı:48 by Orta Anadolu İhracatçı .](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Moment Expo Dergisi Sayı:48 by Orta Anadolu İhracatçı .
+Tek rotorlu çekiçli kırıcı; hammadde hazırlama gurubuna ait makinedir. 15 ile 20 cm büyüklüğündeki parçaları 0 ile 8 mm arasında öğütmeye yarayan tek volanlı, volanlar üzerinde 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Calaméo - 81. Sayi](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Calaméo - 81. Sayi
+Publishing platform for digital magazines, interactive publications and online catalogs. Convert documents to beautiful publications and share them worldwide. Title: 81. Sayi, Author: Mechanic Dergisi, Length: 92 pages, Published: 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![mymodaexport - Ana Sayfa](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## mymodaexport - Ana Sayfa
+KUTU OZELLIGI: Seffaf plastik kapakli ve alt kismi vidali kutu.Alt kisminin vidali olmasi sayesinde krem ustten eksildikce vidayi cevirerek eksilen kisim yenilenir. KUTU BOYUTLARI: Yuksekligi 10 cm, Capi 5 cm olan seffaf silindirik kapakli kutu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kutu Tasarımı - Kutu Tasarım Örnekleri - Arasokak İstanbul](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Kutu Tasarımı - Kutu Tasarım Örnekleri - Arasokak İstanbul
+Kutu Tasarım Programı. Kutu tasarım programı olarak adobe serisinini illustrator programını kullanıyoruz. Tasarım bakımından yetersiz kalınan durumlarda photoshop programını da tercih edebiliyoruz. Eğer siz de kutu tasarımı programı arıyor veya tasarlatacaksanız, Vektörel tabanı tercih etmelisiniz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

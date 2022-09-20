@@ -1,0 +1,121 @@
+# birincil kırıcının elemanları
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Türkiye Dergisi Sayı 30 by Madencilik .](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Madencilik Türkiye Dergisi Sayı 30 by Madencilik .
+Mayeb yayınlarının ilk ve ana yayını olan Madencilik Türkiye dergisinin 30. sayısıdır. Dergide madencilik sektörü ile ilgili güncel bilgiler yer almaktadır. Gelecek sayılarımızdaki 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sondaj teknigi - Harun Sönmez - SlideShare](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Sondaj teknigi - Harun Sönmez - SlideShare
+Borulama elemanları 1. Çakma çarığı: Borunun çakılması sırasında boru ağzını korumak ve borunun ilerlemesini sağlamak amacıyla kullanılır. Alt ucu keskin üst ucu çukur dişli siliğndirik bir elemandır. Çarık boyu=20-25 cm, iç çapı balta çapından çok az büyüktür.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Acoustic Design of Reflectors in Auditoria](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## (PDF) Acoustic Design of Reflectors in Auditoria
+Mimari cephe elemanları, fiziksel çevre şartlarını kontrol etme aşamasında yapıyı tamamlayıcı rol oynar. Bir eleman, yapıdaki birincil fonksiyonunun haricinde diğer fiziksel çevre 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İNKAYA MAD. ve PET. ÜRÜN. SAN. ve TİC. LTD. ŞTİ. İ.R. .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## İNKAYA MAD. ve PET. ÜRÜN. SAN. ve TİC. LTD. ŞTİ. İ.R. .
+No category İNKAYA MAD. ve PET. ÜRÜN. SAN. ve TİC. LTD. ŞTİ. İ.R. 51587 II
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kıvılcım kızların eşyalarını karıştırdı! - YouTube](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Kıvılcım kızların eşyalarını karıştırdı! - YouTube
+Oyuncular : Sinem Kobal, Gizem Güven, Selda Özbek, Zuhal Topal, Cansu Demirci, Dilara Kurtulmuş, Gökhan Keser, Reyhan Yıldızoğlu, Serkan Şenalp, Sinan Çalışkanoğlu, Hazal Şenel, Hazal 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HEMA TERMİK SANTRALİ 2X(660 MWe-669,4 MWm](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## HEMA TERMİK SANTRALİ 2X(660 MWe-669,4 MWm
+similar documents
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Termo Klima by Hakan Akbulut - Issuu](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Termo Klima by Hakan Akbulut - Issuu
+Türkiye'de birincil enerji tüketim dağılımı (2006). Enerji verimliliği; tüketilen enerji miktarının, üretimdeki miktar ve kaliteyi düşürmeden iktisadi kalkınmayı ve sosyal 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Türkiye Dergisi Sayı 24 by Madencilik .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Madencilik Türkiye Dergisi Sayı 24 by Madencilik .
+Kırıcının 2500 ton/saat bakır cevheri işleme kapasitesi (nominal) olacak. Mobil sistemin ağırlığı 800 tonun üzerinde olmasına rağmen, dev makina ayna boyunca hareket ederek çalışacak.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Facility Review of Kırka Boron Works, ETI Mine .](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## (PDF) Facility Review of Kırka Boron Works, ETI Mine .
+9-A- Birincil Hidrosiklon grubu B- İkincil Hidrosiklon Gr. 10-Spiral Klasifikatör 11-Elevatör Kurutma Ünitesi 12-Raklet: Paletli  ederse, kırıcı tıkanarak kırıcının durmasına nede 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Düşey Güneş Kırıcı Elemanların Akustik Açıdan .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## (PDF) Düşey Güneş Kırıcı Elemanların Akustik Açıdan .
+Mimari cephe elemanları, fiziksel çevre şartlarını kontrol etme aşamasında yapıyı tamamlayıcı rol oynar. Bir eleman, yapıdaki birincil fonksiyonunun haricinde diğer fiziksel çevre 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Maden iş makinaları | iş makinası ilanları | satılık iş .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Maden iş makinaları | iş makinası ilanları | satılık iş .
+İlan sahibinin özel açıklamaları : Satılık 100m3/Saat Kapasiteli Mobil Beton Santrali Tam mobil mono-blok şase Ön besleme ünitesi Turbo twin şaft ( çift milli ) mikser Avrupa menşeli yüksek kalitede bağlantı elemanları Full kontrollü modern operatör kabini Detaylı teknik bilgi .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ELEKTRİĞİN İLETİMİ KONU ANLATIMI (7. ÜNİTE FULL .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## ELEKTRİĞİN İLETİMİ KONU ANLATIMI (7. ÜNİTE FULL .
+6. SINIF ELEKTRİĞİN İLETİMİ KONU ANLATIMI Konusunu eğlenceli, bol etkinlikli, soru çözümlü ve sizi sıkmadan özel ders tadında işledik. iletken yalıtkan mad
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![sondaj_teknigi - Scribd](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## sondaj_teknigi - Scribd
+Borulama elemanları 4. Çakma Tokmakları: Borulara çakma 1. Çakma çarığı: Borunun çakılması sırasında darbelerini vermek için kullanılırlar. Çakma boru ağzını korumak ve borunun ilerlemesini kelepçesi ve şahmerdan şeklinde iki türlüdür. sağlamak amacıyla kullanılır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Agrega Üretiminde Kırma-Eleme ve Taşın Fiziko-Mekanik .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Agrega Üretiminde Kırma-Eleme ve Taşın Fiziko-Mekanik .
+kırıcının çene açıklığı 18-20 cm'dir. Ülkemizde primer kırıcı olarak genellikle primer çeneli kırıcı sistemi kullanılmaktadır. Bu kırıcılar yaklaşık devir/dakika ile çalışır. Primer rotorlu kırıcılar; gövde, rotor ve çarpm a plakalarında oluşurlar. Rotord sıralı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Düşey Güneş Kırıcı Elemanların Akustik Açıdan .](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## (PDF) Düşey Güneş Kırıcı Elemanların Akustik Açıdan .
+Mimari cephe elemanları, fiziksel çevre şartlarını kontrol etme aşamasında yapıyı tamamlayıcı rol oynar. Bir eleman, yapıdaki birincil fonksiyonunun haricinde diğer fiziksel çevre şartlarından bazılarını yönlendirme avantajına da sahipse, Sürdürülebilir Yapı Tasarımı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![madencilik uygulamalarında hidrolik kırıcılar.catalog.tr](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## madencilik uygulamalarında hidrolik kırıcılar.catalog.tr
+No category madencilik uygulamalarında hidrolik kırıcılar.catalog.tr
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Santrifüj Pompalar Hakkında Pratik Bilgiler - PDF Free .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Santrifüj Pompalar Hakkında Pratik Bilgiler - PDF Free .
+ISO 2858 gibi bazı standartlarda birincil olarak boyutsal standart olarak meant edilir. Bu pompayı yapan firma için herhangi bir gereksinim getirmemektedir. Pompaların tasarımı ile ilgili olan ISO standardı ISO 5199 'dur. API, ANSI ve ISO standartları arasında iyi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(DOC) TEORİ | Begüm Aydemir](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## (DOC) TEORİ | Begüm Aydemir
+Her kırıcının boyut küçültme oranı farklıdır. Örneğin Çeneli kırıcının BKO'su ortalama 5:1 iken, Konili kırıcının 10:1'dir. (3)ELEK ANALİZİ Eleme, tanelerin belirli büyüklükteki delik veya açıklıklardan geçebilme veya geçememe özelliğine dayanarak yapılan bir boyuta göre sınıflandırma işlemidir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Cevher Hazırlama (Laboratuvar Deney Föyleri) | .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## (PDF) Cevher Hazırlama (Laboratuvar Deney Föyleri) | .
+Kırıcının yapısına göre göbek kaldırma tertibatı mekanik veya hidrolik olabilir. Şekil 3'de verilen labor ölçekli bu tip bir kırıcıya ait özellikler:Şekil 3. Konik kırıcı ve yapı unsurları.Kırıcının Kullanımında Dikkat Edilmesi Gereken Hususlar: Kırıcının boğaz açıklığı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Kırıcı Ve Öğütücüler | Emre ÇITAK](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## (PDF) Kırıcı Ve Öğütücüler | Emre ÇITAK
+Kırılmış malzemenin, tane boyutunun kontrolü için, kırıcının bir elekle birlikte çalışması durumuna ise kapalı kırma devresi denir. Genel olarak birincil kırıcılar açık, ikincil ve üçüncül kırıcılar ise kapalı devre halinde çalıştırılır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KİMYA TEKNOLOJİSİ](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## KİMYA TEKNOLOJİSİ
+devresi olarak tanımlanır. Kırılmış malzemenin, tane boyutunun kontrolü için, kırıcının bir elekle birlikte çalışması durumuna ise kapalı kırma devresi denir. Genel olarak birincil kırıcılar açık, ikincil ve üçüncül kırıcılar ise kapalı devre halinde çalıştırılır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Elek Analizi Son Hali - Scribd](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Elek Analizi Son Hali - Scribd
+birincil, ikincil ve üçüncül ve hatta dördüncül kırıcılar şeklinde sınıflandırılabilir. Birincil kırıcılar olarak genellikle çeneli kırıcı,  Çok kullanılan bir çene kırıcının şematik diyagramı görülmektedir. Bu makinede, iki mafsallı kola bağlı olan bir kısım 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konik Kırıcılar-MEKA Kırma Eleme Teknolojileri](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Konik Kırıcılar-MEKA Kırma Eleme Teknolojileri
+Otomasyon, kırıcı boşluğuna giren metal parçaların yüksek basınca neden olması gibi kırılabilir olmayan malzemelere karşı kırıcının güvenliğini artırmaya yardımcı olur. Tahliye vanası otomatik olarak açılır, makinenin ciddi hasar görmesini önlemek için silindirlerden hidrolik yağı atılır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Acoustic Design of Reflectors in Auditoria](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## (PDF) Acoustic Design of Reflectors in Auditoria
+Bir eleman, yapıdaki birincil fonksiyonunun haricinde diğer fiziksel çevre şartlarından bazılarını yönlendirme avantajına da sahipse, sürdürülebilirlik açısından binaya katkı sağlar.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![2_cevher_hazirlama - Scribd](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## 2_cevher_hazirlama - Scribd
+Birincil kırıcılar ağır iş makinaları olup, maden ocağından gelen iri boyuttaki cevher parçalarını ikincil kırıcılara verebilecek uygun tane boyuna kadar kırmak amacıyla kullanılırlar. Birincil kırıcılar, bir ızgara kullanılarak veya kullanılmadan, açık devre halinde . 2.2. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Düşey Güneş Kırıcı Elemanların Akustik Açıdan .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## (PDF) Düşey Güneş Kırıcı Elemanların Akustik Açıdan .
+fiziksel çevre kontrol yöntemleri yeniden modern yapılarda k endine yer bulma ya. başlamıştır. Güneş kırıcı elemanlar, doğal havalandırma - iklimlendirme sistemleri, yeşil 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GLİ.pdf](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## GLİ.pdf
+Başlıca elemanları; taşıyıcı, güç kaynağı, baskı sistemi, döndürme sistemi, delik kırıntılarını temizleme sistemi, toz toplama sistemi, matkap ve tijlerdir. Döner delik .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırıcı Ve Öğütücüler.pdf](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Kırıcı Ve Öğütücüler.pdf
+Her kırıcının, parçaların içine girdiği bir ağız kısmı, kırmanın yapıldığı kırma zonu ve kırılan parçaların kırıcıdan çıktığı çıkış kısmı vardır.Kırıcı ağız boyutlar ının, içine girecek parçaların büyüklüğüne bağlı bir alt değeri olacağı bilinir.Kırıcı çıkış boyutları ise kırılmış malzeme boyutunu etkileyecektir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Düşey Güneş Kırıcı Elemanların Akustik Açıdan .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## (PDF) Düşey Güneş Kırıcı Elemanların Akustik Açıdan .
+-Kırılma: Güneş kırıcı elemanlar, sesi yansıtmak haricinde, ses üzerinde bir bariyer gibi kırıcılık etkisi de göstermektedir. Bu çalışmada, birincil kırılmalar göz önünde bulundurularak hesaplamalar yapılmışır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![%ø5.,50$(/(0(7(6ø6ø1ø13(5)250$16,1,1'(ö(5/(1'ø5ø/0(6ø9( .](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## %ø5.,50$(/(0(7(6ø6ø1ø13(5)250$16,1,1'(ö(5/(1'ø5ø/0(6ø9( .
+Birincil kırıcılar; çeneli ve rotorlu kırıcılar olmak üzere iki çeşittir. Ülkemizde birincil kırıcı olarak genellikle çeneli kırıcı kullanılmaktadır (Arman, 2014). Konik kırıcılar ise granit, bazalt ve andezit gibi sert ve aşındırıcı dere ve ocak malzemelerini kırmak
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

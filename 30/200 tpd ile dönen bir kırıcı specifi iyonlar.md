@@ -1,0 +1,41 @@
+# 200 tpd ile dönen bir kırıcı specifi iyonlar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İmmib Bilişim - TCP/IP ADRESİNİN SINIFLARI](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## İmmib Bilişim - TCP/IP ADRESİNİN SINIFLARI
+Her bir IP adresinde toplam 4 adet oktet vardır. Burakamlar 0 ile 255 arasındadır. Örneğin 192.175.32.4 bir IP adresidir. Her bir oktet nokta ile birbirinden ayrılır. Bu Ipv4 adresleme ile 232 yani 4 milyardan fazla adres üretilebilmektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DOLANDIRICILIK EYLEMLERİ ve KORUNMA YÖNTEMLERİ](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## DOLANDIRICILIK EYLEMLERİ ve KORUNMA YÖNTEMLERİ
+Ön Ödeme Dolandırıcılığı (Advance-Fee Fraud), gelişen iletişim imkânlarından da yararlanarak, insan- ların kısa süre içinde büyük kazançlar elde edecekleri vaadiyle, çeşitli adlar altında mağduru ön ödeme yapmaya ikna edilmesine dayalı bir dolandırıcılık türüdür.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Tp 200 Üreticilerinden ve Tp 200 .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Yüksek Kaliteli Tp 200 Üreticilerinden ve Tp 200 .
+Yüksek Kaliteli Tp 200 Üreticilerini Tp 200 Tedarikçilerini ve Tp 200 Ürünleri en iyi fiyatta Alibaba'da bulun. 24 saat içinde birçok fiyat teklifi alın!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Tpd 500 Üreticilerinden ve Tpd 500 Alibaba'da .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Yüksek Kaliteli Tpd 500 Üreticilerinden ve Tpd 500 Alibaba'da .
+Yüksek Kaliteli Tpd 500 Üreticilerini Tpd 500 Tedarikçilerini ve Tpd 500 Ürünleri en iyi fiyatta Alibaba'da bulun. 24 saat içinde birçok fiyat teklifi alın!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mikrodenetleyici Tabanlı İki Seviye DA/DA Alçaltan Dönütürücü](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Mikrodenetleyici Tabanlı İki Seviye DA/DA Alçaltan Dönütürücü
+dönüútürücü çıkı gerilimi 200 volta ayarlanırken, uyartım devresini besleyen dönüútürücü çıkıı 50 volta ayarlanmıtır. Dönüútürücülerin çalımaya baladığı andaki gerilim sinyalleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pozisyon Ölçüm Sensörleri - İlksez](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Pozisyon Ölçüm Sensörleri - İlksez
+0,5%, 0,1% yada 0,05% Potansiyometrik 2,5m kablo (Standart) Ölçme tipi Linearite Potansiyometrik yada voltaj / akım çıkışlı Ölçme boyu Çıkış sinyali tipi Çıkış tipi Besleme voltajı Elektriksel bağlantı Çalışma sıcaklığı -20OC  +80OC IP koruma sınıfı IP 54 Gövde malzemesi Alüminyum / Çelik / ABS Plastik.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Y 200 Kartlı Personel Devam Kontrol Sistemleri (PDKS) | .](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Y 200 Kartlı Personel Devam Kontrol Sistemleri (PDKS) | .
+Y 200 Kartlı Personel Devam Kontrol Sistemleri (PDKS) Y200 Kartlı Personel Takip & Geçiş Kontrol Cihazı. 125 Khz Kartlı Personel & Geçiş Kontrol Terminali 2000 Kart Kapasite, LCD Ekran, 50.000 Hareket Log, 12 Zil Çaldırma, Basit Geçiş Kontrol, Wiegand .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GENEL KİMYA - İstanbul Üniversitesi](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## GENEL KİMYA - İstanbul Üniversitesi
+9.2.5. Mol Kesri (Mol Fraksiyonu) ve Mol Yüzdesi .. 200 9.2.6. Derişim Birimlerinin Karşılaştırılması .. 201 9.3. Çözünürlüğe Etki Eden Faktörler .. 204
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Işık Hızında İnternete TP-Link Dopingi](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Işık Hızında İnternete TP-Link Dopingi
+Fiber internet alanında Türkiye'nin önde gelen servis sağlayıcı şirketi olan Turkcell Superonline, fiber internet müşterilerine TP-Link RE200 model menzil genişleticiyi sunacak. Özellikle geniş ya da kalın duvarlar, ahşap kaplamalar bulunan ev ve ofislerde, kablosuz .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TURKCELL SUPERONLINE](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## TURKCELL SUPERONLINE
+Turkcell Superonline Müşteri Hizmetleri, web sayfası, Turkcell Superonline Bayi, Müşteri Hizmetleri (0 850 222 0 222) ve Turkcell İletişim Merkezi kanallarından yapılacak başvurularla kampanyaya katılınabilir. 1000 Megabite Kadar İnternet ön 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

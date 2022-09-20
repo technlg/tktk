@@ -1,0 +1,41 @@
+# ezme ve kömur sınıflandırma
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Geçmişten Geleceğe Lezzet - Ezme Dürüm Evi - EZME .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Geçmişten Geleceğe Lezzet - Ezme Dürüm Evi - EZME .
+Önerilerinizi, dilek ve isteklerinizi, taleplerinizi kısacası aklınıza gelen tüm fikirleri bize yazmaktan çekinmeyin. Ezme Dürüm Evi ailesi olarak sizlere yapmış olduğumuz hizmetten dolayı mutluluk duyuyoruz. Sizin taleplerinizle her geçen gün daha da yenilikçi olmak için uğraşıyoruz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ezmeler - Hacı Şerif](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Ezmeler - Hacı Şerif
+Hacı Şerif, Cezerye, Çikolata, Tatlı Siparişi, Lokum, Helva, İrmik Helvası, Akide Şekeri ve Meyveli Tatlılar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sınıflandırma: Alternatif Teknikler](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Sınıflandırma: Alternatif Teknikler
+•urada yer alan d(i,j) ifadesi i ve j gözlemleri arasındaki Öklid uzaklığıdır. •Herbir sınıf değeri için bu uzaklıkların toplamı hesaplanarak ağırlıklı oylama değeri elde edilir. •En büyük ağırlıklı oylama değerine sahip olan sınıf etiketi yeni test verisinin sınıfı kabul edilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ezme ve Sürülebilir](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Ezme ve Sürülebilir
+Fındık Yağı. Aspir Yağı. İdeal Yağ. Ezme ve Sürülebilir. Ezme ve Sürülebilir. Ballı Fındık Ezmesi. Ballı Fıstık Ezmesi. Kakaolu Fındık Ezmesi. Şekerli Fındık Ezmesi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sınıflandırma by irem oner](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Sınıflandırma by irem oner
+Sınıflandırma Canlıların ve cansız varlıkların benzerliklerine göre gruplandırılmasına "Sınıflandırma" denir.Sınıflandırma yapmamızın sebebi bu varlıkların benzerliklerini ve farklılıklarını ayırt edebilmemiz içindir. Odam: Odamda oyuncaklar bir yere,kitaplar bir Blog Jan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kahvaltılık Ezme ve Kahvaltılık Sürmelikler: Doğal Ezme ve .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Kahvaltılık Ezme ve Kahvaltılık Sürmelikler: Doğal Ezme ve .
+Kahvaltılık Ezme ve Sürmelikler OrganikGurmem olarak geniş doğal ve organik ürün yelpazemiz sayesinde en lezzetli ve en doğal ürünleri sizler ile buluşturmaktayız. Ezme ve sürmelikler kategorisinde listelenen kuru domates ezmesi, zeytin domates kapya biberli bruschetta ezme ve taze domatesli bruschetta ezme yemeklerinizi ya da kahvaltılarınızı çok daha lezzetli bir hale getirebilirsiniz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Kömür Sınıflandırma Üreticilerinden ve .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Yüksek Kaliteli Kömür Sınıflandırma Üreticilerinden ve .
+Yüksek Kaliteli Kömür Sınıflandırma Üreticilerini Kömür Sınıflandırma Tedarikçilerini ve Kömür Sınıflandırma Ürünleri en iyi fiyatta Alibaba'da bulun. 24 saat içinde birçok fiyat
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pratik Ezme Tarifi - Nefis Yemek Tarifleri](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Pratik Ezme Tarifi - Nefis Yemek Tarifleri
+Acılı Ezme 16 Kişi ve üstü kişilik, 40dk Pişirme, 30dk Hazırlama 8 B Esra Atalar Birinci 179 8 B Cevizli Acılı Ezme 4-6 kişilik, Pişirme yok, 5dk
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Genel Cerrahi - Meme Kanserinde Sınıflandırma ve .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Genel Cerrahi - Meme Kanserinde Sınıflandırma ve .
+Evre 3 B : T4 ( Tümör herhangi bir boyutta ve komşu doku (deri, kas tutulumu var) (N0,N1, N2) İnflamatuar meme kanseri, (Eğer beraberinde meme etrafında yaygın Lenf Nodu yayılımı varsa (N3) Evre 3C) Evre 3 C : T1, T2, T3, N3 ( Meme etrafındaki Lenf Nodlarında yaygın yayılım var)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![4.Sınıf Matematik: Üçgenleri kenar özelliklerine göre .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## 4.Sınıf Matematik: Üçgenleri kenar özelliklerine göre .
+Üçgen üç kenarlı anlamına gelmektedir. "Gen" sözcüğü kenarlı anlamı taşıdığı için üç -gen = üç kenarlı şekil anlamına gelmektedir. Geometrik cisimlerden üçgenler kenarlarının çeşidine göre üçe ayrılırlar. Bunlar ; eşkenar üçgen. ikizkenar üçgen. çeşitkenar üçgendir. Şimdi bu üçgen çeşitlerini tanıyalım. Özelliklerini belirleyelim.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

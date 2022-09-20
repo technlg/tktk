@@ -1,0 +1,81 @@
+# eaf celik uretim işlemi ile akış şemasını
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![EAO'daki enerji kaynaklarının HAD simülasyonu](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## EAO'daki enerji kaynaklarının HAD simülasyonu
+1. SAYISAL HESAPLAMA BÖLGESİNİN OLUŞTURULMASI (FORMING A NUMERICAL CALCULATION AREA) 2.1. EAO'nın geometrisi (Geometry of EAF) Elektrik ark .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dayanıklı ve Kaliteli eaf esnek kanalı](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Dayanıklı ve Kaliteli eaf esnek kanalı
+Her türlü HVAC kurulumu için Alibaba'daki en iyi eaf esnek kanalı 'u görüntüleyin. Bu eaf esnek kanalı, üstün kalitede ve ekonomiktir. Sevkiyata Hazır Ticaret Fuarı Kişisel Koruyucu Ekipman Alibaba'dan alın. Alibaba üzerinden satın Yardım
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çelik Nedir ? | Tasarimdan imalata](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Çelik Nedir ? | Tasarimdan imalata
+Uygulama Hızı: Sıcak daldırma yöntemi ile galvanizlemede tam bir koruma birkaç dakikada elde edilebilirken, dört kat boya işlemi için birkaç haftalık bir zamana ihtiyaç uyulur. Kaplama tokluğu: Sıcak daldırma yöntemi ile galvanizleme çelikle metalürjik bağ kurulabilen tek kaplama prosesidir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tokat Organize Sanayi Bölge Müdürlüğü » OSB Uygulama .](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Tokat Organize Sanayi Bölge Müdürlüğü » OSB Uygulama .
+Gazete ile yapılacak ilk ilan ile ihale günü arası 15 günden, son ilan ile ihale günü arası 5 günden az olamaz. İhale ayrıca Bakanlık internet sayfasında da duyurulur. (2) İhale dosyasının bedelli veya bedelsiz verileceği, şayet bedelli verilecekse satış bedeli ile temin edileceği yer ihale ilanında belirtilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) UTAK 2018 Bildiri Kitabı: Tasarım ve Umut | Gülşen .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## (PDF) UTAK 2018 Bildiri Kitabı: Tasarım ve Umut | Gülşen .
+UTAK 2018 Bildiri Kitabı: Tasarım ve Umut
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![2. Yapılarda çelik kullanımı - DEU](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## 2. Yapılarda çelik kullanımı - DEU
+1 Dokuz Eylül Üniversitesi İnşaat Mühendisliği Bölümü Alternatif Yapı Malzemeleri 2. Yapılarda çelik kullanımı 2.1. Çelik Metalürjisi 2.1.2. Demir ve çeliğin tarihsel gelişimi 2.1.1. Çeliğin avantaj ve dezavantajları 2.1.3. Demir ve çeliğin tanımı 2.1.4. Dünyada ve Türkiye
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çelik Yapılar 2019 Sunum-2 - DPU](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Çelik Yapılar 2019 Sunum-2 - DPU
+Gerilme ile şekil değiştirme arasındaki t d E d (2.4) bağıntısı ile tanımlanan Et ye cismin teğet modülü denir ve genel olarak gerilmeye bağlı bir büyüklüktür. Gerilme artıkça eğim sürekli bir şekilde azalarak sıfır olur. Diyagramın c ile gösterilen (ÇYYFu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![celik recep kaymavar](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## celik recep kaymavar
+Rüşvet ile alakalı çıkacak kanunnamelerde hatır ve gönüle bakılmaksızın hangi memuriyet ve rütbeden olursa olsun rüşvet alanın da verenin de cezalandırılmasını istemişti.10 II. Abdülhamit, devlet adamlarından ve danışmanlarından devletin durumu hakkında "hal
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cecile Morrison Bizans Dünyası (Doğu Roma .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Cecile Morrison Bizans Dünyası (Doğu Roma .
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![admin – Sayfa 10 – ALFA DEĞER](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## admin – Sayfa 10 – ALFA DEĞER
+Bu işlemi belirli aralıklarla yapmalıdır. 2.6.2.2.2 İç Denetim Planları İç denetimler bütün kalite yönetimi ile ilgili prosesleri, faaliyetleri, vardiyaları kapsamalı ve yıllık plana göre planlanmalıdır. 40 İç/ dış uygunsuzluk veya müşteri şikayetleri görüldüğü zaman frekans
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Goksel Kurelerin Devinimleri Uz - Nicolaus Copernicus](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Goksel Kurelerin Devinimleri Uz - Nicolaus Copernicus
+Ve FE ile EG yayları verildiği için FE yayı 90ºnin B'den farkına, EG yayı da 90ºnin C açısından farkına eşittir ve buna göre EAF ile EAG açıları arasındaki orana –başka bir deyişle dikey açılar BAD ile CAD arasındaki orana– da ulaşırız.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Demir Celik Sektoru | okan duman](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Demir Celik Sektoru | okan duman
+Suyla yıkama işlemi ile sıcaklık 100 C'ye indirildikten sonra asit, asit depo tankına, kalan demir oksit ise değerlendirilmek üzere Sinter Fabrikası'na gönderilir. Tesis kapasitesi 7.3 m7saat'tir. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) TEMİZ ÇELİK ÜRETİMİNDE BAZİK REFRAKTER .](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## (PDF) TEMİZ ÇELİK ÜRETİMİNDE BAZİK REFRAKTER .
+PDF | On Jan 1, 2002, Muammer Bilgiç and others published TEMİZ ÇELİK ÜRETİMİNDE BAZİK REFRAKTER KULLANIMI | Find, read and cite all the research you .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BEKLENEN ÖZELLİKLER ÖZET](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## BEKLENEN ÖZELLİKLER ÖZET
+beklenen özellikler ile bu saclar için geliştirilmekte olan yeni nesil takım çeliklerinin özellikleri tartışılacaktır. Anahtar Kelimeler: AHSS çelik saclar, form verme, takım çeliği. ABSTRACT
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Teknolojik Değişim: Türkiye'de Üretim Araçları .](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## (PDF) Teknolojik Değişim: Türkiye'de Üretim Araçları .
+TECHNOLOGICAL CHANGE: PRODUCTION OF MEANS OF PRODUCTION IN TURKEY () Nowadays "catching up" and "reducing the technology gap" are the two alternatives that take the place of the term "industrialisation" which was used widely untill
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![EAO'daki enerji kaynaklarının HAD simülasyonu](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## EAO'daki enerji kaynaklarının HAD simülasyonu
+ile olan enerji üretiminin ve ısı geçişinin modellemesi yapılmıştır. Hurdanın EAO içerisinde brülörle ergitilmesi  akış, radyasyon ve konvektif ısı geçişini aynı anda 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CSGB_uretim Tesislerinde Isg - Scribd](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## CSGB_uretim Tesislerinde Isg - Scribd
+olmakla birlikte, birbirinden farklı iş akış şemasını içeren işletmeler için tek başına yeterli değildir. Risk analizi yapan kişinin bilgi birikimi ve tecrübesine 83 göre başarı oranı değişmektedir. Türkiye'de uygulamada sıkça karşılaşılan bir yöntemdir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) TPM, LEAN MANUFACTURING, Yalın üretim, OEE, .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## (PDF) TPM, LEAN MANUFACTURING, Yalın üretim, OEE, .
+Tüm yapılan, makinelere hatalı her hangi bir işlemi/durumu anında otomatik olarak saptayan, ve bu durumda makineyi/işlemi yine otomatik olarak durduran cihazlar yerleştirmektir. Makine durduktan sonra bir zil çalar, ya da bir ışık yanar, böylece makinenin kendisi çalışan kişi(lere)ye bir aksama olduğunu anında haber verir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İŞLEM ÖNCELİĞİ | Çelik Hocam](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## İŞLEM ÖNCELİĞİ | Çelik Hocam
+RASYONEL SAYILARDA ÇIKARMA İŞLEMİ ETKİNL İĞİ 22 Ekim 2017 Trackbacks / Pingbacks 6. SINIFLAR İŞLEM ÖNCELİĞİ VE ÇARPMA İŞLEMİNİN DAĞILMA ÖZELLİĞİ - Çelik Hocam 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çinko eritme - Zinc smelting](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Çinko eritme - Zinc smelting
+Bağlantılı rafineri akış sayfası, Noranda'nın doğu Kanada çinko kavurma işleminin bir şemasını göstermektedir. Kavurma işlemi, kullanılan kavurma türüne göre değişir. Üç tür kavurma makinesi vardır: çok ocaklı, süspansiyonlu ve akışkan yataklı. Çok ocaklı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

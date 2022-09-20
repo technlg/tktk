@@ -1,0 +1,109 @@
+# endonezya kucuk ölcekli altın madeni maliyet fiyatı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![turkish Tanıtım, Promosyon turkish Online Alışveriş - .](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## turkish Tanıtım, Promosyon turkish Online Alışveriş - .
+Alibaba turkish Promosyon için alışveriş, Endonezya altın fiyatı.alibaba'da Promosyon Fiyatlarla Satılan indirimde turkish bul, 24 saat içinde birçok fiyat teklifi alın!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yürüyüş 75 007 by Türkiye İşçi Partisi - Issuu](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Yürüyüş 75 007 by Türkiye İşçi Partisi - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya'da maden çöktü: 60 işçiye ulaşılamıyor](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Endonezya'da maden çöktü: 60 işçiye ulaşılamıyor
+Endonezya Afetle Mücadele Ajansı, göçük altında kalan madencilerin seslerinin duyulduğunu açıkladı. Euronews'te yer alan habere göre arama kurtarma çalışmaları devam ediyor. Küçük boyutlu altın madenleri Jakarta hükümeti tarafından yasaklansa da, yerel yönetimlerin uzak bölgelerde kaçak madenlere göz yumduğu ifade ediliyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kem Aslı | Kem Aslı ne demek? | Kem Aslı anlamı nedir?](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Kem Aslı | Kem Aslı ne demek? | Kem Aslı anlamı nedir?
+1) Aklı başında, aklı selim sahibi, arif, basiretli, zeki, mantıklı, sağduyulu, sağ görülü. 2) Akıllı, akıl sahibi kimse demektir. Eşyanın güzellik, çirkinlik, kemal ve noksanlık sıfatlarını idrak etme; her çeşit faaliyette doğruyu yanlıştan, iyiyi kötüden ve güzeli çirkinden 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Altın Madeni Endonezya Üreticilerinden ve .](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Yüksek Kaliteli Altın Madeni Endonezya Üreticilerinden ve .
+Yüksek Kaliteli Altın Madeni Endonezya Üreticilerini Altın Madeni Endonezya Tedarikçilerini ve Altın Madeni Endonezya Ürünleri en iyi fiyatta Alibaba'da bulun. Sevkiyata Hazır Ticaret Fuarı Kişisel Koruyucu Ekipman Hizmetler Alibaba üzerinden satın Yardım
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ekşi sözlük - kutsal bilgi kaynağı](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## ekşi sözlük - kutsal bilgi kaynağı
+günlerden bir gün, köylerden birinde bir çiftçinin eşeği kör kuyuya düşer. eşek saatlerce acı içinde kıvranır ve bağırır. sesini duyan sahibi gelip baktığında zavallı eşeği kuyunun dibinde görür. çaresiz çiftçi köylüleri yardıma çağırır. köylüler kör kuyudaki eşeği kurtarmak için .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Erzincan'da altın sondajı başladı: Yurttaşlar tepkili](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Erzincan'da altın sondajı başladı: Yurttaşlar tepkili
+Alacer Gold, Çöpler'in beş kilometre ötesindeki Çakmaktepe'de de 2018'in Eylül ayında faaliyete başladı. Çalık Holding'in madencilik alanındaki şirketi olan Lidya Madencilik 2009'da Alacer Gold'la uluslararası işbirliğine giderek Çöpler Altın Madeni'nin yüzde 20
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Merkez Bankası Ne Yapmalı? - Mahfi Eğilmez](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Merkez Bankası Ne Yapmalı? - Mahfi Eğilmez
+Hatta bugün bir haberde vardı, künye uygulaması ile alakalı; 5,5 maliyet satış fiyatı 4,5 TL.Bu marketler olmasa gıda enflasyonumuz tavan yapardı:) Sil Yanıtlar .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yeni Sabah - Şubat 1949 ~ Tam Metin](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Yeni Sabah - Şubat 1949 ~ Tam Metin
+1 Şubat 1949 tarihli gazete - 2 Şubat 1949 tarihli gazete - 3 Şubat 1949 tarihli gazete - 4 Şubat 1949 tarihli gazete - 5 Şubat 1949 tar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tam Metin](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Tam Metin
+1 Aralık 1949 tarihli gazete - 2 Aralık 1949 tarihli gazete - 3 Aralık 1949 tarihli gazete - 4 Aralık 1949 tarihli gazete - 5 Aralık 1949 tarihli gazete - 6 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![vocab.txt · enelpi/bert-question-answering-uncased .](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## vocab.txt · enelpi/bert-question-answering-uncased .
+from transformers import AutoTokenizer, AutoModelForQuestionAnswering tokenizer = AutoTokenizer.from_pretrained("enelpi/bert-question-answering-uncased-squadv2_tr 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TAYLAND YORUMLARI 2 | gez gör ve anlat](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## TAYLAND YORUMLARI 2 | gez gör ve anlat
+29/10/2012· Ticaret Ataşesi, 65 milyonluk nüfusa sahip Tayland'ın Endonezya, Malezya, Vietnam, Singapur gibi ülkeler için de bir giriş kapısı olduğunu hatırlattı. TUSKON Başkanı Meral de Güneydoğu Asya bölgesinin ticari açıdan çok ihmal edildiğini, bunu bölgeye gelince daha iyi anladığını ve çalışmalar yapacaklarını söyledi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kem Aslı | Kem Aslı ne demek? | Kem Aslı anlamı nedir?](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Kem Aslı | Kem Aslı ne demek? | Kem Aslı anlamı nedir?
+(i. A.). 1. Altın ve gümüşten yapılmış şeylerin saflık ve halisliği derecesi: Bu saatin, kordonunun ayarı nedir? On sekiz ayarında altındır. Kem-aytr = Saflık ve halislik derecesi eksik ve aşağı. Tam -iil-ayâr = Halislik derecesi tam ve eksiksiz. 2.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Avrupa'nın en büyük altın madeni Uşak'ta | NTV](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Avrupa'nın en büyük altın madeni Uşak'ta | NTV
+Evinde 55 kilo altın bulundu. En çok altına sahip 20 ülke. Türk Preussag AG (TÜPRAG) Metal Madencilik Yönetim Kurulu Başkanı Mehmet Yılmaz, Kışladağ Altın Madeni 'nde 10 yılda 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Aralık | 2020 | _Kainatın Tüm Seslerine, Renklerine ve .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Aralık | 2020 | _Kainatın Tüm Seslerine, Renklerine ve .
+Milas-Sekköy Madeni'nin inşaatı 21 koyun taşınmasını gerektirebilir. Re: Common raporunun çıktığı aynı gün, UniCredit hem bütün kömür santrali, maden ve altyapı projelerine, hem de kömür santrali, madeni ve altyapıyı geliştiren şirketlere desteğini kesti.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya'da kaçak altın madeni çöktü: 9 ölü - KIBRIS .](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Endonezya'da kaçak altın madeni çöktü: 9 ölü - KIBRIS .
+Endonezya'nın Batı Sumatra eyaletinde yasa dışı işletilen bir altın madeninin çökmesi sonucu 9 kişi hayatını kaybetti. 19 Nisan 2020 Pazar 10:17 Kompas gazetesinin haberine göre, eyaletin Güney Solok bölgesinde şiddetli yağışlar nedeniyle kaçak altın madeni ocağında göçük yaşandı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tencere [Arşiv] - Arka BahÇe Forumu](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Tencere [Arşiv] - Arka BahÇe Forumu
+[Arşiv] Tencere Gözlem-Tespit Ben anlamam borsadan,arsadan.Mademki arka bahçe inşaatı başladı az bilgimizle bilgi karmaşası yaratacağımıza hemen bahçenin ücra bir köşesine çeklip tencereyi kurup sevgiden,hayattan,gönülden,basından ordan burdan lezzet 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yeni İstanbul - Şubat 1950 ~ Tam Metin](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Yeni İstanbul - Şubat 1950 ~ Tam Metin
+1 Şubat 1950 tarihli gazete - 2 Şubat 1950 tarihli gazete - 3 Şubat 1950 tarihli gazete - 4 Şubat 1950 tarihli gazete - 5 Şubat 1950 t
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cozmos by Cihan Eyri - Issuu](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Cozmos by Cihan Eyri - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HAYRET3 - GENEL KÜLTÜR](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## HAYRET3 - GENEL KÜLTÜR
+ve veya İse ancak ancak ve ancak Bilgiye ayırt edici biçimde ulaşma, araştırma, analiz etme, paylaşma yaratıcı biçimde sunabilme, MANTIK: 1 Doğru 0 Yanlış anlamına gelir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ « Futbol Tv](https://github.com/technlg/images/blob/main/65.jpg)</a>
+##  « Futbol Tv
+Dropbox şu anda 50 GB'lik alanı aylık 9,99 dolar, yıllık 99 dolar; 100 GB alanı aylık 19,99 dolar, yıllık 199 dolar olarak kullanıcıya sunuyor. Yapılan değişiklikle beraber 50 GB'lik paket 100GB'ye; 100 GB'lik paket ise 200 GB'ye yükseltilecek. Dropbox Pro kullanıcıları 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PLASFEDDERGİ Sayı 5 by PLASFED Plastik Sanayicileri .](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## PLASFEDDERGİ Sayı 5 by PLASFED Plastik Sanayicileri .
+Bu sektörü 31 adet ile madeni eşya, 24 adet ile gıda ve içki sektörleri izledi. Yatırım tutarları açısından bakıldığında, dokuma ve giyim sektörünün 5. Bölge için 1 milyar 202 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bakırtepe Altın İşletmesi](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Bakırtepe Altın İşletmesi
+Bakırtepe Altın İşletmesi. 2006 yılında Demir Export A.Ş. tarafından Maden İşleri Genel Müdürlüğü'nden ihale yolu ile elde edilen Bakırtepe Altın sahasında, 2007 yılında başlatılan çalışmalar sonucunda 28 Mart 2016 tarihinde ilk altın dökümü gerçekleştirilmiştir. .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya'da kaçak altın madeni çöktü: 9 ölü - Haberler](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Endonezya'da kaçak altın madeni çöktü: 9 ölü - Haberler
+19/4/2020· Endonezya'nın Batı Sumatra eyaletinde yasa dışı işletilen bir altın madeninin çökmesi sonucu 9 kişi hayatını kaybetti. Endonezya'da kaçak altın madeni çöktü: 9 ölü
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Merkez Bankası Ne Yapmalı? - Mahfi Eğilmez](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Merkez Bankası Ne Yapmalı? - Mahfi Eğilmez
+Merkez Bankası Para Politikası Kurulu yarın toplanacak ve ekonomik durumu değerlendirerek bir önlem alınıp alınmayacağına karar verecek. Kuşkusuz bu toplantıya ilişkin temel beklenti Merkez Bankası'nın faiz oranlarını değiştirip değiştirmeyeceği olacak.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![6 milyar dolarlık altın madeni dolandırıcılığı hikayesi](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## 6 milyar dolarlık altın madeni dolandırıcılığı hikayesi
+7/4/2021· Bu yüzden Guzman yerel pazardan 61.000 dolar değerinde altın alımı yaptı. Bu altın madeni gerçek diye oyalamak için 2.5 sene daha yeterli olacaktı. 12/27
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya'da kaçak altın madeni çöktü: 9 ölü - Dünya .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Endonezya'da kaçak altın madeni çöktü: 9 ölü - Dünya .
+Endonezya'nın Batı Sumatra eyaletinde yasa dışı işletilen bir altın madeninin çökmesi sonucu 9 kişi hayatını kaybetti. Kompas gazetesinin haberine göre, eyaletin Güney Solok 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,41 @@
+# elmas kırma ve öğutme
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Elmas - Vikipedi](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Elmas - Vikipedi
+Elmas, bilinen en sert maddelerden biridir ve değerli bir taştır. Karbon elementinin bir modifikasyonu grafit, diğeri ise elmastır. Elmasın saf karbon olduğu ilk olarak Fransız kimyacı Lavoisier tarafından keşfedilmiştir. Lavoisier, elması yakmış ve yanma gazının sadece karbondioksit olduğunu görünce elmasın karbon olduğu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dünyanın en pahalı 10 elması](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Dünyanın en pahalı 10 elması
+8/4/2021· 1986 yılında çıkarılan bu elmasın ham hali 600 caratmış. Mühendis, teknisyen, sanatçı ve güvenlik ordusundan oluşan ekibin çalışmaları sonucuysa ortaya bu 274 carat 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Elmas Nedir,Nasıl Oluşur ve Özellikleri Nelerdir? | Kerim Usta](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Elmas Nedir,Nasıl Oluşur ve Özellikleri Nelerdir? | Kerim Usta
+Işığı kırma özelliğinin fazla olması ve beyaz ışığı renklere ayırma özelliği olması, onu değerli bir ziynet eşyası yapmaktadır. Elmas ve pırlanta arasındaki fark nedir Elmas.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Elmas Nasıl Oluşur? | BilimFili](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Elmas Nasıl Oluşur? | BilimFili
+Elmas oluşumu ve durağanlığı için gereken kritik sıcaklık-basınç ortamı, dünyanın her tarafında mevcut değil. Aslen, kıtasal kabukların durağan iç kısımlarının altındaki mantoda bulunduğu düşünülüyor . Bu "elmas kararlılık bölgeleri"nde oluşup biriken elmaslar 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Elmas Yatırım Karmaşık Olabilir, Ama Bu Kolay - Haber 2021](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Elmas Yatırım Karmaşık Olabilir, Ama Bu Kolay - Haber 2021
+Sadece ne satın aldığınızı bilin: a.44 ct. elmas yerine 5 ct. Bir ton kaydedebilir ve fark ancak farkedilir. Renk Elmaslar beyaz olmalı, beyaza yaklaştıkça, daha parlak parça - ve fiyat etiketi daha yüksek. D, E ve F kategorileri en ışıltıyı sunar ve renksizliğe en yakın
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kolyeci Mehmet | Elmas ve Pırlanta (Diamond)](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Kolyeci Mehmet | Elmas ve Pırlanta (Diamond)
+Elmas çıkartılan ülkeler arasında Avustralya, Güney Afrika, Güney Amerika, Endonezya ve Hindistan başta gelmektedir. Elmasın tartılmasında ölçü birimi olarak karat kullanılır (1 karat = 0,200 gr) Karat kelimesi İngilizce'dir. Kelimenin kökeni ise Arapça 'kırat' denilen keçiboynuzu çekirdeğinden gelmektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Elmas Yüzük Modelleri ve Fiyatları - Altınbaş](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Elmas Yüzük Modelleri ve Fiyatları - Altınbaş
+Elmas Yüzükler Doğanın ışıltısını parmağınıza taşıyan Altınbaş'ın elmas taşlı yüzük tasarımları; sade, gösterişli ve vintage modelleriyle cazibenizi ve şıklığınızı artırıyor. Bağlılığın sembolü olan elmas yüzükler arasında özgün tarzlarla pek çok alternatif bulunuyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ELMAS / %65'e Varan İndirimlerle! / Emel Pırlanta](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## ELMAS / %65'e Varan İndirimlerle! / Emel Pırlanta
+Elmas küpeler, elmas yüzükler, elmas kolyeler bir kadının şıklığını tamamlayacak en güzel ve en nadide parçalardandır. Ayrıca değer verdiğiniz kadına ona olan sevgi bağınızı göstermeniz için verebileceğiniz en güzel hediye seçeneklerinden biridir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![elmas kır - YouTube](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## elmas kır - YouTube
+elmas kır Videos Playlists Channels Discussion About Home Trending History Get YouTube Premium Get YouTube TV Best of YouTube Music Sports Gaming Movies & Shows 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Elmas | GOLDSTORE](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Elmas | GOLDSTORE
+Elmas kelime olarak, Yunan dilinde "fethedilemeyen" anlamına gelen "adamas" tan gelmektedir. Elmaslar yüzlerce yıldır hep bir hayranlık ve merak konusu olmuştur. Tüm değerli taşların en sert, en ölümsüz ve en parlağıdır elmas. Elmas, dünyanın en yaygın 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

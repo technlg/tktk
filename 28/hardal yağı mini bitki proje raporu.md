@@ -1,0 +1,153 @@
+# hardal yağı mini bitki proje raporu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SÜRDÜRÜLEBİLİR BİR KIRSAL KALKINMA MODELİ OLARAK KAVAR .](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## SÜRDÜRÜLEBİLİR BİR KIRSAL KALKINMA MODELİ OLARAK KAVAR .
+6 Bir kırsal kalkınma programı olarak Kavar Deneyimi, beş yıllık uygulama süreci ve sonuçları ışığında bütüncül, katılımcı, maliyet etkin ve sürdürülebilir özellik-leri ile tekrarlanabilir ve yaygınlaşabilir bir "model önerisi" oluşturmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tehlike Sınıfınızı Öğrenin - AYA Ortak Sağlık Güvenliği .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Tehlike Sınıfınızı Öğrenin - AYA Ortak Sağlık Güvenliği .
+Ayçiçek yağı imalatı Tehlikeli 10.41.02 Bitkisel sıvı yağ (yenilebilen) imalatı (soya, susam, haşhaş, pamuk, fındık, kolza, hardal vb. yağlar) (zeytin yağı, ayçiçeği yağı ve mısır yağı hariç) Tehlikeli 10.41.03 Beziryağı imalatı Tehlikeli 10.41.05
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BATIKENT LİSESİ TÜBİTAK 4006 BİLİM FUARI ÖĞRENCİ .](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## BATIKENT LİSESİ TÜBİTAK 4006 BİLİM FUARI ÖĞRENCİ .
+BATIKENT LİSESİ TÜBİTAK 4006 BİLİM FUARI ÖĞRENCİ ARAŞTIRMA PROJELERİ 25-27 MAYIS 2016 İLİŞİM İYOLOJİ OĞRAFYA EDEİYAT FİZİK RESİM KİMYA MATEMATİK PSİKOLOJİ SOSYOLOJİ TARİH YA AN I DİL 2 İÇİNDEKİLER QR KOD
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ORAN Kalkınma Ajansı](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## ORAN Kalkınma Ajansı
+ORAN Kalkınma Ajansı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hardal Bitkisinin Faydaları - Canım Anne](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Hardal Bitkisinin Faydaları - Canım Anne
+Hardal yakı olarak da kullanılır. Hardal tohumu ezilip toz haline getirilerek hemoroid sorununda kullanılır. Bazı zehirlenmelerde hardal yağı kusturduğu için faydalıdır. Akciğer zarı iltihabi gibi akciğer rahatsızlıklarında faydalıdır. Kabızlık probleminde faydası vardır
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cilt Kırışıkları Önlemek İçin Mucuzevi Bitki Maskeleri | .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Cilt Kırışıkları Önlemek İçin Mucuzevi Bitki Maskeleri | .
+Göz Altı Kırışıklıkları İçin Maske İki adet havuç Bir çay kaşığı badem yağı Havuçları soyup ince ince doğrayın. Havuçların suyunu alıp posasını atın ve havuç suyunun içine badem yağı ilave edip karıştırın. Hazır hale gelen karışımı 2 saat kadar buzdolabında bekletin.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mobil Piroliz Tesisi | Taşınabilir Piroliz Makinesi](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Mobil Piroliz Tesisi | Taşınabilir Piroliz Makinesi
+Kabaca, mini piroliz makinesi sizin için günde 200 USD'den fazla para kazanabilir. Uyarı: Tablo sadece referansınız içindir. Daha kesin bilgi almak için Beston Machinery ile iletişime geçebilirsiniz. piroliz tesisi proje raporu gerçek koşullarınıza göre.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Avrupa'da Yabani Bitkilerin Hasadının Öğrenilmesi](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Avrupa'da Yabani Bitkilerin Hasadının Öğrenilmesi
+YABANİ BİTKİ PROJESİ Grundtvig Öğrenme Ortaklıkları Proje raporu Avrupa'da Yabani Bitkilerin Hasadının Öğrenilmesi Yazarlar: E. Mor é 1, R.Melero, A.M.Barata 2, V.Lopes 2, F.Rocha 2, J.Radusiene 3, B.Karpaviene 3, H.Cetinkaya 4 4. 1 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BİTKİSEL YAĞ ÜRETİM TESİSİ YATIRIM FİZİBİLİTESİ](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## BİTKİSEL YAĞ ÜRETİM TESİSİ YATIRIM FİZİBİLİTESİ
+Ayçiçek yağı yağ asitleri bileşimine göre; Sınıf 1 Ayçiçek yağı Sınıf 2 Yüksek oleik asit içerikli ayçiçek yağı olmak üzere iki sınıfa ayrılır. Bazı cins tohumlarda yağ oranının % 50'ye kadar çıkması, ayçiçeğini yağ eldesinde kıymetli bir bitki haline
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hardal Yağı | Bitki, Doğal, Yağ](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Hardal Yağı | Bitki, Doğal, Yağ
+Bitki Yağı bitkisel yağların faydaları kullanımları özellikleri hakkında bir blog 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ozon Yağı - MAKYAJ](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Ozon Yağı - MAKYAJ
+Real Techniques 2 Mini Remedy Sponges 35.00 TL 35.00 TL Mavalia Kaş Kalemi 119.00 TL 119.00 TL Ardell Fashion Siyah Takma Kirpik 55.00 TL 55.00 TL Balmy Naturel Magic Mitt Makyaj ve Yüz Temizleme Eldiveni 12.90 TL 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BOLU HOBİ SANAT MALZEMELERİ-Online .](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## BOLU HOBİ SANAT MALZEMELERİ-Online .
+BOLU HOBİ SANAT MALZEMELERİ-Online-hobisanatmalzemeleri-Hobi ve Sanatsal Çalışma Malzemeleri, Aletler, Makineler-operahobisanat-MODEL, MAKET, MİMARLIK,Mimari Maket malzemeleri, Model Maket Yapım Yapıştırıcıları, Maket pilastik çıta ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TIBBİ VE AROMATİK BİTKİLER EYLEM PLANI 2015 .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## TIBBİ VE AROMATİK BİTKİLER EYLEM PLANI 2015 .
+Aynı sayıda bitki türünde yılları arasında ortalama 36.126 ton tıbbi bitki dıs satımına karsılık 80.388 dolar döviz girdisi elde edilmistir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![A- B - C- D BİTKİ İSİMLERİ VE ŞİFALARI](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## A- B - C- D BİTKİ İSİMLERİ VE ŞİFALARI
+Bitki çiçek açtığında tüm topraküstü kesimleri kesilip parçalanarak zeytinyağı na yatırılır. 1-2 hafta süreyle zeytinyağında bekletilerek elde edilen eriyiğe kan taron yağı adı verilir. Kantaron yağı yara, bere, yanık, varikosel ağrılar ya da ö teki şikâyetli yerlere, günde
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hardal Bitkisi - YouTube](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Hardal Bitkisi - YouTube
+18/10/2018· Hardal yağı gibi yeni bir şeyler denerken, bir birey olarak kendinize özgü yan etkilere karşı dikkatli olunması ve şüpheniz varsa tıbbi yardım istenmesi gereklidir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TEKNOFEST](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## TEKNOFEST
+Proje Özeti (Proje Tanımı) Türkiye genelinde en fazla yağı alan bölge Doğu Karadeniz olması nedeniyle yüzey akıa geçen su ile toprak taınımı artarken, suyun toprak tarafından emilmesi ile ağırlaan toprak taınımı da artmaktadır.[1] Heyelanların oluması yolların
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Fındıkta Destek Sulamanın Verim ve Kalite Özelliklerine .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Fındıkta Destek Sulamanın Verim ve Kalite Özelliklerine .
+Bitki su tüketiminin belirlenmesi için her 10 günlük periyotlarda ve sulama öncesi ve sonrası 0-30 ve 30-60 cm  Tarım Orman ve Gıda Teknolojileri Araştırma Grubu Türkiye Tarımsal Araştırma Projesi Sonuç Raporu, TUBİTAK TARP-1825 Nolu Proje Kesin Sonuç 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![AFYON HOBİ SANAT MALZEMELERİ .](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## AFYON HOBİ SANAT MALZEMELERİ .
+AFYON HOBİ SANAT MALZEMELERİ-hobisanatmalzemeleri-hobi ve sanatsal çalışma malzemeleri aletleri makineleri-opera hobi sanat-MODEL, MAKET, MİMARLIK,Mimari Maket malzemeleri, Model Maket Yapım Yapıştırıcıları, Maket pilastik çıta ve levhalar 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ayak Kokusu İçin Bitkisel Çözümler | TarihNeDio](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Ayak Kokusu İçin Bitkisel Çözümler | TarihNeDio
+Ayak Kokusu İçin Evde Doğal Çözüm 8 damla nane yağı, 8 damla kekik yağı, 1 çorba kaşığı kaya tuzunu 1 leğene koyduğunuz su üzerine ilave edin. Ayaklarınızı bu suda 25-30 dakika bekletin. Ardından alacağınız ılık bir duş ile ayak kokunuza çözüm adına güzel 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Letonya ulke raporu_2013 - SlideShare](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Letonya ulke raporu_2013 - SlideShare
+Letonya ulke raporu_2013 1. LETONYA ÜLKE RAPORU Hazırlayan : Songül BEKTAŞOĞLU Ankara - February, 2013 2. LETONYA Temel Sosyal ve Ekonomik Göstergeler Temel Sosyal Göstergeler Resmi Adı Letonya Cumhuriyeti Nüfus 2.26 milyon 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İÇİNDEKİLER - KOP İdaresi Başkanlığı](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## İÇİNDEKİLER - KOP İdaresi Başkanlığı
+Kaynak: DSİ .Bölge Md., ò, Takdim Raporu, Konya. DSİ .Bölge M d.,2016 Takdim Raporu, Isparta (Akşehir ve Tuzlukçu kapsamında) 1.2.2.Entegre Proje Yaklaşımı Konya Ovası Projesi (KOP) bölgede yapımı tamamlanan ve devam etmekte olan, enerji-sulama
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hardal Yağı - hobisanatmalzemeleri](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Hardal Yağı - hobisanatmalzemeleri
+Mini Telden Üç Boyutlu Objeler Mika Kutu Şifon Çiçek Metre Ahşap Nikah Şekeri Kutular  Hardal Yağı Hardal Ya ğı Tümü K.Taş, Mum, Sabun, Pasta, Orgnizasy Mlzm .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sağlık Çevre Kültürü 7. Sayı by Zeytinburnu Tıbbi .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Sağlık Çevre Kültürü 7. Sayı by Zeytinburnu Tıbbi .
+ISSN 2014 / Sayı 7 İÇİNDEKİLER Zeytinburnu Tıbbi Bitkiler Bahçesi ve Sağlık Araştırmaları Merkezi yayınıdır. Merkezefendi Geleneksel Tıp Derneği tarafından 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BATIKENT LİSESİ TÜBİTAK 4006 BİLİM FUARI ÖĞRENCİ ARAŞTIRMA PROJELERİ](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## BATIKENT LİSESİ TÜBİTAK 4006 BİLİM FUARI ÖĞRENCİ ARAŞTIRMA PROJELERİ
+Proje Özeti: PROJENİN AMACI Bitki örtüsü hakkında bilgi edinmek, çevremizin bitki örtüsünün zenginleşmesine  Edebi içerikli mini söyleşi ve eğlenceli yarışmalar düzenlerler. BATIKENT LİSESİ TÜBİTAK 4006 BİLİM FUARI 13 Proje Adı : SİYAHLA 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Türkiye'de İklim Değişikliği ve Tarımda .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## (PDF) Türkiye'de İklim Değişikliği ve Tarımda .
+Türkiye'de İklim Değişikliği ve Tarımda Sürdürülebilirlik Raporu Mikdat Kadıoğlu Download PDF Download Full PDF Package This paper A short summary of this paper 37 Full PDFs related to this paper READ PAPER Türkiye'de İklim Değişikliği ve Tarımda 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tıbbı ve Aromatik Bitkilere TKDK'dan Yüzde 50 Hibe - .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Tıbbı ve Aromatik Bitkilere TKDK'dan Yüzde 50 Hibe - .
+Günümüzde de birçok bitki tıbbi amaçlarla kullanılmaktadır. Türkiye de coğrafi konumu, iklim ve bitki çeşitliliği, tarımsal potansiyeli, geniş yüz ölçümü sayesinde tıbbi ve aromatik bitkiler ticaretinde dünyada önde gelen ülkelerden biridir.'' şeklinde konuştu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ARICILİK SAKLİ ŞİFA PİRİİ WORLD DOSYASI](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## ARICILİK SAKLİ ŞİFA PİRİİ WORLD DOSYASI
+Bol yağış aldığından bahar ayında bitki çeşidi çoktur tahmini bitki sayısı 1000 1500 civarında bitki örtüsüne sahiptir.Muş yöresi. .BİLİNEN otlar ve bilinmeyen daha keşfedilmemiş türler barındırır.. Arının vaz geçilmezi otlar şifalı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Burdur ili Bitki Envanteri (Ekonomik, Nadir ve .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## (PDF) Burdur ili Bitki Envanteri (Ekonomik, Nadir ve .
+Burdur ili Bitki Envanteri (Ekonomik, Nadir ve Endemik Bitkileri) Dr. Belkıs MUCA Hasan Ozcelik İlker Çinbilgel Dr. Belkıs MUCA Hasan Ozcelik İlker Çinbilgel Download PDF Download Full PDF Package This paper A short summary of this paper 31 Full PDFs 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Slayt 1](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Slayt 1
+Muş İl Müdürlüğü KIRSAL KALKINMA YATIRIMLARININ DESTEKLENMESİ PROGRAMI KIRSAL KALKINMA DESTEKLERİ KAPSAMINDA TARIMA DAYALI EKONOMİK
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mevlüt SOYSAL: Tıbbi Aromatik Bitkiler Projesi daha da .](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Mevlüt SOYSAL: Tıbbi Aromatik Bitkiler Projesi daha da .
+Diyeceğim: Proje bir anlamda daha da büyüdü. Ve projenin aromatik bitki bölümüne ağırlık veren Büyükşehir Belediyesi, TÜBİTAK MAM'ın işin içine girmesiyle beraber tıp alanına girmenin altyapısını hazırlamaya başladı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BİTKİSEL ÜRETİMDE VE TARIMSAL SAVAŞIMDA YENİ BİR .](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## BİTKİSEL ÜRETİMDE VE TARIMSAL SAVAŞIMDA YENİ BİR .
+Bitki aktivatörlerinin kullanıldığı bağ, patates, mısır gibi diğer ürünler ile ilgili çalışmalar bölümümüzde devam etmektedir. Bitki aktivatörlerinin bitkisel üretimde ve tarımsal savaşımda yararlarını aşağıdaki şekilde özetleyebiliriz. 1. Daha canlı bitki ve ürün tutumu, 2
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yaşar 2018 Sürdürülebilirlik Raporu](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Yaşar 2018 Sürdürülebilirlik Raporu
+İlerleme Raporu'nu takiben 2011 yılından itibaren yılda bir yayımlamaya başladığı Yaşar Sürdürülebilirlik Raporu'nun bu sene sekizincisi olan Yaşar 2018 Sürdürülebilirlik Raporu'nu tüm paydaşlarına sunmaktadır. Kapsam Yaşar 2018 Sürdürülebilirlik Raporu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bakım Modu](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Bakım Modu
+Mini & Midi Müzik Seti Pil Alkalin Pil 9V Pil AAA Pil Büyük Boy (D) Pil Orta Boy (C) Pil Özel Pil Şarj Edilebilen Pil Ses Sistemleri 2+1 Ev Sinema Sistemi 4+1 Ev Sinema Sistemi 5+1 Ev Sinema Sistemi 7+1 Ev Sinema Sistemi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## 
+Çin lahanası, marul, turp, salatalık, Çin Brokolisi (Chinese Kale) yaprak hardal, soğan ve Çin sarmısağı üretimi yıl boyunca sürerken, su teresi, ıspanak, kurt üzümü daha çok soğuk dönemlerde, fasulye, ıspanak türleri, su kabağı yaz döneminde, domates, tatlı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Panama ulke raporu_2013](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Panama ulke raporu_2013
+Panama ulke raporu_2013 1. PANAMA ÜLKE RAPORU Hazırlayan : Esma KOCA Ankara - February, 2013 2. PANAMA Temel Sosyal ve Ekonomik Göstergeler Temel Ekonomik Göstergeler 2008 a 2009 a 2010 a 2011 a 2012 b 2013 b Nominal GSYİH 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## 
+- bitki özsuyu elde etmek amacıyla ağaç yetiştirilmesi, - örgüde kullanılan bitkisel ürünlerin yetiştiriciliği.  ay çiçek yağı, pamuk yağı, fındık yağı, kolza veya hardal yağı, beziryağı vb., - tohum, sert kabuklu yemiş ve çekirdek yağlarından elde edilen yağı alınmış 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![cu.edu.tr](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## cu.edu.tr
+Türkiye'nin kekik uçucu yağı ihracatı değer olarak 2013 yılında bir önceki yıla göre %197.9 oranında artarak 2 milyon 561 bin dolar olarak gerçekleşmiştir. 2013 yılı kekik uçucu yağı ihracatında, ABD %35.7, Kanada %22.6, İsviçre %15.6, Fransa %8.4 oranında
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Slayt 1 - Ondokuz Mayıs Üniversitesi](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Slayt 1 - Ondokuz Mayıs Üniversitesi
+Aral Gölü havzasında 1960'lı yıllarda 300'den fazla bitki, 35 kuş, 23 diğer hayvan türü, Özbekistan'da ender görülen bitki ve hayvan türlerinin yer aldığı "Kırmızı Kitap"ta kayıt altına alınmıştı. 1960'ta 34 balık türünün bulunduğu gölde o dönemde yılda ortalama 60 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

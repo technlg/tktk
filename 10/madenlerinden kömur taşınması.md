@@ -1,0 +1,37 @@
+# madenlerinden kömur taşınması
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Maden Mühendisi Oğuz ALP Website - K](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Maden Mühendisi Oğuz ALP Website - K
+2) Üretilen madenin ana ihraç sistemine taşınması ve havalandırma için maden yatağını yatay olarak bölümlere ayırmak üzere sürülen galerilerin tümünü içine alan, yatay düzlem. 3) Kömür madenciliğinde bir maden ocağının birkaç kartiyesinden oluşan kısmı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![madende komur tasima kazası on Vimeo](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## madende komur tasima kazası on Vimeo
+This is "madende komur tasima kazası" by tuğba özdavul on Vimeo, the home for high quality videos and the people who love them.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madenlerde Yaşam Odaları (Sığınma Odaları) Özellikleri](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Madenlerde Yaşam Odaları (Sığınma Odaları) Özellikleri
+Kömür madenleri için sığınma odaları: Kömür madenleri için dizayn edilmiştir, taşınabilir ve tamamen elektrik enerjisiz çalışan modellerdir. kişilik kapasitelerde üretilebilir. 96 saate kadar dışarıdan tam bağımsız şekilde çalışabilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür Madenciliğinde İş Güvenliği ve İşçi Sağlığına İlişkin .](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Kömür Madenciliğinde İş Güvenliği ve İşçi Sağlığına İlişkin .
+İthali, Taşınması, Saklanması, Depolanması, Satışı, Kullanılması, Yok Edilmesi, Denetlenmesi Usûl ve Esaslarına İlişkin Tüzük c) Yönetmelikler: — İşyen Hekimlerinin Çalışma Şartlan ile Görev ve Yetkileri Hakkındaki Yönetmelik (14 madde)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Maden kırma makinasının Ankara 'dan İzmir'e taşınması : .](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Maden kırma makinasının Ankara 'dan İzmir'e taşınması : .
+Maden kırma makinasının Ankara 'dan İzmir'e taşınması Maden kırıcı makinesi için Akdaş Döküm tarafından üretilen 34 ton ve 53 ton ağırlıklarında şase aksamlarının Ankara'dan İzmir'e taşıması.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KÖMÜR MADENCİLİĞİNDE MODERN İŞLETME YÖNTEMLERİ](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## KÖMÜR MADENCİLİĞİNDE MODERN İŞLETME YÖNTEMLERİ
+KÖMÜR MADENCİLİĞİNDE MODERN İŞLETME YÖNTEMLERİ L. FREYTAG^ Çeviri: Şinasi ESKİKAYA () ÖZET Batı Almanya Kömür Madenciliğinde hemen tamamen uzun ayak yöntemi kul lanılmaktadır. 1960'da 1600 olan ayak sayısı 1970'de SOO'e ve 1980
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yer Altı Maden İşletmelerinde Üretim Maliyetlerinin Gider .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Yer Altı Maden İşletmelerinde Üretim Maliyetlerinin Gider .
+i- Toprak İşleri: üretim sırasında çıkan şist, toprak ve taşların taşıma araçlarına yüklenmesiyle yeryüzünde döküleceği noktaya kadar taşınması işleridir. j- Bakım ve Tamir İşleri: Hazırlık işleri ve tahkimatla ilgili tamir ve bakımlar dışındaki tüm tamir ve bakımlar ile üretim işlerinde kullanılan makine ve aletlerin bakımı, tamir ve tadilatı işleridir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madende 64 tane komur topladım - YouTube](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Madende 64 tane komur topladım - YouTube
+3/2/2018· The next video is starting stop
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KIYMETLİ MADENLER KIYMETLİ TAŞLAR PİYASASI](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## KIYMETLİ MADENLER KIYMETLİ TAŞLAR PİYASASI
+KIYMETLİ TAŞLAR PİYASASI. Yenibosna Merkez Mahallesi Kuyumcukent Sitesi Ladin Sok. No:4 Bahçelievler /İstanbul-TÜRKİYE Tel: +90 212 292 66 00 Faks: +90 212 292 66 18 web: borsaistanbul e-posta :kmktm_info@borsaistanbul. 4 - 11 12 - 26 27 - 31 32 - 36 37 - 39 40 - 45 İÇİNDEKİLER KIYMETLİ MADENLER VE KIYMETLİ TAŞLAR PİYASASI KIYMETLİ MADENLER 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

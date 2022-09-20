@@ -1,0 +1,65 @@
+# kömur değirmende öğutulmesi oranı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mal ve Hizmetlere Uygulanacak Katma Değer Vergisi .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Mal ve Hizmetlere Uygulanacak Katma Değer Vergisi .
+KDV oranları, 31/12/2020 tarihine kadar (bu tarih dahil) geçici olarak %1'e indirilmektedir. Kaynak: GİB". 31 Temmuz 2020 Tarihli Resmi Gazete. Sayı: 31202. Karar Sayısı: 2812. Ekli "Mal ve Hizmetlere Uygulanacak Katma Değer Vergisi Oranlarının Tespitine İlişkin Kararda Değişiklik Yapılmasına Dair Karar"ın yürürlüğe konulmasına, 3065 sayılı Katma 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çâk ı Giriban | Çâk ı Giriban ne demek? | Çâk ı Giriban .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Çâk ı Giriban | Çâk ı Giriban ne demek? | Çâk ı Giriban .
+13 sayısının uğursuz olduğuna ilişkin inanç dünyada o kadar yaygındır ki, yaşamı birçok yönde ciddi olarak etkilemektedir. Bazı ülkelerde evlerin kapılarına 13 numarası verilmez, uçaklarda 13. koltuk sırası yoktur, apartmanlarda, otellerde 13. kat ya 12A'dır ya da 14 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür Değirmen | Çekiçli Kırıcı - Maden Makinaları](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Kömür Değirmen | Çekiçli Kırıcı - Maden Makinaları
+kömür değirmen - Mertler Makine, çekiçli kırıcı, mikronize değirmen, maden makinaları, çekiçli, pimli değirmen, kömür kırıcı, konkasör, çeneli kırıcı, mikronize öğütücü, maden öğütücü imalatı Hakkımızda HAKKIMIZDA Mertler Makina'nın Hikayesi, Eskişehir'de 1970 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yeniden Değerleme Oranları - Lütfi GÜLBENK](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Yeniden Değerleme Oranları - Lütfi GÜLBENK
+Yeniden Değerleme Oranları. Dönemler. Oran. (%) Gerekçe. 2020. 9,11. VUK GENEL TEBLİĞİ SIRA NO:521. 2019.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KÖMÜR ÜRETİMİ 13 YILDIR KESİNTİSİZ BÜYÜYOR](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## KÖMÜR ÜRETİMİ 13 YILDIR KESİNTİSİZ BÜYÜYOR
+artarken, aynı artış oranı 2011 yılında yüzde 3.8 olmuştu. Son 13 yıldır artan taş kömürü üretiminde en büyük artış 2012'de yüzde 23.12'lik oranı ile Endonezya'da kaydedildi. Bu ülkeyi Kazakistan yüzde 12.4 ile takip ederken, Rusya'da yüzde 12'lik üretim artışı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![[PDF] KÜTAHYA-DEĞİRMİSAZ -0.5 mm LİNYİT .](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## [PDF] KÜTAHYA-DEĞİRMİSAZ -0.5 mm LİNYİT .
+• Modifiye hücrede yapılan flotasyon sonucunda -0.360 mm tane boyutu, %15 katı oranı, pH=10 (kireç ile), 2000 gr/t gazyağı miktarı, 750 gr/t Na 2 Si0 3, 200 gr/t MIBC, 4 lt/dk hava akış miktarı ve 1000 dev/dk pervane hızında optimum değerler elde edilmiştir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![2017 Yılı Yeniden Değerleme Oranına Göre 2018 Yılında .](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## 2017 Yılı Yeniden Değerleme Oranına Göre 2018 Yılında .
+2017 yılı için yeniden değerleme oranı yüzde 14,47 olarak tespit edilmiştir.(2016 yılından 2017 yılına geçerken 3,83 olduğunu hatırlatalım) Yeni orana istinaden 2018 yılında ; -Gümrük Kanunu'nun 241 inci maddesinde yer alan usulsüzlük cezası 92 TL' den 105 TL ye, .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TÜRKİYE 6. KÖMÜR KONGRESİ The Sixth coal congress of TURKEY .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## TÜRKİYE 6. KÖMÜR KONGRESİ The Sixth coal congress of TURKEY .
+KömUr Numunelerinin Sülfür Analizleri Numune Toplam Sülfür (%) Piritik Sülfür {%) Yıkanmış Kömür 5.90 5.3fl  Katı oranı % 2 W/v, ilk kondüsyon zamanı 10 dak. flokulant 177 178 PECX kon tgJO C) 20000 m a tlokulant ŞEKİL 3 Pint «a komur tanacikltnnin 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Biri şunu Sirksin | Anlamı Nedir?](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Biri şunu Sirksin | Anlamı Nedir?
+Her ne kadar Roma İmparatoru Julius Caesar (Sezar) milattan önce 46 yılında takvimin başlangıcını Ocak ayı olarak ilan ettiyse de, 16. yüzyılın ortalarına kadar Avrup
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bu değirmende 3 asırdır un öğütülüyor - Küçük Saat](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Bu değirmende 3 asırdır un öğütülüyor - Küçük Saat
+Bu değirmende 3 asırdır un öğütülüyor Ata yadigarı değirmeni kuşaktan kuşağı işleten Ramazan Şengül, değirmenle yapılan unun daha kepekli ve lezzetli olduğunu söyledi A+ A-Adana'nın Feke ilçesine bağlı Süphandere Mahallesinde yaklaşık 3 asrı aşkındır un 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür Nedir? Çeşitleri Nelerdir? | Enerji Portalı](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Kömür Nedir? Çeşitleri Nelerdir? | Enerji Portalı
+Nem oranı, Ağırlığı, Üretim ve nihai tüketim tarihi, Üreticisi, adresi, telefon ve e-posta adresi gibi bilgiler yazılı olmalıdır. Hava kirliliği, akciğer ve solunum yollarına zarar verir ve astım, bronşit ve kalp damar hastalıklarına neden olur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KURU KÖMÜR HAZIRLAMA YÖNTEMLERİ](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## KURU KÖMÜR HAZIRLAMA YÖNTEMLERİ
+kömürün kül oranı düşürülmeye çalışılmıştır. İkinci yol ise kömürün ya tamamen ısıl işleme tabi tutulması (karbonizasyon), ya da mikro dalga ile seçimli mineral madde .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Arka BahÇe [Arşiv] - Sayfa 2 - Arka BahÇe Forumu](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Arka BahÇe [Arşiv] - Sayfa 2 - Arka BahÇe Forumu
+7/2/2007· [Arşiv] Sayfa 2 Arka BahÇe Arka BahÇe Seçtik seçmesine de vapurları kimin için seçtik. İstanbul içinse tipinden ziyade dışarıya verdiği karbondioksit in azlığına göre seçmeliydik.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÖZTÜRKLER UN](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## ÖZTÜRKLER UN
+Kırma sistemi, bugdayın öğutulmesi sırasında tanenin ayıldığı ve kepeğin endospermden buyuk ölçüde ayrıldığı sistemdir. Kırma Unu  Patent un,mümkün olduğunca buğday endosperminin iç kısmından elde edilen(değirmende ilk pasajlardan gelen ürünlerin kül 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cumhuriyet-22.8.1990 Günü 20. Sayfa](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Cumhuriyet-22.8.1990 Günü 20. Sayfa
+Cumhuriyet, 22.8.1990 günü, 20. sayfanın içeriği Bugünden 1930'a 5.485.296 adet makale
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MUKAVEMET DEĞERLER](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## MUKAVEMET DEĞERLER
+η − mukavemet değeri oranı ηÇt − çentik duyarlılık sayısı ηχ − destek katsayısı ϕ / deg açı κ − sınır değerler oranı λ W/(mK) Isı iletme özelliği λ − narinlik derecesi λ0 − narinlik sınırı λhes [ 1 ] hesaplanan narinlik derecesi µ − kaygan sürtünme
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

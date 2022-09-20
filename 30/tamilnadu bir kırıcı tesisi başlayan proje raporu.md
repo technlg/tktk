@@ -1,0 +1,137 @@
+# tamilnadu bir kırıcı tesisi başlayan proje raporu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![11 1 - ARTVİN TSO](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## 11 1 - ARTVİN TSO
+2.1. YATIRIM KONUSU: Doğal kaynak suyu şişeleme tesisi 2.2. ÜRETİLECEK ÜRÜN/HİZMET: Şişelenmiş doğal kaynak suyu 2.3. YATIRIM YERİ: Artvin 2.4. TESİS KAPASİTESİ: 0,5 litrelik şişe üretim ve dolum kapasitesi (7.980 adet/saat  22 saat/gün  300
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇİMSA ÇİMENTO SANAYİ VE TİCARET ANONİM ŞİRKETİ 01 .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## ÇİMSA ÇİMENTO SANAYİ VE TİCARET ANONİM ŞİRKETİ 01 .
+1999 yılı Aralık ayında işletmeye alınan Hacı Sabancı Beyaz Çimento Üretim Tesisi, 3,75 m. çapında 57 m. uzunluğunda bir döner fırına sahiptir. Tesis, kırıcı ve ön homojenizasyon tesisleri olan bir hammadde değirmeni, bir kömür değirmeni, bir farin silosu, döner
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KARABÜK BELEDİYESİNİN 01](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## KARABÜK BELEDİYESİNİN 01
+KARABÜK BELEDİYESİNİN 01.01.2013 – 31.12.2013 TARİHLERİ ARASINDAKİ BİR YILLIK FAALİYET RAPORUDUR YAZI İŞLERİ MÜDÜRLÜĞÜ 2013 YILI FAALİYET RAPORU 1. GENEL BİLGİLER A-Misyon ve vizyon: Yazı İşleri Müdürlüğü olarak Meclis 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇİMSA ÇİMENTO SANAYİ VE TİCARET ANONİM ŞİRKETİ 01 OCAK .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## ÇİMSA ÇİMENTO SANAYİ VE TİCARET ANONİM ŞİRKETİ 01 OCAK .
+Tesiste, iki adet kırıcı, bir adet ön homojenizasyon tesisi, iki adet bilyeli hammadde değirmeni, iki adet farin silosu ve iki adet kapalı klinker stok holü mevcuttur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kazdağları'nda neler oluyor? | Ekoloji Birliği](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Kazdağları'nda neler oluyor? | Ekoloji Birliği
+Kazdağları bütünlüklü bir ekosisteme sahiptir. Kirazlı İşletme Ruhsatı 13 Eylül 2019'da Doluyor! Enerji ve Tabii Kaynaklar Bakanı Ruhsatı uzatmasın! Kirazlı'da 13. 10. 2009 tarihinde başlayan ruhsatın süresi 10 yıl. Yani Önümüzdeki Eylül ayının 13'ünde doluyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![tarimorman.gov.tr](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## tarimorman.gov.tr
+Kati/kesin proje: Yatırımcının yetkilendirdiği bir tasarım firması/proje müellifi tarafından yapılan, bir üretim tesisi veya inşaatın ana ve yardımcı yapılar ile nasıl yapılacağını gösteren açıklama, şema, plan ve proje paftaları ile bunların düzenlenmesine dayanak olan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kazdağları'ndaki altın şirketine dair bilinmeyenler - .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Kazdağları'ndaki altın şirketine dair bilinmeyenler - .
+Kazdağları silsilesi içinde bulunan Kirazlı, iddiaların aksine, Kazdağları'nın çok küçük bir bölümünü oluşturan Milli Park'a 40 km uzaklıktadır. Kazdağları bütünlüklü bir ekosisteme sahiptir. Kirazlı'da 13. 10. 2009 tarihinde başlayan ruhsatın süresi 10 yıl. Yani
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Om MÃ¼hendislik, yeni Ã¼retim tesisi ile kapasitesini .](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Om MÃ¼hendislik, yeni Ã¼retim tesisi ile kapasitesini .
+kırıcı ürünleri ile hafriyat sektörü için önemli oranda zaman ve maliyet tasarruf sağladıklarını belirtiyor. Kurulumu için ÇED raporu alınması gereken bu türden tesislerin aksine istenilen uygun noktada, 30 dakika gibi kısa bir süre içerisinde kırıma ve elemeye ilebile
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Karadeniz Holding'in PowerShip'leri uğurlandı](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Karadeniz Holding'in PowerShip'leri uğurlandı
+Karadeniz Holding'in bin 200 megavat kapasiteye sahip 4 yeni PowerShip'i, Cumhurbaşkanı Recep Tayyip Erdoğan ve Başbakan Binali Yıldırım katılımıyla, Sedef Tersanesi'nde gerçekleştirilen törenle yola çıktı. UYARI: Küfür, hakaret, rencide edici cümleler veya imalar, inançlara saldırı içeren, imla .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Formen Dergisi Sayı 07 (Aralık 2016) by A4Medya - Issuu](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Formen Dergisi Sayı 07 (Aralık 2016) by A4Medya - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ahika](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Ahika
+Ahika
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Formen Dergisi 44. Sayı (Şubat 2020) Yayında by .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Formen Dergisi 44. Sayı (Şubat 2020) Yayında by .
+başladı. Çin'de başlayan ama çok hızlı bir şekilde onlarca ülkeye yayılan  Atık Yakma ve Enerji Üretim Tesisi Projesi devam ediyor. Sarens bu proje için 4 dev kule vinç kurulumu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HMK Madde 176 Islah ve Maddi Hataların Düzeltilmesi](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## HMK Madde 176 Islah ve Maddi Hataların Düzeltilmesi
+Islah ve Maddi Hataların Düzeltilmesi Kapsamı ve Sayısı HMK Madde 176 (1) Taraflardan her biri, yapmış olduğu usul işlemlerini kısmen veya tamamen ıslah edebilir. (2) Aynı davada, taraflar ancak bir kez ıslah yoluna başvurabilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) TRC3 BÖLGESİ (Mardin, Batman, Siirt, Şırnak) YER .](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## (PDF) TRC3 BÖLGESİ (Mardin, Batman, Siirt, Şırnak) YER .
+TRC3 BÖLGESİ (Mardin, Batman, Siirt, Şırnak) YER ALTI VE YER ÜSTÜ ZENGİNLİKLERİ RAPORU Dicle Kalkınma Ajans ı Dılgeş Esra Download PDF Download Full PDF Package This paper A short summary of this paper 32 Full PDFs related to this paper 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![FORMEN DERGİSİ AĞUSTOS SAYISI YAYINDA by .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## FORMEN DERGİSİ AĞUSTOS SAYISI YAYINDA by .
+Santral, bir alüminyum tesisi içinde kullanılan ve Ortadoğu'da kurulan ilk H-Class teknolojisine sahip  SAHA RAPORU Rakamlarla tünel 2017 Proje Norveç Parlamentosu'nda 23 Mayıs 2017 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ORAN Kalkınma Ajansı](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## ORAN Kalkınma Ajansı
+ORAN Kalkınma Ajansı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ADANA ÇİMENTO SANAYİİ TÜRK A.Ş](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## ADANA ÇİMENTO SANAYİİ TÜRK A.Ş
+1 No'lu Kırıcı 120 ton/saat KHD – 1957 2 No'lu Kırıcı 250 ton/saat MIAG – 1967 3 No'lu Kırıcı 350 ton/saat MIAG – 1977 4 No'lu Kırıcı 900 ton/saat KHD – 1993 II-Pre-Blending Tesisi : 60.000 Stok Kapasiteli MVT – 1993 III-Farin Değirmenleri : 1 No'lu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Formen Dergisi Ağustos 2020 Sayısı Yayınlandı by .](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Formen Dergisi Ağustos 2020 Sayısı Yayınlandı by .
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gazetto Temmuz - Ağustos - Eylül 2015 Pages 1 - 32 - .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Gazetto Temmuz - Ağustos - Eylül 2015 Pages 1 - 32 - .
+Check Pages 1 - 32 of Gazetto Temmuz - Ağustos - Eylül 2015 in the flip PDF version. Gazetto Temmuz - Ağustos - Eylül 2015 was published by gokhanceylan on . Find more similar flip PDFs like Gazetto Temmuz - Ağustos - Eylül 2015. Download
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Atik Tesisi Haberleri - Timeturk Haber](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Atik Tesisi Haberleri - Timeturk Haber
+ve kullandığım ifadenin gönül kırıcı bir yaklaşım içermesi hakikaten beni de üzdü. Bu sebeple vatandaşımızdan bu tutum ve  - 'Bir tesisi inşaa etmek, tamamlamak önemli bir 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![RAPORU.tr](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## RAPORU.tr
+İÇ DEĞERLENDİRME RAPORU A. Kurum Hakkında Bilgiler İletişim Bilgileri Rektör Adı Soyadı: Prof. Dr. İlyas ÇAPOĞLU Adresi: Erzincan Üniversitesi Rektörlüğü Fatih Mahallesi Merkez/Erzincan Telefon Numarası/İş: 0446 226 66 Telefon Numarası/Cep
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BİTİRDİĞİMİZ PROJELERİMİZ](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## BİTİRDİĞİMİZ PROJELERİMİZ
+VE TİC. AŞ. BİTİRDİĞİMİZ PROJELERİMİZ. 2 TEKNİK YAPI TEKNİK YAPILAR SAN. VE TİC. AŞ.2. PROJECinsi Konumu İnşaat Alanı Bağımsız Bölüm Adeti Başlama Tarihi Bitiş Tarihi VANİKÖY'DE VİLLA Villa Vaniköy- Üsküdar 507,96 m² 1 1980 1982 İBRAHİM BEY APARTMANI Butik Apartman Erenköy - Kadıköy 2.504,70 m² 14 1982 1984 TÜZEMEN VİLLA Villa Kuruçeşme-Beşiktaş 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Alüminyum Cephe Giydirme Sistemlerinde .](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## (PDF) Alüminyum Cephe Giydirme Sistemlerinde .
+10 yılı aşkın bir süredir faal durumda olan bir hizmet sistemidir. Alüminyum Giydirme Cephe başta olmak üzere, binaların daha hafif, hızlı uygulanan, uzun
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MİLLÎ EĞİTİM BAKANLIĞI ORTAÖĞRETİM KURUMLARI YÖNETMELİĞİ](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## MİLLÎ EĞİTİM BAKANLIĞI ORTAÖĞRETİM KURUMLARI YÖNETMELİĞİ
+MİLLÎ EĞİTİM BAKANLIĞI ORTAÖĞRETİM KURUMLARI YÖNETMELİĞİ 1) 7/9/ RG 2) 19/2/ RG 3) 21/6/ RG 4) 13/9/ RG b) Atölye: Mesleki ve teknik eğitim programlarının gerektirdiği uygulamalı derslerde bilgi, beceri ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇİMSA ÇİMENTO SANAYİ VE TİCARET ANONİM ŞİRKETİ 01 .](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## ÇİMSA ÇİMENTO SANAYİ VE TİCARET ANONİM ŞİRKETİ 01 .
+ÇİMSA ÇİMENTO SANAYİ VE TİCARET A.Ş. SERİ:XI NO:29 SAYILI TEBLİĞE İSTİNADEN HAZIRLANMIŞ YÖNETİM KURULU FAALİYET RAPORU 3 Levent Demirağ Üye 1959 yılında Erzurum'da doğan Levent Demirağ, 1980 yılında Ankara Üniversitesi Siyasal 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇİMSA ÇİMENTO SANAYİ VE TİCARET ANONİM ŞİRKETİ 01 OCAK .](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## ÇİMSA ÇİMENTO SANAYİ VE TİCARET ANONİM ŞİRKETİ 01 OCAK .
+YÖNETİM KURULU FAALİYET RAPORU 5 2'nci Tesis Üretim Hattı Hem gri hem de beyaz klinker üretilebilen 3,6 m. çapında 49 metre uzunluğundaki 2'nci tesis döner fırını 1989 yılı Aralık ayında devreye alınmıştır. Tesis, kırıcılar ile ön homojenizasyon sistemleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![YAPI BİLGİ SİSTEMİ (BIM) İLE MEKANİK TESİSAT PROJELERİ](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## YAPI BİLGİ SİSTEMİ (BIM) İLE MEKANİK TESİSAT PROJELERİ
+1385 _____ 12. ULUSAL TESĠSAT MÜHENDĠSLĠĞĠ KONGRESĠ – 8-11 NĠSAN 2015/ĠZMĠR Binalarda Enerji Performansı Sempozyumu Bildirisi 2. YAPI BİLGİ SİSTEMİNİN FAYDALARI BIM sadece ilerlemiĢ bir teknoloji değildir, BIM yaklaĢımıyla proje
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇİMSA ÇİMENTO SANAYİ VE TİCARET ANONİM ŞİRKETİ 01 .](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## ÇİMSA ÇİMENTO SANAYİ VE TİCARET ANONİM ŞİRKETİ 01 .
+eklenerek modernize edilmiştir. Tesiste, iki adet kırıcı, bir adet ön homojenizasyon tesisi, iki adet bilyeli hammadde değirmeni, iki adet farin silosu ve iki adet kapalı klinker stok holü mevcuttur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Altın Madenciliğinde Siyanür Kullanımının Çevresel .](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Altın Madenciliğinde Siyanür Kullanımının Çevresel .
+İki un fabrikası ve bir çekirdek işleme tesisi ile yan yana olan altın madenine 2016 yılında Çevre ve Şehircilik Bakanlığı tarafından verilen ÇED olumlu belgesine karşı .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Biyokütle Enerji Santralleri İşletmelerinin .](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Biyokütle Enerji Santralleri İşletmelerinin .
+Bir kömür santralini rahatsız eden toz aynı zamanda bir biyokütle tesisine de girer, ancak ek bir sorun vardır. Bilinmeyen bir yakıt kaynağı sebebiyle oluşan toz, en iyi yangın söndürücü belirlemeyi zorlaştırarak deneyimli bir yangın koruma yüklenicisine ihtiyaç gerektirmektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Küresel İlkeler Sözleşmesi 3. İlerleme Bildirimi](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Küresel İlkeler Sözleşmesi 3. İlerleme Bildirimi
+Proje sonucunda "ağaçlandırma" şenliği gerçekleştirilerek 35 adet ağaç dikildi. l Egekent Öğrenim Birimi'nde atık toplama kutusu yapımı ile ilgili bir proje geliştirildi. Proje bitiminde yapılan sergide çevre ile ilgili drama çalışmaları gerçekleştirildi ve
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ADANA ÇİMENTO SANAYİİ TÜRK A.Ş](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## ADANA ÇİMENTO SANAYİİ TÜRK A.Ş
+YÖNETİM KURULU YILLIK FAALİYET RAPORU ~ 6 ~ 1.000.000 ton/yıl Cüruflu çimento öğütme kapasiteli İskenderun Öğütme ve Paketleme Tesisi ile 5 adet Hazır Beton tesisi 1 Mayıs 2007 tarihi itibariyle Adana Çimento Sanayi T.A.Ş. bünyesine
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Facility Review of Kırka Boron Works, ETI Mine .](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## (PDF) Facility Review of Kırka Boron Works, ETI Mine .
+kırıcı çıkışı cevher, skraberlere beslenmektedir. A yıkama ünitesinde her biri 6, 5 m 3 hacimli 6 adet birbirine seri bağlantılı çalışan skraber, B
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![NORTH MARMARA MOTORWAY PROJECT (European part: kınalı .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## NORTH MARMARA MOTORWAY PROJECT (European part: kınalı .
+Makine Tesisi 500 ton/sa. Kırıcı 400 ton/sa. 7+000 3Beton Tesisi 90 m/sa. 147+500 Beton Tesisi 90 m3/sa. Kırıcı 400 ton/sa. 4+500 Demirciler Şantiye Sahası 29 ha Kesim 5 164+900 Kırıcı 600 ton/sa. 165+100 Asfalt Tesisi 320 ton/sa.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

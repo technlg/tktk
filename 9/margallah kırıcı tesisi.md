@@ -1,0 +1,41 @@
+# margallah kırıcı tesisi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tesisimiz | Kemahlioğlu Plastik Ambalaj Sanayi ve Ticaret .](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Tesisimiz | Kemahlioğlu Plastik Ambalaj Sanayi ve Ticaret .
+Tesisimiz | Kemahlioğlu Plastik Ambalaj Sanayi ve Ticaret A.Ş.  
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tesis](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Tesis
+T.C. Sağlık Bakanlığı İstanbul İl Sağlık Müdürlüğü Sağlık Bilimleri Üniversitesi İstanbul Mehmet Akif Ersoy Göğüs Kalp ve Damar Cerrahisi Eğitim ve Araştırma Hastanesi İyi Klinik Uygulama Ve Araştırma Merkezi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MARMARA ÜNİVERSİTESİ iLAHiYAT F AKÜL TESİ DERGI I](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## MARMARA ÜNİVERSİTESİ iLAHiYAT F AKÜL TESİ DERGI I
+210 M.Ü. iLAHiYAT FAKÜLTESi DERGiSi Böylece şu durum ortaya çıkıyor ki, Anadolu'da Moğol (Tatar) işga.li d~vam etseydi, Osmanlİ Devleti veya başka bir güçlü siyası kuruluş or taya çıkmasaydı, Anadolu'da yaşayanlar da Karadeniz'in kuzeyinde oldu ğu gibi, başlarındaki Moğol haned~nlardan dolayı, büyük bir ihtimalle
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MARMARA ILAIDYAT FAKULTESI](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## MARMARA ILAIDYAT FAKULTESI
+Period: In this paper, It has been attempted to examine the role of the ulama in paving Reza Khan 's road to power, and the relationship between the state and the religious community before and after the establishment of the Pahlavi dynasty.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MARMARA ÜNiVERSiTESi iLAHiYAT FAKÜLTESi . . DERGISI](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## MARMARA ÜNiVERSiTESi iLAHiYAT FAKÜLTESi . . DERGISI
+486 M.Ü. İLAHİYAT FAKÜLTESİ DERGİBİ ri gerektiğini açıkça ortaya koydu.Hamza'ya göre başlatılan bu hareket, bütün dini hakikatleri en geniş manasıyla ihtiva eden, müstakil bir sis tem hüviyetindedir. Bu sistem nadiren el-Hakimiyye ismi ile anılırsa 4a, en yaygın olan .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tesisler - TARIM KREDİ BİRLİK A.Ş.](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Tesisler - TARIM KREDİ BİRLİK A.Ş.
+Ayçiçek Yağı Üretim Tesisi Kahta Şube - Kuruyemiş Tesisi Bafra Şubesi - Çeltik İşleme Tesisi Web sitelerimizin tasarımını ve performansını optimize etmek amacıyla tanımlama bilgileri kullanılmaktadır. Web sitesindeki ziyaretinize devam ederek 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tesisler](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Tesisler
+Tesisler. KÖMÜR ZENGİNLEŞTİRME TESİSLERİ. İki adet kömür yıkama-zenginleştirme tesisimiz olup, birinci yıkama tesisimiz 200 TON/SAAT besleme kapasitesine ve ikinci yıkama tesisimiz 125 TON/SAAT besleme kapasitesine sahiptir. KURUTMA TESİSLERİ. 3 adet kurutma tesisi olup, herbirinin kapasitesi 40 TON / SAAT'tir Karma 1 deki kurutmalar 80 TON / 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tesis Kurutuyor, Üretici Kazanıyor - MARMARİS MANŞET](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Tesis Kurutuyor, Üretici Kazanıyor - MARMARİS MANŞET
+Muğla Büyükşehir Belediyesi Meyve Sebze Kurutma Tesisi bugüne kadar 47 üreticinin 40 bin 221 kg ürününü kurutarak katma değeri yüksek ürün elde edilmesini sağladı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BUSKİ Genel Müdürlüğü - Çamur Yakma Tesisi](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## BUSKİ Genel Müdürlüğü - Çamur Yakma Tesisi
+Kurumumuza ait mevcut ve planlanan atıksu arıtma tesislerinden çıkan/çıkacak arıtma çamurlarının nihai bertarafı için Doğu Atıksu Arıtma Tesisinde yapılan Çamur Yakma Tesisi yapım çalışmaları 2017 Nisan ayı itibariyle tamamlanmış olup; tesis devreye alınmış
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İrtifak Hakkı Tesis İlanı.tr](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## İrtifak Hakkı Tesis İlanı.tr
+İrtifak Hakkı Tesis İlanı. ANA SAYFA. Bilgi ve Duyurular. İrtifak Hakkı Tesis İlanı. MENU. TEKNİK DESTEK NİHAİ RAPOR DOKÜMANLARI-02.11.2010. 26 Mayıs 2011 Kalkınma Kurulu Sonuç Bildirgesi. 12 HAZİRAN 2014 KALKINMA KURULU SONUÇ BİLDİRGESİ. 2015 DOĞRUDAN FALİYET DESTEĞİ PROGRAM SONUÇLARI.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

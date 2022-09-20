@@ -1,0 +1,157 @@
+# konik kırıcı i̇ş ofisi endustriyel
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İletişim - Pi Makina](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## İletişim - Pi Makina
+Pi Makina iletişim formunu kullanarak düşüncelerinizi bize aktarabilirsiniz. İstek, şikayet ya da bize iletmek istediğiniz mesajları aşağıdaki form ile ilgili birime iletebilirsiniz. Size .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Satılık konik kırıcı, ikinci el konik kırıcı](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Satılık konik kırıcı, ikinci el konik kırıcı
+Konik kırıcılar: 418 teklif, satılık yeni ve ikinci el konik kırıcılar ilanlarını arayın ve bulun — Autoline Türkiye
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konik Kırıcılar-MEKA Kırma Eleme Teknolojileri](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Konik Kırıcılar-MEKA Kırma Eleme Teknolojileri
+KONİK KIRICI. Konik Kırıcılar uzun süredir primer, sekonder ve tersiyer kırıcı olarak kullanılmaktadır. Agraga ve madencilik sanayiinde sert ve aşındırıcı malzeme kırmak için kullanılır. Konik Kırıcılar özellikle dere taşı, bazalt ve granit kırmakta kullanılmaktadır, ayrıca demir, krom, magnezit ve bakır madenlerindeki sert ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Catpower Kg Kırıcı 1240 W, - Emeksan Online](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Catpower Kg Kırıcı 1240 W, - Emeksan Online
+Uygun fiyatı ile Catpower Kg Kırıcı 1240 W, sizler için Emeksan Online ile bir tık uzağınızda. Kırıcılar ürünleri ile Catpower Kg Kırıcı 1240 W, ürünü burada.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Seramik Pistonlar - Insane Visions](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Seramik Pistonlar - Insane Visions
+Endustriyel ve Otomasyon Röleleri Mennekes Endüstriyel Fişler ve Pirizler Entes Ürünleri Alçak Gerilim Akım Trafolar  FABU Havalı Kırıcı Tabanca Grubu ve Makinalar ı İnşaat Malzemeleri İntegral Matkaplar Kaynak ve Plazma Kesme Makineleri Kompresörler 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Satılık konik kırıcı, ikinci el konik kırıcı](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Satılık konik kırıcı, ikinci el konik kırıcı
+Konik kırıcılar: 418 teklif, satılık yeni ve ikinci el konik kırıcılar ilanlarını arayın ve bulun — Autoline Türkiye Autoline, ticari araçlar, kamyonlar, inşaat makineleri, zırai araçlar ve yedek parçaların satışına yönelik çevrimiçi pazar yeridir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Havalı Kırıcı Tabanca Uçları](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Havalı Kırıcı Tabanca Uçları
+Endustriyel Tip Paletli Pompalar Hidrolik Dişli Pompalar Pnömatik Rekorlar-Otomatik Bağlantı Elemanları Hidrolik Valfler Monoblok Kumanda Kolları(Badestnost) Standart Basınç Transmitterleri Endüstriyel Basınç Transmitterleri Fark Basınç Transmitterleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konkasör Operatörü Kırma Esan Eczacıbaşı Endüstriyel iş .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Konkasör Operatörü Kırma Esan Eczacıbaşı Endüstriyel iş .
+İş ilanı Başvuru Bilgileri Balıkesir Balya'Da Bulunan Maden İşletmemizin "Cevher Kırma" Bölümünde Çalışmak Üzere; Konkasör Operatörü (Kırma-Eleme) En Az Lise Mezunu Olan, Çeneli Kırıcı – Konik Kırıcı Ve Eleklerin Bir Arada Bulunduğu Otomasyonlu Kırma Tesislerinde Çalışmış, En Az 3 Yıl Deneyimli, Vardiyalı Çalışabilecek, Askerliğini Yapmış, 35 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Durali Akın - kırma eleme tesizleri konik kırıcılar .](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Durali Akın - kırma eleme tesizleri konik kırıcılar .
+Emekli makine teknisyeni süpervizör Kırma eleme tesizleri konik kırıcılar dikmilli kırıcılara servis ve bakım yapılır Türkiye 422 bağlantı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hırdavat, İş Güvenliği ve Tüm Elektronik Ekipmanlar - .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Hırdavat, İş Güvenliği ve Tüm Elektronik Ekipmanlar - .
+Uygun fiyatı ile Catpower .8 Kg Max.kırıcı Delici,matkap, sizler için Emeksan Online ile bir tık uzağınızda. Delici Kırıcılar ürünleri ile Catpower .8 Kg Max.kırıcı Delici
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![FABU Havalı Kırıcı Tabanca Grubu ve Makinaları](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## FABU Havalı Kırıcı Tabanca Grubu ve Makinaları
+F.HKT4 FABU 4.6 kg boy 355 mm Darbe sayısı 2800 dv/dk Havalı Kırıcı Tabanca Yaptığı İşler ; 1 kg'dan 40 kg'a kadar değişen ağırlıklardaki FABU Havalı Kırıcı Taba.. $0,00 Vergiler Hariç: $0,00
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kensan Makina](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Kensan Makina
+KONİK KIRICI (KC) Günümüzde devam etmekte olan madencilik faaliyetlerinde kısa sürede aşınmalar,aşınan parçaların değişmesi için geçen süre,günlük yağlama maliyeti ve süresi,günlük duraksamalar,aylık tamire ayırılan gün sayısı gibi faktörler üretim miktarlarını önemli oranlarda düşürürken maliyetleri direk olarak arttırmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endüstriyel Temizlik Ürünleri](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Endüstriyel Temizlik Ürünleri
+Tüm Türkiye'ye hırdavat, nalbur, el aletleri, elektirikli el aletleri, bahçe malzemeleri, inşaat ve yapı malzemeleri ürünleri satan yapı marketi. Akülü El Aletleri Akülü Darbesiz Matkaplar Akülü Darbeli Matkaplar Akülü Darbesiz Vidalamalar Akülü Köşe Matkapları Akülü
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ERSEL Ağır Makine San. ve Tic. A.Ş.](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## ERSEL Ağır Makine San. ve Tic. A.Ş.
+İş Makinası Parçaları Kırıcı Parçalar ı Vinç Tekerleri Şaftlar Rollerlar Genel Döküm Makina Parçaları İLETİŞİM ERSEL AĞIR MAKİNE SANAYİ ve TİCARET A.Ş. TOSB Otomotiv Yan Sanayi O.S.B. 1.Cadde No:24/2 41420 Çayırova / KOCAELİ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endüstriyel Spreyler](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Endüstriyel Spreyler
+Hafif İş Makinaları Zımpara Makinaları Kırıcı / Delici Matkaplar İş Güvenliği Bağlantı Elemanlar ı Pul ve Rondela Civatalar Segmanlar Somunlar Hırdavat Malzemeleri Kategoriler Bahco İzeltaş Makina Takım Hitachi KL Makina 3M Blog Yardım İçin (0539) 513 26 19 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konik Kırıcı Fiyatları Modelleri | makinaturkiye](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Konik Kırıcı Fiyatları Modelleri | makinaturkiye
+Konik Kırıcı. Kategoriler. İş Makinaları. Maden Makinaları (626) Kırıcı (217) Konik Kırıcı (0) Marka Tümü. Adres. Kelime ile filtrele.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pi Makina İstanbul Ofisini Açtı - Pi Makina](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Pi Makina İstanbul Ofisini Açtı - Pi Makina
+Beton Santrali, Kule Vinç, Beton Pompası, Kırma Eleme Tesisleri ve İş Makinaları sektöründe yarım asırlık tecrübe ile Türkiye'nin en büyük makina üreticisi. Yurtiçi ve yurtdışında gün geçtikçe daha fazla atılımda bulunan Pİ MAKİNA İstanbul pazarındaki hakimiyetini 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PGR - Polat Group Redüktör - PH/PB Serisi](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## PGR - Polat Group Redüktör - PH/PB Serisi
+PH/PB Serisi. Endüstriyel tip redüktörler özellikle ağır çalışma şartları altında hizmet sunan, sağlam gövdeli, 480000 Nm ye kadar yüksek momentleri taşıyan, sessiz çalışma ve bakım kolaylıkları ile ön plana çıkan redüktörlerdir. Giriş ve çıkışı paralel eksenli veya eksen açısı 90° olan helisel - .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İş Makineleri Simülatörleri](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## İş Makineleri Simülatörleri
+İş makineleri simülatörleri, inşaa operasyonlarında yoğun olarak kullanılan araçların operatör eğitimlerine yönelik olarak geliştirilmektedir. Araçların çeşitli zeminlerdeki ve çalışma ortamlarındaki davranışları yüksek sadakat seviyesinde modellenmekte ve simülatörler üzerinde gerçek araç donanımları kullanılmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mobil Mobilgear 600 XP 320 - 208 Litre Varil - .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Mobil Mobilgear 600 XP 320 - 208 Litre Varil - .
+ve konik dişliler için önerilir. Özellikle, ağır veya darbeli yükler altında çalışan dişli takımları için uygundurlar.  Petrol Ofisi Gravis M 320 200 Lt Sepete Ekle Mobil Mobilgear 600 XP 150 208 Sepete Ekle Mobil Mobilgear 600 XP 220 208
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Otomotiv - Pi Makina](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Otomotiv - Pi Makina
+Pi Makina 1990 yılından bu yana Türk otomotiv sektörüne yaptığı katkılarla adından iftiharla söz ettirmektedir. Firmamız yüksek yerli tasarım ve mühendislik çalışmaları ile üretilen, birçok amaca uygun yerli kamyon, kamyonet ve personel taşıyıcılar ile Türkiye'nin 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MADEN SEKTÖRÜNDE BAŞARILI BİR YERLİLEŞTİRME .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## MADEN SEKTÖRÜNDE BAŞARILI BİR YERLİLEŞTİRME .
+Projenin Amac ı : Bu projenin temel başlatılma gerekçesi; ülkemizde maden ve kırma-eleme sektörlerinde kritik ve stratejik öneme sahip ve yılda ortalama 100 Milyon TL' lik ithalata sebep olan "Konik Kırıcı" nın ülkemizde üretilerek bu teknolojinin yerlileştirilmesi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırıcı Tabanca ve Yedekparçaları](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Kırıcı Tabanca ve Yedekparçaları
+Endustriyel Tip Paletli Pompalar Hidrolik Dişli Pompalar Pnömatik Rekorlar-Otomatik Bağlantı Elemanları Hidrolik Valfler Monoblok Kumanda Kolları(Badestnost) Standart Basınç Transmitterleri Endüstriyel Basınç Transmitterleri Fark Basınç Transmitterleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Oerlikon - Sert Dolgu - Özlü Kaynak Telleri](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Oerlikon - Sert Dolgu - Özlü Kaynak Telleri
+Karbonlu çelik veya %14 manganlı çeliken yapılmış parçaların yenilenmesi ve sert dolgu kaynağı için kullanılan gaz korumasız sert dolgu özlü kaynak telidir. Kaynak metalinin basınca ve darbeli ortamlara direnci çok yüksektir. Yüksek çatlak direnci sayesinde çatlak 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ar-Ge - Pi Makina](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Ar-Ge - Pi Makina
+Pi Makina olarak Ar- Ge departmanımıza yaptığımız yatırım her yıl daha fazla artmaktadır. Yenilikçi teknolojiler ilkesi doğrultusunda ve gelişen teknoloji sayesinde makinalarımızdaki gelişim gün be gün devam etmektedir. Tüm bu özverili çalışmalar ve makina 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konik Kırıcı - YouTube](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Konik Kırıcı - YouTube
+9/3/2013· The next video is starting stop
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endüstriyel Spreyler](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Endüstriyel Spreyler
+Kredi kartına taksit, güvenli alışveriş, cazip, ucuz ve uygun fiyat avantajı ile en iyi marka Endüstriyel Spreyler 'da. Akülü El Aletleri Akülü Darbesiz Matkaplar Akülü Darbeli Matkaplar Akülü Darbesiz Vidalamalar Akülü Köşe Matkapları
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MEKA Irak'ta Sürekli Yükseliyor](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## MEKA Irak'ta Sürekli Yükseliyor
+Erbil ve Duhok'da iki ofisi ve 155'i geçen beton santrali ile Meka, Irak'ta en çok beton santrali üreten ve işletime alan firma olma unvanını kazanmıştır. Orta Doğu, küresel politika ve ekonomi alanında anahtar bir rol oynamaktadır. Dünya çapında petrol ve doğal gaz 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BLP400S KAZIK KIRICI](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## BLP400S KAZIK KIRICI
+ENDUSTRİYEL KEPÇE Endüstriyel çeneli kepçe, işlenemeyen malzemelerin kolay ve güvenli bir şekilde taşınması için yükü tutmak,taşımak, kaldırmak, ve istiflemek için tasarlanmıştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endüstriyelmalzeme](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Endüstriyelmalzeme
+İş Güvenliği Ürünleri Kablo Soyma ve Kesme Aparatları Elektronik Malzemeler Çevirici PCB Kartları Potansiyometreler TB6560,CNC,Kontrol Kartı Eksen Kontrol Kartı Step Motor Sürücü Kartı Transistörler Entegreler Varistörler Kristaller Diot çeşitleri PTC,Ler
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endüstriyel Buzdolabı Modelleri ve Fiyatı](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Endüstriyel Buzdolabı Modelleri ve Fiyatı
+Birçok farklı endüstriyel buzdolapları modellerini inceleyin ve ihtiyacınız olanı Mutfakyeri' da bulun. Frenox Dik Tip Buzdolabı Monolok Gizli Soğutucu Cam Kapılı 10 22 14081
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endüstriyel Dijital Baskı Makineları](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Endüstriyel Dijital Baskı Makineları
+Elektropnömatik Kırıcı ve Deliciler Kırıcı Matkaplar Köşe Matkaplar Manyetik,Morskonik Matkaplar ve Aksesuarlar  (Konik) AHŞAP-DOLU BOŞ D İŞ B(Sürekli) BS(Sürekli Sessiz) C(Beton) D(Sulu Fayans Kesme) DT(Kesme ve Taşlama) EC(Elektrolize 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endustriyel ve Otomasyon Röleleri](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Endustriyel ve Otomasyon Röleleri
+Endustriyel ve Otomasyon Röleleri satanlar Makine Ayakları Bakalit,tutamak,Lastik Takoz ve Kaplinler EPDM Kaucuk Süngerler İzole Halı ve sehpalar Kaplin Lastik Çeşitleri Kaucuk Kolon Köşe Koruma ve .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ERSEL Ağır Makine San. ve Tic. A.Ş.](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## ERSEL Ağır Makine San. ve Tic. A.Ş.
+Konik Kırıcı Seperatör AG-SAG Değirmen Elek Pnömatik Taşıma Sistemleri Kurutucu Çeneli Kırıcı İLETİŞİM ERSEL AĞIR MAKİNE SANAYİ ve TİCARET A.Ş. TOSB Otomotiv Yan Sanayi O.S.B. 1.Cadde No:24/2 41420 Çayırova / KOCAELİ / TÜRKİYE 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hırdavat, İş Güvenliği ve Tüm Elektronik Ekipmanlar - .](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Hırdavat, İş Güvenliği ve Tüm Elektronik Ekipmanlar - .
+Uygun fiyatı ile Catpower-7913- 11 Kg Max Kırıcı Delici 1500 W sizler için Emeksan Online ile bir tık uzağınızda. Kırıcılar ürünleri ile Catpower-7913- 11 Kg Max Kırıcı Delici 1500
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PO Endüstriyel Yağlar](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## PO Endüstriyel Yağlar
+Sanayide kullanılan,petrol ofisi markasına ait Endüstriyel yağlar, gres yağlar ve Sanayi yağlarını mağazamız' da uygun fiyata bulabilirsiniz Telefon : 0212 875 53 95 E-Posta : info@candaroglurulman
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konik Kırıcı - Pi Makina](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Konik Kırıcı - Pi Makina
+Konik kırıcılar granit, bazalt ve andezit gibi sert ve aşındırıcı dere ve ocak malzemelerini kırmak için tasarlanmıştır. Sekonder ve tersiyer kırıcı olarak kullanılmaktadır. Konik kırıcıların çalışma prensibi malzemeleri sıkıştırma, kesme ve bükme etkisiyle kırmaktır. Malzemeyi sıkıştırarak kırdıkları için düşük toz ve aşınma oranları sunmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ERSEL Ağır Makine San. ve Tic. A.Ş.](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## ERSEL Ağır Makine San. ve Tic. A.Ş.
+İLETİŞİM ERSEL AĞIR MAKİNE SANAYİ ve TİCARET A.Ş. TOSB Otomotiv Yan Sanayi O.S.B. 1.Cadde No:24/2 41420 Çayırova / KOCAELİ / TÜRKİYE Telefon: +90 262 658 13 40 / Faks: +90 262 658 05 27 / E-mail: info@ersel
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kırıcı Tabanca ve Yedekparçaları - .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Kırıcı Tabanca ve Yedekparçaları - .
+Kırıcı Tabanca ve Yedekparçaları satanlar AC-DC Motor ve AC-DC Motor Sürücüleri 3 Faz FUJİ Hız Kontrol Cihazları 3 faz Mıtsubıshı Hız Kontrol Cihazları 3 faz Schneider Electric Hız Kontrol Cihazları
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

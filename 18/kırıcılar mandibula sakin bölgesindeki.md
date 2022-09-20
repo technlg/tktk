@@ -1,0 +1,45 @@
+# kırıcılar mandibula sakin bölgesindeki
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Maksilla ile Mandibulanın Sagittal Yön İlişkisini Gösteren Farklı .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Maksilla ile Mandibulanın Sagittal Yön İlişkisini Gösteren Farklı .
+290 Sagittal yön ölçümlerinin karşılaştırılması Büyükçavuş ve Kale Maksilla ile mandibulanın sagittal yön ilişkisini gösteren farklı sefalometrik parametrelerin güvenilirlik ve tutarlılık açısından karşılaştırıldığı birçok çalışma mevcuttur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Küçük Stajlar Ders Notları pdf indir - Halk Sağlığı, KBB, .](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Küçük Stajlar Ders Notları pdf indir - Halk Sağlığı, KBB, .
+EEG dalgaları frekanslarına göre dörde ayrılır; 45 􀂃 Alfa dalgaları (8-13 /sn): Uyanık ve sakin halde bulunan 7 yaşından büyük çocuklar ve erişkinlerdeki temel dalgalardır (Şekil 2 .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mandibula kondil kırıkları ve tedavi yaklaşımları](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Mandibula kondil kırıkları ve tedavi yaklaşımları
+Mandibula yüzün en büyük ve kuvvetli kemiği olmasına rağmen, konumu ve çıkıntılı yapısından dolayı yüz travmaları sonucunda en sık kırılan kemiktir.1 Mandibulada meydana gelen kırıklar içerisinde kondil kırıkları önemli bir yüzdeyi kapsamaktadır.2-4 5
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mandibula](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Mandibula
+Mandibula Şekil 1. Corpus mandibulae (Cor), caput mandibulae (Ca), collum mandibulae (Co) ve ramus mandibulae (R), angulus mandibulae (A) ve processus coronoideus (P). 22 (Şekil 1 ve 2). Ramus mandibulae'nin iç yüzünde bulunan deliğe 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) PEDİATRİK MANDİBULA KIRIKLARI - ResearchGate](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## (PDF) PEDİATRİK MANDİBULA KIRIKLARI - ResearchGate
+ 1 Kondil kırıklarının tedavisindeki amaç, kırık segmentlerinin redüksiyonu ve stabilizasyonun sağlanıp asimetri ve malokluzyon gelişmesinin önlenmesi ve mandibula 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mandibula (Alt Çene) Kırıkları Nedenleri ve Tedavisi - .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Mandibula (Alt Çene) Kırıkları Nedenleri ve Tedavisi - .
+Mandibula yüzün en büyük ve kuvvetli kemiği olmasına rağmen, yer aldığı bölge ve çıkıntılı yapısından dolayı yüz travmalarında en sık kırılan kemiktir. Mandibula kırıkları genellikle travmalar sonucu ve en sık kondiler, gövde ve simfiliz bölgelerinde oluşur. Mandibula 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![: Mandibula Kırıkları. Yaygın Mandibular Kırıklar 2021](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## : Mandibula Kırıkları. Yaygın Mandibular Kırıklar 2021
+Mandibula kırıkları sık görülür. 1 En sık kırılan bölgeler mandibula, kondil, açı, semphysis, ramus ve koronoid sürecinin gövdesidir. Yaralanmanın nedeni karayolu trafik kazaları, saldırı, düşme, endüstriyel yaralanmalar veya spor yaralanmaları olabilir, ancak her birinin göreceli sayısı ülkeler ve bölgeler arasında önemli ölçüde değişmektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Anterior mandibula çıkığında alternatif bir metot! - .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Anterior mandibula çıkığında alternatif bir metot! - .
+– Öncelikle hastayı supin pozisyonda veya başı biraz yüksek olacak şekilde sırt üstü yatırıyoruz. Sonrasında etkilenen taraftaki coronoid çıkıntıya başparmağımızı koyuyoruz diğer 4 parmakta mandibula arkasından kavrayarak çeneyi sabitliyoruz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Diş Hekimliği Fakültesi Öğrenci İşleri](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Diş Hekimliği Fakültesi Öğrenci İşleri
+Diş Hekimliği Fakültesi Öğrenci İşleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Klinik ve Radyolojik Değerlendirme 1 - Ankara Üniversitesi](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Klinik ve Radyolojik Değerlendirme 1 - Ankara Üniversitesi
+• Örneğin; mandibula corpusunda, mandibuler kanalın üst kısmında görülen lezyonların odontojenik kaynaklı olma olasılığı, kanalın alt kısmında lokalize olanlara oranla daha fazladır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MANDİBULA KIRIKLARINDA DİŞ ÇEKİMLİ VEYA ÇEKİMSİZ .](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## MANDİBULA KIRIKLARINDA DİŞ ÇEKİMLİ VEYA ÇEKİMSİZ .
+Mandibula kırıkları, maksillofasiyal bölgenin en çok görülen kırıklarından biri olarak kabul edilmektedir. Mandibula kırıklarının yaklaşık yarısından fazlası dişli bölgede oluşmaktadır ve buna bağlı olarak da dişli bölgede meydana gelen her kırık, kırık hattı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

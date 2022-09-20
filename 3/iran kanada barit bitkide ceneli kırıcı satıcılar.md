@@ -1,0 +1,53 @@
+# iran kanada barit bitkide ceneli kırıcı satıcılar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İran'da patlıcan yağdı iddiası tedirgin etti! - Son dakika .](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## İran'da patlıcan yağdı iddiası tedirgin etti! - Son dakika .
+Görüntüleri hazırlayan kişinin ise Kanada'da yaşayan İran asıllı dijital sanatçı Amin Taghipour olduğu ortaya çıktı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Terimleri Sözlüğü](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Madencilik Terimleri Sözlüğü
+BARİT, Baryum sulfatın (BaSO4) doğal zuhuru ve baryumun ana cevheri. Saf barit rombik kristalli, hidrotermal fazda oluşan bir minerâldir. Yaprak yaprak, sütunlu, kabuk .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yaptırımlar, İran kanatlı sektörünün büyümesini engelliyor](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Yaptırımlar, İran kanatlı sektörünün büyümesini engelliyor
+Yaptırımlar, İran kanatlı sektörünün büyümesini engelliyor ABD'nin, 2012 yılında İran'a uyguladığı ilk yaptırımlardan bu yana, kümes hayvanları pazarının sıkıntıları son bulmadı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İran'ı Gezmenin Maliyeti Nedir? Ucuz İran Gezisi - İran .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## İran'ı Gezmenin Maliyeti Nedir? Ucuz İran Gezisi - İran .
+Instagram – Facebook – YouTube. İran'ın Kaşan şehrinde kaldığım ev sahibinin yapmış olduğu para koleksiyonu. Tabii yine de, İran gezinizin ne kadar tutacağına dair bir tahminde bulunmamız gerekecek. Hem böylece yola çıkarken ihtiyacınız kadar para getirir ve fazlasını boş yere yanınızda taşımazsınız.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İran'ın Fırat'ın Doğusuna Bakışı | Ankara Kriz ve Siyaset .](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## İran'ın Fırat'ın Doğusuna Bakışı | Ankara Kriz ve Siyaset .
+İran, Rusya'ya nazaran PYD'den daha zor vazgeçeceğini kanıtladı. Nitekim Tahran açısından PYD ve ABD'nin varlığı, Türkiye destekli muhalif grupların bölgede etkinlik kurmasından yeğdi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İran adalet bakanlığı: Kanada'nın girişimi uluslararası .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## İran adalet bakanlığı: Kanada'nın girişimi uluslararası .
+17/9/2019· Adalet bakanlığı dün yayınladığı bildiride, Kanada'nın el konulan İran mal varlıkları ile ilgili illegal kararını kınarken, İran mallarının ivedilikle geri ödenmesi ve Kanada .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kanada'dan ABD'ye İran tepkisi: Bölgede gerilimi .](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Kanada'dan ABD'ye İran tepkisi: Bölgede gerilimi .
+Kanada Başbakanı Justin Trudeau, İran ordusu tarafından 'yanlışlıkla' düşürülen ve 63 Kanadalının hayatını kaybettiği uçak konusunda ABD'yi Ortadoğu'da gerilimi artırmakla suçladı. Gazze'de Toprak Günü'nün 45. yılında resim sergisi düzenlendi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İran'ın Krizleri, Dış Politika Mustafa Caner | Kriter Dergi](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## İran'ın Krizleri, Dış Politika Mustafa Caner | Kriter Dergi
+Ancak bir diğer sebep de İran'ın bölgesel dış politikasıdır. Arap Baharı sonrası Suriye'den Yemen'e bölgedeki tüm siyasi çalkantılarda rolü olan İran, uzun süredir mezkur bölgelere hem maddi hem de insani kaynak aktarımı yaparak zaten kötü durumda olan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İran'ın en büyük doğaltaş madeninden kareler - Sputnik .](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## İran'ın en büyük doğaltaş madeninden kareler - Sputnik .
+İran'ın en büyük doğaltaş madeninden kareler. Daha fazla ilginç fotoğraf Sputnik Türkiye sitesinde İran sadece petrol ve doğalgaz rezervleri bakımından değil, aynı zamanda birçok maden cevheri bakımından da zengin bir ülke. Şiraz kentine 230 km uzaklıkta yer alan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![eti_maden_terim_wozlugu.pdf - Scribd](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## eti_maden_terim_wozlugu.pdf - Scribd
+BARİT, Baryum sulfatın (BaSO4) doğal zuhuru ve baryumun ana cevheri. Saf barit rombik kristalli, hidrotermal fazda oluşan bir minerâldir. Yaprak yaprak, sütunlu, kabuk .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![iran cinko cevheri ekipman](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## iran cinko cevheri ekipman
+İRAN ÜLKE RAPORU Hazırlayan : Ümit ATEŞAĞAOĞLU Ankara - February, 2013 2. İRAN Temel Sosyal ve Ekonomik Göstergeler Temel Sosyal Göstergeler Yüzölçümü 1 648 195 km2 Yönetim Şekli İslâm Cumhuriyeti Nüfusu 55,8 milyon (1996 nüfus sayımı) 78,8 milyon (Temmuz 2012 tahmini) Resmi Dili Farsça Din % 98 Müslüman, % 2 Diğer.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İran itiraf etti, Kanada harekete geçti: Uluslararası çalışma .](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## İran itiraf etti, Kanada harekete geçti: Uluslararası çalışma .
+Kanada Dışişleri Bakanı François-Philippe Champagne yaptığı açıklamada, İran tarafından düşürülen yolcu uçağıyla ilgili tam ve kapsamlı bir soruşturma için İran rejimine baskı yapmak üzere uluslararası bir çalışma grubu oluşturulduğunu belirtti.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İran'dan Kanada'ya tavır - Güncel Haberler](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## İran'dan Kanada'ya tavır - Güncel Haberler
+4/4/2021· Kanada Dışişleri Bakanı Maxime Bernier, İran'ın, Kanada'nın Tahran Büyükelçisi John Mundy'yi sınır dışı etme kararı aldığını söyledi. Bernier, yaptığı açıklamada, İran 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

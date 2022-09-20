@@ -1,0 +1,61 @@
+# bilyalı değirmen 200 tph muşteri referans
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Temel bilgiler-Flipped Classroom Toleranslar](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Temel bilgiler-Flipped Classroom Toleranslar
+a) Diklik toleransı: referans düzlemiyatay delik düzlemi(A)'yadik olan iki paralel düzlemile sınırlanmıştır. b) Deliğinekseni, 0.1 aralıklıve yatay delik eksenine dik olan iki paralel düzlem arasındabulunmalıdır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bilyalı Değirmenler - Remas Redüktör ve Makina](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Bilyalı Değirmenler - Remas Redüktör ve Makina
+Bilyalı Değirmenler Genellikle 150 mikron altı ürün elde edilmek istenildiği zaman bilyalı değirmenler tercih edilmektedir. Değirmen içerisinde değirmen gövdesinin dönmesi ile birlikte çarpma ve sürtme kuvvetleri oluşmaktadır. Bilyalar noktasal temas yüzeyi ile bu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Türkiye Dergisi Sayı 53 by Madencilik .](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Madencilik Türkiye Dergisi Sayı 53 by Madencilik .
+Mayeb yayınlarının ilk ve ana yayını olan Madencilik Türkiye dergisinin 53. sayısıdır. Dergide madencilik sektörü ile ilgili güncel bilgiler yer almaktadır. Gelecek sayılarımızda 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Muhteşem Verimlilik İçin Modern bilyalı değirmen fiyatları .](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Muhteşem Verimlilik İçin Modern bilyalı değirmen fiyatları .
+Yeni bilyalı değirmen fiyat/çimento öğütme bilyalı değirmen makinesi/çimento değirmeni $200.000,00-$3.000.000,00 / Takım 1.0 Takım (Minimum Sipariş Miktarı)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![EĞİTİM KURULUŞLARI TARAFINDAN BİLDİRİLEN EĞİTİM .](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## EĞİTİM KURULUŞLARI TARAFINDAN BİLDİRİLEN EĞİTİM .
+EĞİTİM KURULUŞLARI TARAFINDAN BİLDİRİLEN EĞİTİM TAKVİMLERİ İLLER EĞİTİM KURUMLARI EĞİTİM TARİHİ İLETİŞİM BİLGİLERİ ADANA BAŞKENT ÜNİVERSİTESİ ÇUKUROVA ÜNİVERSİTESİ 08-11/11/2019 09-17/11/2019 TMMOB ÇEVRE
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GENEL BAKIŞ - RGP Balls](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## GENEL BAKIŞ - RGP Balls
+0,200 Mm'den 4,7625 Mm'ye Aisi 52100 Bilyalar Için Çaplar Ve Ambalajlar 5,000 Mm'den 11,509375 Mm'ye Aisi 52100 Bilyalar Için Çaplar Ve Ambalajlar 11,90625 Mm'den 20,000 Mm'ye Aisi 52100 Bilyalar Için Çaplar Ve Ambalajlar 20,6375 Mm'den 32,000 Mm 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Alibaba - Jbs Dayanıklı Taş Kırma Darbe Kırıcı,Satılık .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Alibaba - Jbs Dayanıklı Taş Kırma Darbe Kırıcı,Satılık .
+ISO onayı ile JBS dayanıklı taş kırma darbe kırıcı JBS PF darbeli kırıcı, granit, mermer ve kireçtaşı gibi 350 mpa'dan daha az basınç dayanımına sahip her türlü taş ve kayaların birincil, ikincil ve ince ezilmesi için kullanılır. PF darbeli kırıcı, yollar, demiryolları 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![3200-2Z Eğik Bilyalı Rulman](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## 3200-2Z Eğik Bilyalı Rulman
+3200-2Z Eğik Bilyalı Rulman 268,10 TL İNCELE SEPETE EKLE
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Alibaba - Jbs Dayanıklı Taş Kırma Darbe Kırıcı,Satılık .](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Alibaba - Jbs Dayanıklı Taş Kırma Darbe Kırıcı,Satılık .
+200 24 359130682975 > PF1320 Φ13202000 500 315 34 359135682975 > PF1520 Φ15002000 600 400 48  koni kırıcı, çift silindir kırıcı, çekiç kırıcı, bilyalı değirmen, titreşimli besleyici, titreşimli ekran, kum yapma makinesi ve kum bant 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![REFERANS DEĞERLER TALİMATI - Kâğıthane](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## REFERANS DEĞERLER TALİMATI - Kâğıthane
+REFERANS DEĞERLER TALİMATI DOK NO :PR.11/TL.01 YÜRÜRLÜK TARİHİ : 09.03.2013 REV NO :4 REVİZYON TARİHİ :20.03.2019 SAYFA NO :3/15 Sebze Soğuk Hava Depolama Rutubet Değeri TS 12268 % 75 – 90 Muayene sırasında gerekPR.11
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇED Raporu - Çevre ve Şehircilik Bakanlığı](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## ÇED Raporu - Çevre ve Şehircilik Bakanlığı
+VOTORANTİM ÇİMENTO. SAN. ve TİC. A.Ş. ÇİMENTO FABRİKASI VE MALZEME OCAKLARI KAPASİTE ARTIŞI PROJESİ SİVAS İLİ, MERKEZ İLÇESİ, YAPI MAHALLESİ ÇED RAPORU SİVAS, 2014 Serdar Mühendislik Çevre ve Atık Yönetimi İnşaat Taahhüt Sanayi ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BİLYALI DEĞİRMENLERDE HIZIN PERFORMANSA OLAN .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## BİLYALI DEĞİRMENLERDE HIZIN PERFORMANSA OLAN .
+Üretim proseslerinde bilyalı değirmen kullanan firmalar, ekipman performansını etkileyen değerleri optimize ederek maksimum verim sağlamak istemektedirler. Değirmen hızı; kapasite, ürün boyutu, enerji ve malzeme maliyetle-rini doğrudan etkileyen bir olgudur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MSE Bilyeli Değirmen - Labor](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## MSE Bilyeli Değirmen - Labor
+MSE Bilyeli Değirmen Bilyeli değirmen tozların boyutlarını küçülten aynı zamanda iyi bir dispersiyon sağlayan etkili bir yöntemdir. Çalışma prensibi, silindirik bir hazne içerisine yeterli miktarda bilye (öğütücü ortam), hammadde (toz, öğütülecek olan) ve gerekliliğe göre öğütme ortamı (su, etanol vb) koyulup, haznenin uygun hızda döndürülmesidir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![anahtar ve çilingir Firmaları, Firma Arama](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## anahtar ve çilingir Firmaları, Firma Arama
+Susam kavurma makinemiz SKT 200 SKT 400 ve SKT 600 ile sektördeki yüksek kapasite ve kalite, düşük üretim giderleri, kullanım kolaylığı ile dikkatleri üstüne çekmiş bir başarıdır. Firmamız Anahtar Teslim Susam, Tahin, Helva, Lokum üretim hatları kurmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Türkiye Dergisi Sayı 30 by Madencilik .](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Madencilik Türkiye Dergisi Sayı 30 by Madencilik .
+Bir patlama diski üreticisi olan BS&B firmasının, uygulamaya göre nikel bazlı alaşımlar (paslanmaz çelik, nikel 200, alaşım 400 ve alaşım 600) da dahil olmak üzere tantalyum, niyobyum 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

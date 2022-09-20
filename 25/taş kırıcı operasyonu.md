@@ -1,0 +1,133 @@
+# taş kırıcı operasyonu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler taş kırıcı makinelerle kazdıkları mağarada .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Teröristler taş kırıcı makinelerle kazdıkları mağarada .
+Teröristler taş kırıcı makinelerle kazdıkları mağarada öldürüld ü 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler, Taş Kırıcı Makinelerle Kazdıkları Mağarada .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Teröristler, Taş Kırıcı Makinelerle Kazdıkları Mağarada .
+Şırnak'taki Kato Dağı zirvesinde, taş kırıcı makinelerle kazdıkları mağara teröristlere mezar oldu. Operasyonda 5 terörist öldürüldü. Şırnak 'ın Beytüşşebap ilçesinde öldürülen 5 teröristin saklandığı mağaraya giren güvenlik kuvvetleri inceleme yaptı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler taş kırıcı makinelerle kazdıkları mağarada .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Teröristler taş kırıcı makinelerle kazdıkları mağarada .
+Yapılan incelemelerde teröristlerin taş kırıcı ve delici makinelerle Kato Dağı zirvesinde mağara kazdıkları ortaya çıktı. Şırnak'ın Beytüşşebap ilçesinde öldürülen 5 teröristin saklandığı mağaraya giren güvenlik kuvvetleri inceleme yaptı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler Taş Kırıcı Makinelerle Kazdıkları Mağarada .](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Teröristler Taş Kırıcı Makinelerle Kazdıkları Mağarada .
+Yapılan incelemelerde teröristlerin taş kırıcı ve delici makinelerle Kato Dağı zirvesinde mağara kazdıkları ortaya çıktı. Edinilen bilgiye göre, Şırnak'ın Beytüşşebap ilçesi Kato Dağı'nda icra edilen 'Şehit Tümgeneral Aydoğan Aydın ' operasyonunda 5 terörist etkisiz hale getirilmişti.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler taş kırıcı makinelerle kazdıkları mağarada .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Teröristler taş kırıcı makinelerle kazdıkları mağarada .
+Teröristler taş kırıcı makinelerle kazdıkları mağarada öldürüldü
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![5 terörist taş kırıcı makinelerle kazdıkları mağarada .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## 5 terörist taş kırıcı makinelerle kazdıkları mağarada .
+Yapılan incelemelerde teröristlerin taş kırıcı ve delici makinelerle Kato Dağı zirvesinde mağara kazdıkları ortaya çıktı. Haberin detayları için tıklayınız İSTANBUL 9°C / 6°C
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler taş kırıcı makinelerle kazdıkları mağarada .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Teröristler taş kırıcı makinelerle kazdıkları mağarada .
+Teröristler taş kırıcı makinelerle kazdıkları mağarada öldürüld ü Teröristler taş kırıcı makinelerle kazdıkları mağarada öldürüldü 11 Ağustos 2017 Cuma - 11:16 | Son 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler taş kırıcı makinelerle kazdıkları mağarada .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Teröristler taş kırıcı makinelerle kazdıkları mağarada .
+Teröristler taş kırıcı makinelerle kazdıkları mağarada öldürüld ü Teröristler taş kırıcı makinelerle kazdıkları mağarada öldürüldü Şırnak'ın Beytüşşebap ilçesinde öldürülen 5 teröristin saklandığı mağaraya giren güvenlik kuvvetleri inceleme yaptı. Yapılan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">!["Osmanlı Gibisiniz.!" - İsmet TAŞ](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## "Osmanlı Gibisiniz.!" - İsmet TAŞ
+Birbirimize manasız ve anlamsız bir şekilde kırıcı olmaktan kaçınalım. Hak etmediğimiz davranışlarda ve suçlamalarda bulunmayalım. Unutmayalım! Bizim bizden başka dostumuz yok! İsmet Taş – İç Anadolu Birliği Genel Başkanı Dünya Muhabirler Birliği
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PKK terör örgütün ait 2 sığınak ve çok sayıda malzeme .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## PKK terör örgütün ait 2 sığınak ve çok sayıda malzeme .
+29/9/2018· imha edilen malzemeler-ele geçirilen malzemeler (fotoğraf) ( VAN ) VAN - Van'ın Gürpınar ilçesi kırsalında PKK terör örgütüne ait 2 sığınak ve 10 bidon benzin, 2 adet büyük boy tüp, 2 adet jeneratör, 5 bidon jeneratör yağı, 1 adet akü, 1 adet güneş paneli, 1 adet büyük telsiz, 1 adet büyük boy taş kırıcı ile çok sayıda yaşam malzemesi imha edildi. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Üreterorenoskopi - Üroloji - Özel Sağlık Hastanesi İzmir](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Üreterorenoskopi - Üroloji - Özel Sağlık Hastanesi İzmir
+Üreterorenoskopi operasyonunda taşın olduğu bölgeye ulaşıldıktan sonra bu taşın lazer ya da taş kırıcı litotriptör ile kırılması sağlanır. Kırılan taş parçalarının dışarı alınması gerçekleştirilir ve bu sırada aktif olarak kateterlerden yararlanılır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Böbrek ve idrar yolu taş hastalıkları - Bursatv](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Böbrek ve idrar yolu taş hastalıkları - Bursatv
+Rijid yani sert üreteroskoplar ile dış idrar yolu veya mesane geçilip üreten içine girilerek taşlar Holmium lazer veya pnömotik taş kırıcı ile kırılarak tedavi edilir. Bu üreteroskoplar ile alt ve orta üreterdeki taşlar tedavi edilebilirler.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler taş kırıcı makinelerle kazdıkları mağarada .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Teröristler taş kırıcı makinelerle kazdıkları mağarada .
+Yapılan incelemelerde teröristlerin taş kırıcı ve delici makinelerle Kato Dağı zirvesinde mağara kazdıkları ortaya çıktı. 02 Nisan 2021 Cuma Altın 451,911 %0,07 BIST 1.427 %2,51 Dolar 8,1236 %1,50 Euro 9,5626 %1,33 6 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Güvenlik güçlerini şoke eden PKK'lı mağarası - Son .](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Güvenlik güçlerini şoke eden PKK'lı mağarası - Son .
+Teröristlerin taş kırıcı ve kazıcılarla kazdığı mağarayı detaylı inceleyen güvenlik kuvvetlerinin ölü olarak mağaradan çıkarılan teröristlerin ardından mağarayı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler, Taş Kırıcı Makinelerle Kazdıkları Mağarada .](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Teröristler, Taş Kırıcı Makinelerle Kazdıkları Mağarada .
+Şırnak'taki Kato Dağı zirvesinde, taş kırıcı makinelerle kazdıkları mağara teröristlere mezar oldu. Operasyonda 5 terörist öldürüldü.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Taş ocağında toprak kayması - Son Dakika Haberler](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Taş ocağında toprak kayması - Son Dakika Haberler
+29/3/2021· Edinilen bilgiye göre, Bayatbademleri köyü yakınlarındaki özel bir firma tarafından işletilen taş ocağında, taş kırıcı iş makinelerinin çalıştığı sırada toprak kayması 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler taş kırıcı makinelerle kazdıkları mağarada .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Teröristler taş kırıcı makinelerle kazdıkları mağarada .
+Şırnak'ın Beytüşşebap ilçesinde öldürülen 5 teröristin saklandığı mağaraya giren güvenlik kuvvetleri inceleme yaptı. Yapılan incelemelerde teröristlerin taş kırıcı ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler kazdıkları mağarada öldürüldü! - Video 7](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Teröristler kazdıkları mağarada öldürüldü! - Video 7
+Yapılan incelemelerde teröristlerin taş kırıcı ve delici makinelerle Kato Dağı zirvesinde mağara kazdıkları ortaya çıktı. Edinilen bilgiye göre, Şırnak'ın Beytüşşebap ilçesi Kato Dağı'nda icra
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler Taş Kırıcı Makinelerle Kazdıkları Mağarada .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Teröristler Taş Kırıcı Makinelerle Kazdıkları Mağarada .
+Türk Silahlı Kuvvetleri tarafından yapılan açıklamada, 10 Ağustos 2017 tarihinde akşam saatlerinde Şırnak Beytüşşebap'ta icra edilen 'Şehit Tümgeneral Aydoğan Aydın' operasyonu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler taş kırıcı makinelerle kazdıkları mağarada .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Teröristler taş kırıcı makinelerle kazdıkları mağarada .
+Teröristler taş kırıcı makinelerle kazdıkları mağarada öldürüldü Şırnak'ın Beytüşşebap ilçesinde öldürülen 5 teröristin saklandığı mağaraya giren güvenlik kuvvetleri 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler Taş Kırıcı Makinelerle Kazdıkları Mağarada .](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Teröristler Taş Kırıcı Makinelerle Kazdıkları Mağarada .
+Şırnak ve Sirt İllerinde "EREN-12 GÜLEŞLİ" Operasyonu başlatıldı! 10:03 Eski sevgilisini öldürmüştü, hastanede hayatını kaybetti 09:55 Filipinler'de günlük Covid-19 vaka 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler taş kırıcı makinelerle kazdıkları mağarada .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Teröristler taş kırıcı makinelerle kazdıkları mağarada .
+Teröristler taş kırıcı makinelerle kazdıkları mağarada öldürüldü Şırnak'ın Beytüşşebap ilçesinde öldürülen 5 teröristin saklandığı mağaraya giren güvenlik kuvvetleri inceleme yaptı. Yapılan incelemelerde teröristlerin taş kırıcı ve delici makinelerle Kato Dağı zirvesinde 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler Taş Kırıcı Makinelerle Kazdıkları Mağarada .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Teröristler Taş Kırıcı Makinelerle Kazdıkları Mağarada .
+Teröristlerin taş kırıcı ve kazıcılarla kazdığı mağarayı detaylı inceleyen güvenlik kuvvetlerinin ölü olarak mağaradan çıkarılan teröristlerin ardından mağarayı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler taş kırıcı makinelerle kazdıkları mağarada .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Teröristler taş kırıcı makinelerle kazdıkları mağarada .
+Teröristlerin taş kırıcı ve kazıcılarla kazdığı mağarayı detaylı inceleyen güvenlik kuvvetlerinin ölü olarak mağaradan  İstanbul'da DEAŞ operasyonu! Çok sayıda gözaltı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Taş kırıcı makineler ile girilen mağaradan 5 ceset çıktı!](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Taş kırıcı makineler ile girilen mağaradan 5 ceset çıktı!
+Şırnak'ın Beytüşşebap ilçesinde öldürülen 5 teröristin saklandığı mağaraya giren güvenlik kuvvetleri inceleme yaptı. PSG'nin yıldız futbolcusu Kylian Mbappé'den Webo paylaşımı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler Taş Kırıcı Makinelerle Kazdıkları Mağarada .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Teröristler Taş Kırıcı Makinelerle Kazdıkları Mağarada .
+Şırnak'ın Beytüşşebap ilçesinde öldürülen 5 teröristin saklandığı mağaraya giren güvenlik kuvvetleri inceleme yaptı. Yapılan incelemelerde
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Taş kırıcı makinelerle kazmışlar! İçeriden çıkanlar şok etti](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Taş kırıcı makinelerle kazmışlar! İçeriden çıkanlar şok etti
+Taş kırıcı makinelerle kazmışlar! İçeriden çıkanlar şok etti Şırnak'ın Beytüşşebap ilçesinde öldürülen 5 teröristin saklandığı mağaraya giren güvenlik kuvvetleri inceleme yaptı. Yapılan incelemelerde teröristlerin taş kırıcı ve delici makinelerle Kato Dağı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Taş kırıcı makinelerle kazmışlar! İçeriden çıkanlar şok .](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Taş kırıcı makinelerle kazmışlar! İçeriden çıkanlar şok .
+Taş kırıcı makinelerle kazmışlar! İçeriden çıkanlar şok etti Şırnak'ın Beytüşşebap ilçesinde öldürülen 5 teröristin saklandığı mağaraya giren güvenlik kuvvetleri inceleme yaptı. Yapılan incelemelerde teröristlerin taş kırıcı ve delici makinelerle Kato Dağı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PC K&rma - video dailymotion](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## PC K&rma - video dailymotion
+29/4/2016· Watch PC K&imath;rma - Furkan Koç on Dailymotion Harika odun kırma makinesi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler kazdıkları mağarada öldürüldü! - Video 7](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Teröristler kazdıkları mağarada öldürüldü! - Video 7
+Yapılan incelemelerde teröristlerin taş kırıcı ve delici makinelerle Kato Dağı zirvesinde mağara kazdıkları ortaya çıktı. Edinilen bilgiye göre, Şırnak'ın Beytüşşebap ilçesi Kato Dağı'nda icra edilen 'Şehit Tümgeneral Aydoğan Aydın' operasyonunda 5 terörist etkisiz hale getirilmişti.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler Taş Kırıcı Makinelerle Kazdıkları Mağarada .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Teröristler Taş Kırıcı Makinelerle Kazdıkları Mağarada .
+.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teröristler mağarada öldürüldü](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Teröristler mağarada öldürüldü
+Teröristlerin taş kırıcı ve kazıcılarla kazdığı mağarayı detaylı inceleyen güvenlik kuvvetlerinin ölü olarak mağaradan çıkarılan teröristlerin ardından mağarayı kullanılmaz hale getirdiği belirtildi. Kato Dağı bölgesinde Nisan ayında başlatılan operasyonlar kararlı bir
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Askerin girdiği mağaradan 5 ceset çıktı!](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Askerin girdiği mağaradan 5 ceset çıktı!
+Askerin girdiği mağaradan 5 ceset çıktı! Şırnak'ın Beytüşşebap ilçesinde öldürülen 5 teröristin saklandığı mağaraya giren güvenlik kuvvetleri inceleme yaptı.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

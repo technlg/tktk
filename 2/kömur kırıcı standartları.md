@@ -1,0 +1,49 @@
+# kömur kırıcı standartları
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür Hazırlama ve Kömür Teknolojisi](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Kömür Hazırlama ve Kömür Teknolojisi
+çeneli kırıcı ile kırılmış, kırılan kömür Örnekleri 5 mm'lik elek İle sınıflandırılmıştır. 60 mm'den iri örneklerin tankta yıkanmasının zor olması nedeniyle, üst boyut - 60 mm alınmıştır. -60 + 5 mm'lik kısım ise "yıkama örneği" olarak ayrılmıştır. Yıkanabilirlik
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür Çeşitleri](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Kömür Çeşitleri
+Aker, Har ve Cemre gibi kaliteli ithal kömürler ile kaliteli yerli kömür çeşitleri ile hizmetinizdeyiz. Kömür çeşitleri, yerli ve ithal kömür olarak sınıflandırılabileceği gibi büyüklüklerine ve türlerine göre de sınıflandırılır. İthal kömür boyutlarına göre küçükten büyüğe doğru 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ürettiği kömür kırıcılar "kara elmas"ı sanayiye hazır hale .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Ürettiği kömür kırıcılar "kara elmas"ı sanayiye hazır hale .
+3/8/2020· Zonguldak'ta yaşayan Ahmet Kiraz, yaklaşık yarım asırdır taş kömürünün toz haline getirilmesinde kullanılan kömür kırıcı imal ederek hem üreticiye hem de sanayiye katkıda bulunuyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ürettiği kömür kırıcılar "kara elmas"ı sanayiye hazır hale .](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Ürettiği kömür kırıcılar "kara elmas"ı sanayiye hazır hale .
+ZONGULDAK (AA) - GÖKHAN YILMAZ - Zonguldak'ta yaşayan Ahmet Kiraz, yaklaşık yarım asırdır taş kömürünün toz haline getirilmesinde kullanılan kömür kırıcı imal ederek hem üreticiye hem de sanayiye katkıda bulunuyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür Analizleri - İnci Enerji Kömür | Denizli](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Kömür Analizleri - İnci Enerji Kömür | Denizli
+Sanayi Kömürleri Analiz Raporu Cinsi Çeşit İşleme Durumu Menşei Ebat (mm) Nem (%) Kül (%) Uçucu Madde (%) Alt Isıl Değer (kkal/kg) Üst Isıl Değer (kkal/kg) Soma Kısrakdere Toz Yıkanmış Soma 0,5 - 10 mm 20,53 10,43 34,21 4606 4920 Soma Kısrakdere
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KURU KÖMÜR HAZIRLAMA YÖNTEMLERİ](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## KURU KÖMÜR HAZIRLAMA YÖNTEMLERİ
+Şekil 8. Bradford tipi döner kırıcı. yüzeylere düşmesi sağlanır. Yan kayaca göre daha kırılgan olan kömür ufalanarak plakalardaki deliklerden aşağı düşerken (Şekil 8), iri boyutta kalan yan kayaç kırıcı çıkışından dışarı atılır. Bradford kırıcısı ülkemizdeki bazı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür Hesaplamaları | Tesisat](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Kömür Hesaplamaları | Tesisat
+Hassas ve doğru kömür hesaplamaları, kömür faaliyetlerinizin başarısı için son derece önemlidir.Bu hesaplamalar, kömürün derecesini belirleyebilmenize yardımcı olan kül ve kalorifik değer gibi bazı temel parametrelerin hesaplanmasında kullanılır. SGS'nin global 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En İyi Kalite katalog birincil kırıcı kömür için](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## En İyi Kalite katalog birincil kırıcı kömür için
+Alibaba'da en iyi fiyatlarla verimli katalog birincil kırıcı kömür için satın alın. Bunların katalog birincil kırıcı kömür için birden çok sektörde uygulamaları vardır. Sevkiyata Hazır
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Döner Kırıcı - CWP Kömür Zenginleştirme Tesisleri Makina .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Döner Kırıcı - CWP Kömür Zenginleştirme Tesisleri Makina .
+CWP Döner Kırıcı kömür hazırlamada kullanılan önde gelen kırıcıdır. Beslenen malzemeyi ayarlanabilir kaldıraç plaka ile kaldırıp kömürü en tepe noktadan gövde zeminindeki sert yüzeye bırakacak şekilde işler. Kırılan malzeme bu kaldırıp bırakma işleminden sonra gövdedeki ayarlanabilir açıklıklarından sistemin altındaki bir toplama bunkerine geçer.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![11 tez5 by Leon Trotsky - Issuu](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## 11 tez5 by Leon Trotsky - Issuu
+Issuu is a digital publishing platform that makes it simple to publish magazines, catalogs, newspapers, books, and more online. Easily share your publications and get them in 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KÖMÜR SATIN ALIRKEN DİKKAT EDİLECEK HUSUSLAR](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## KÖMÜR SATIN ALIRKEN DİKKAT EDİLECEK HUSUSLAR
+2.KÖMÜR SATIN ALIRKEN KALORİSİNE DİKKAT EDİNİZ Sizi ısıtanın kömürün kütlesi değil kalorisi olduğunu unutmayınız. Kalorisi düşük 2000 kg kalitesiz kömür yerine kalorisi yüksek 1200 kg kömürle ısınmanız mümkündür. Örnek : 2000 kg/yıl x 3500
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![rajkot kömur pulverizatöru değirmeni](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## rajkot kömur pulverizatöru değirmeni
+K Track-type Mobile Crusher ASM's K Track-type Mobile Crusher is a fully hydraulic track-type mobile crusher developed and completed
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

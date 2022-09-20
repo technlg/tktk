@@ -1,0 +1,93 @@
+# titanlı manyetit işlenmesi icin işlem sırası tablosu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Veri tabanında tablolar - İSMEK](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Veri tabanında tablolar - İSMEK
+ii AÇIKLAMALAR KOD 481BB0036 ALAN Bilişim Teknolojileri DAL/MESLEK Veri Tabanı Programcılığı MODÜLÜN ADI Veri Tabanında Tablolar MODÜLÜN TANIMI Veri tabanında tablolarla ilgili öğrenme materyalidir.SÜRE 40/24 ÖN KOŞUL "Veri Tabanı Planlama" modülünü bitirmiş olmak 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ana Sayfa](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Ana Sayfa
+Gerileme Dönemi (1699 - 1792) Osmanlı Devleti Karlofça (1699) ve İstanbul (1700) Antlaşmaları'yla ilk defa büyük toprak kaybına uğrayarak "Gerileme Dönemi" ne girmiştir. Osmanlı Devleti, XVIII. yüzyıl başlarında kaybedilen toprakları geri alma politikası izledi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DOK.NO TL-YNT-02 REV. NO İLETİİM TALİMATI REV. TAR. SAYFA .](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## DOK.NO TL-YNT-02 REV. NO İLETİİM TALİMATI REV. TAR. SAYFA .
+REV. TAR. İLETİİM TALİMATI DOK.NO TL-YNT-02 REV. NO -- SAYFA NO 2 / 3 YAYIN TAR. HAZIRLAYAN ONAY KALİTE YÖNETİM TEMSİLCİSİ GENEL MÜDÜR e) İç yazıma formu: Kalite ve gıda güvenliği ile ilgili tüm bölümler arası yazımalar, bilgi için 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bilgiyelpazesi.Com](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Bilgiyelpazesi.Com
+Tüm sayı kümelerinde dört işlem yapılırken şu sıra takip edilir: 1) Parantez var ise önce parantezin dışındaki üslü ifadeler daha sonra parantezin içindeki işlemler yapılır. 2) Çarpma ve bölme işlemi yapılır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Türkiye Dergisi Sayı 33 by Madencilik Turkiye .](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Madencilik Türkiye Dergisi Sayı 33 by Madencilik Turkiye .
+Mayeb yayınlarının ilk ve ana yayını olan Madencilik Türkiye dergisinin 33. sayısıdır. Dergide madencilik sektörü ile ilgili güncel bilgiler yer almaktadır. Gelecek sayılarımızdaki 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MADENCİLİK ÖZEL İHTİSAS KOMİSYONU](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## MADENCİLİK ÖZEL İHTİSAS KOMİSYONU
+Türkiye Kaolinlerinin Tüketim Alanları Tablosu Çimento Sektörü % 60 Seramik ve Cam Sektörü % 30 Dolgu-Lastik-Boya v.s. % 10 Gelişmiş ülkelerde üretilen kaolinlerin % 75'i kağıt sektöründe tüketildiği göz önünde bulundurulursa, Türkiye kağıt sanayiinin tam gelişmediği ve Türkiye'de kağıt sanayiine hitap edebilen (özellikle kaplama) kaolinlerin üretilemediği 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Türkiyede Termik Santrallar - MMO - 2017 - 2](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Türkiyede Termik Santrallar - MMO - 2017 - 2
+Ham cevher çoğunlukla hematit (Fe2O3) ve/veya manyetit (Fe3O4) olup (Kullanılabilecek diğer olası demir cevherleri limonit, gotit ve siderittir.) yüksek fırına beslenecek cevherin harman tenörünün (içindeki demir oranının) en az % 57 olması istenir. Fotoğraf 4.1
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ana Sayfa](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Ana Sayfa
+İşlem A boş olmayan bir küme ve A Ì B olmak üzere, A x A kümesinden B kümesine tanımlı her fonksiyona, A kümesinde bir ikili işlem ya da işlem denir. İşlem +, -, ., :, ο, Δ, Ä,¤,Å,  gibi sembollerle gösterilir. Örnek: Tam sayılar kümesinde x ο y = 2x + 5y
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SAUFBE DERGİSİ Cilt: 17 Sayı: 2 by SAUJS - Issuu](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## SAUFBE DERGİSİ Cilt: 17 Sayı: 2 by SAUJS - Issuu
+SAÜ. Fen Bil. Der. 17. Cilt, 2. Sayı, s., 2013 SAU J. Sci. Vol 17, No 2, p., 2013 Facts cihazlarının gerilim kararlılığına etkisinin 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Türkiyede Termik Santrallar - MMO - 2017 - 2](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Türkiyede Termik Santrallar - MMO - 2017 - 2
+The article is about thermal power plants in Turkey by hozipek5599 TÜRKİYE'DE TERMİK SANTRALLER 2017 Nisan 2017, Ankara Yayın No:-----MMO/668 .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MATEMATİKTE İŞLEM ÖNCELİĞİ | Matematik Saati](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## MATEMATİKTE İŞLEM ÖNCELİĞİ | Matematik Saati
+15/10/2013· 12 + 12 : 12 + 12 (öncelikle bölme işlemi yapılır) 12 + 1 + 12 (sırayla toplama işlemi yapılır) 25 bulunur. örnek :aşağıdaki işlemin sonucunu bulalım. 24 – 8 . 3 + 5 : 1 (işlem önceliğine göre önce bölme işlemi yapılır) 24 – 8 . 3 +5 (çarpma işlemi yapılır) 24 – 24 + 5 ( toplama çıkarma işlem.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Üniversiteden Liseye Uzanan Köprü: Bir Nanobilim .](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## (PDF) Üniversiteden Liseye Uzanan Köprü: Bir Nanobilim .
+manyetit kum olan şişenin yakınına koymuş, sonra mıknatısı test tüp ünden uz aklaştıracak ve gözlem yapmışlardır. So nra bu işlemin aynısını ferrosıvı içeren şişeyle
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KİMYA9 FEN.pdf](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## KİMYA9 FEN.pdf
+İşlem sırasında, başlangıçta balon içinde var olan havanın yalnızca Resim 1. 23:  Gıda kimyası gıdaların hazırlan-ması, işlenmesi, korunması, ambalajlanması, depolanması gibi teknolo- Vücudun toksit temizleyicisi-jileri içerir. Gıdaların içerisinde çok Bu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Eng Tr metal Sozlugu | Kutay Kırmızı](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## (PDF) Eng Tr metal Sozlugu | Kutay Kırmızı
+Eng Tr metal Sozlugu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tavlama İşlemleri | Önerler Isıl İşlem | 1967](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Tavlama İşlemleri | Önerler Isıl İşlem | 1967
+Tavlama işlemleri genel olarak ötektoid altı sıcaklıklarda yapılan, malzemenin ve işlenebilirliğini iyileştiren bir ısıl işlem methodudur. Döküm, dövme ve haddeleme işlemleri görmüş malzemeleri, yumuşatmak, malzeme içinde bulunan gerilimleri azaltmak, işlenebilirliği arttırmak ve kırılganlığı azaltmak gibi özellikleri malzemeye katar.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Manyetit taşı - İşbilir avm blog](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Manyetit taşı - İşbilir avm blog
+Manyetit taşı özellikleri ; Manyetit taşına manyetit ve mıknatıs taşıda denmektetir. Manyetit taşının sertlik derecesi 5,5 - 6,5 arasında değişmektetir. Demir siyahı, kahve rengimsi siyah ve siyah renklerde bulunan bir doğal taş türüdür. Yapısal görünümü opaktır. Kristal yapılı, metalik siyah demiroksit bir taştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İşlem Sırası (İşlem Önceliği) Çözümlü Örnek (video) | Khan .](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## İşlem Sırası (İşlem Önceliği) Çözümlü Örnek (video) | Khan .
+İşlem sırasının temelini kavradığımıza göre, şimdi biraz da zor ve azıcık da sevimsiz görünen bir soruyla uğraşalım. Burada her türlü parantez var ve rakamlar ortalıkta havalarda uçuşuyor. Bunun gibi işlem sıralı problemlerde, derin bir nefes almalı ve ilk olarak parantezlerin yapıldığını hatırlamalısınız.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MEB KIRŞEHİR - AKPINAR İLÇE MİLLÎ EĞİTİM MÜDÜRLÜĞÜ](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## MEB KIRŞEHİR - AKPINAR İLÇE MİLLÎ EĞİTİM MÜDÜRLÜĞÜ
+TAŞINIR YILSONU İŞLEMLERİ İŞLEM SIRASI HAZIRLANACAK BELGELER 1-SAYIM TUTANAĞI 2-SAYIM DÖKÜM CETVELİ 3-HARCAMA BİRİMİ TAŞINIR YÖNETİM HESABI VETVELİ 4-YILSONU İTİBARİ İLE EN SON DÜZENLENEN TAŞINIR İŞLEM FİŞİNİN :
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![[PDF] KONUKLU ENERJİ ELEKTRİK ÜRETİM A.Ş. KONALGA .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## [PDF] KONUKLU ENERJİ ELEKTRİK ÜRETİM A.Ş. KONALGA .
+KONUKLU ENERJİ ELEKTRİK ÜRETİM A.Ş. KONALGA REGÜLÂTÖRÜ ve HES (Malzeme Ocakları, Kırma-Eleme Tesisi ve Beton Santrali) PROJESİ (30,566 MWm / 29,649 MWe) ÇEVRESEL ETKİ DEĞERLENDİRMESİ RAPORU VAN İLİ, ÇATAK İLÇESİ ÇED
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Turkce-Ingilizce Metalbilim Ve Gerechbilim .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## (PDF) Turkce-Ingilizce Metalbilim Ve Gerechbilim .
+Turkce-Ingilizce Metalbilim Ve Gerechbilim Karshiliklar Sozlugu (Erdogan Tekin)(2005).Pdf
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CEVHER (Kurşun-Çinko-Bakır) - Çevre ve Şehircilik Bakanlığı](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## CEVHER (Kurşun-Çinko-Bakır) - Çevre ve Şehircilik Bakanlığı
+No category CEVHER (Kurşun-Çinko-Bakır) - Çevre ve Şehircilik Bakanlığı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tam Sayılar - Tam Sayılarda Işlem Önceliği - Hocalara Geldik](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Tam Sayılar - Tam Sayılarda Işlem Önceliği - Hocalara Geldik
+Rasyonel Sayılarla Toplama İşleminin Özellikleri. Rasyonel Sayılarla Çarpma İşlemi. Parmaklarla Çarpım Tablosu. Rasyonel Sayılarla Çarpma İşleminin Özellikleri. Rasyonel Sayılarla Bölme İşlemi. SUDOKU (Kolaydan Zora) Rasyonel Sayılarla Çok Adımlı İşlemler. Rasyonel Sayıların Karesi ve .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAŞ İ](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## BAŞ İ
+TABLO 14. U VE U' İÇİN KRİTİK DEĞERLER TABLOSU (α = .01)..55 TABLO 14. U VE U' İÇİN KRİTİK DEĞERLER TABLOSU (α = .025)..56 TABLO 14. U VE U' İÇİN KRİTİK DEĞERLER TABLOSU (α TABLO 15.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

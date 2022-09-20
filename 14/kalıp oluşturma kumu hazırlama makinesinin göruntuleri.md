@@ -1,0 +1,141 @@
+# kalıp oluşturma kumu hazırlama makinesinin göruntuleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Desmond.M..Clarkescartes - Scribd](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Desmond.M..Clarkescartes - Scribd
+Bir süre Kopenhag'da kalıp senden mektup bekleyeceğim" diye yazdı ( x. 1 5 1 ) . Bu yolculukların kapsamı ve süresi bilinmemektedir. Descartes'ın en azından Ferdinand'ın imparator olarak taç giymesini kutlamak için, 28 Te muz'dan 9 Eylül'e kadar süren törenler sırasında Frankfurt'a bir şekilde varmış ve bundan önce (Katolik) Bavyera dükünün ordusuna yazılmış olduğu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İnşaat, makine tesisatı ve elektrik tesisatı genel](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## İnşaat, makine tesisatı ve elektrik tesisatı genel
+I- GENEL Bayındırlık ve İskan Bakanlığının Teşkilat ve Görevleri Hakkında 180 sayılı Kanun Hükmünde Kararnamenin 209 sayılı Kanun Hükmünde Kararname ile değişik 2 nci maddesinde belirtilen işlerde uygulanacak yapı işleri inşaat, makine ve elektrik tesisatı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Megep Dökümanları - 1. Liste · GitHub](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Megep Dökümanları - 1. Liste · GitHub
+Megep Dökümanları - 1. Liste. GitHub Gist: instantly share code, notes, and snippets. Clone via HTTPS Clone with Git or checkout with SVN using the repository's web address.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kalıplama-Kum Hazırlama](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Kalıplama-Kum Hazırlama
+Kalıplama-Kum Hazırlama 2 adet kalıplama hattımız bulunmaktadır. I. Kalıplama hattı: Yüksek basınçlı yaş kum yatay kalıplama hattı, model yerleşim ölçüleri 2000x1000x680/350 mm. II. Kalıplama Hattı: Yüksek basınçlı yaş kum yatay kalıplama hattı, derece iç
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HALK EĞİTİM FOET KODLARI - @BYCANKURT](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## HALK EĞİTİM FOET KODLARI - @BYCANKURT
+11/11/2015· Halk eğitim Merkezinin güncelleştirilmiş foet kodları aşağıda yer almaktadır.2015/2016 yıllları içerisinde uygulamada olan bu kodların zaman içerisinde güncellenmesi beklenmektedir.Sabah merak ettiğim bir konu üzerinde değerlendirme yaparken araştırdığım bu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gayrimenkul İnşaat Terimleri Sözlüğü – Remax Deha](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Gayrimenkul İnşaat Terimleri Sözlüğü – Remax Deha
+Kalıp Vibratörü: Kalıp üstüne yerleştirilen vibratörler. Titreşimle betonun yerleştirilmesini sağlarlar. Kalkersi Uçucu Kül: Hemz puzolonik, hem de hidrolik özellik gösterir. Reaktif CaO ; reaktif SiO2 ve Al2O3′ten oluşur. Kızrıma kaybı %5′ten azdır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KULLANIM KILAVUZU - Askaynak](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## KULLANIM KILAVUZU - Askaynak
+Kulağı kıvılcım ve erimiş metallerden korumak ve ark kaynağı makinesinin gürültüsünden kaynaklanan duyma kaybını engellemek için kulaklık takılmalıdır. Çalışma ortamındaki gürültü kulakları rahatsız edici ve baş ağrısına yol açan bir seviyeye ulaştığında, işitsel
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ Technical Dictionary](https://github.com/technlg/images/blob/main/23.jpg)</a>
+##  Technical Dictionary
+makinesinin tam yol ileriden, tamyol geriye afterdamp: Kömür ocaklarında grizu patlamasından (tornistana) geçmesi sırasında stop için geçen süre sonra kalan ve başlıca karbon dioksit ve azottan olu veya zaman. revolution: Bir gemi türbininin ileri hareketi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Join Issuu - Sayı 87 - Makine ve Aksamları İhracatçıları .](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Join Issuu - Sayı 87 - Makine ve Aksamları İhracatçıları .
+nazaran çok daha rekabetçi bir ekonomiyi oluşturma avantajına sahip. 10 yıl sonra "İran  Maviform Metal, 2004 yılında talaşlı imalat firması olarak; kalıp, aparat ve fikstür 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dikiş Kalıpları ve Patronları: STANDART / BAZ / TEMEL .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Dikiş Kalıpları ve Patronları: STANDART / BAZ / TEMEL .
+Bir elbise, etek, bluz, tunik ya da herhangi bir aksesuar dikmenin en önemli aşamasıdır kalıp. Beden kalıbına tam uymayan giyim ürünü ne kadar kaliteli olursa olsun, güzel görünmez, kullanışlı olmaz. Pek çok kalıp ve patron içerikli fotoğraf görmüşsünüzdür.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HEMA TERMİK SANTRALİ 2X(660 MWe-669,4 MWm](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## HEMA TERMİK SANTRALİ 2X(660 MWe-669,4 MWm
+similar documents
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cnc [34wmvroqrml7]](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Cnc [34wmvroqrml7]
+CNC TAKIM TEZGAHLARI ve CNC PROGRAMLAMA Doç.Dr. Ali ORAL BALIKESİR 2012 CNC Takım Tezgahları Ders Notları Doç.Dr. Ali ORAL ÖNSÖZ Balıkesir Üniversitesi Makina Mühendisliği Bölümünde verilmekte olan CNC tezgahlar dersi içeriğine uygun 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Akvaryum.Com](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Akvaryum.Com
+Fotoğraf makinesinin içerisine yerleştirilen pozometreler, ölçtükleri enstantane diyafram değerlerini bize farklı şekillerde gösterirler. Bazı makinelerde vizörden bakıldığında gözüken (bazı makineler de bu ibre ve halka makinenin üzerindedir.) bir ibrenin diyafram ve enstantane değerlerine göre yukarı aşağı oynayan halkanın üzerine getirilmesi istenir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![tr / Demo Grup](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## tr / Demo Grup
+Demo Grup, servis hizmetlerini standartları çerçevesinde, tamamı ile müşteri memnuniyeti odaklı yürütmektedir. Teknik analiz, arıza tespiti, test ve diğer tüm teknik servis otomasyonu gerekliliklerine sahip olan servis, iş akışlarını ve müşteri memnuniyetlerini kendi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KALIP KUMLARI - Bartın Üniversitesi](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## KALIP KUMLARI - Bartın Üniversitesi
+Kalıp kumuna yapılan diğer ilaveler • İlavelerin temel amacı daha önce yukarıda da listelediğimiz kalıp kumu özelliklerini geliştirmek amacıyla yapılır. Örneğin; 1. Silis tozu sıcak mukavemeti arttırmak 2. Demir oksit sıcak mukavemeti arttırmak 3. Fuel oil 4.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mart 2012](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Mart 2012
+Mart 2012 Basyazı, Yıl: 51 • Sayı: 598 • MART 2012 Sahibi Türk Standardları Enstitüsü Adına Hulusi ŞENTÜRK Sorumlu Yazı İşleri Müdürü Bilal DURDALI Yayına Hazırlayanlar O. Murat PERÇİN A. Sabit YÖNEY • Türkay BİRBEN Aslıhan KÖKER • Canan DOĞAN Belgin 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![/usr/share/onboard/models/tr_TR.lm - APT Browse - .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## /usr/share/onboard/models/tr_TR.lm - APT Browse - .
+/usr/share/onboard/models/tr_TR.lm is in onboard-data 1.0.0-0ubuntu4. This file is owned by root:root, with mode 0o644. The actual contents of the file can be
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![kalıp hazırlama | Semiye Bottan](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## kalıp hazırlama | Semiye Bottan
+Kalıp hazırlama ve model uygulama derslerinde, öğrencilere temel kalıp üzerinden model uygulama ödevleri verilmiştir. Hazırladıkları bu ödevleri derste sunum yapmaları istenmiştir. Buradaki amaç öğrenciye model uygulama yeteneğini kazandırmak ve derste sunum yaparak öğrencinin öz .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Snowball](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Snowball
+a a'da a'daki a'dan a'nın a'ya aa aa'nın aa'ya aaa aacakları aacağı aacağız aarayış aaron aasset ab ab' ab'ci ab'cilikte ab'de ab'den ab'li ab'ne ab'nin ab'nın ab'ye ab'
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BULASIK MAKILERI BO](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## BULASIK MAKILERI BO
+Bulaşık makinesinin çalışması için enerjiyi açıp kapamaya yarayan devre elemanıdır. Açma kapama anahtarına da faz-nötr 220 Volt girer, 220 Volt çıkar. Anahtar çalıştırma konumuna alındığında çıkışından gerilim kontrolü yapılır. Eğer 220 Volt giriyor, 220 Volt
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BORU BüKüCü: EV YAPIMI YAPILAR, HESAPLAMA, .](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## BORU BüKüCü: EV YAPIMI YAPILAR, HESAPLAMA, .
+Boru bükücü: ev yapımı yapılar, hesaplama, çizimler, uygulama için seçeneklerin gözden geçirilmesi ve analizi Bir çiftliği donatırken, er ya da geç boruyu bükme gereksinimi ile karşılaşırsınız. Şehirde düşünce: bazı boru bükme cihazları için, ör. mandrel ve 3 silindirli, aşağıya bakınız, ilk (başlangıç) "kuyruk" gerekli görünmemektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gamze Yayıncılık](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Gamze Yayıncılık
+Priport Master Hazırlama Ünitesi ve Malzemeleri Elektrik Megep Modül Kitap 12 YAZARKASA VE PARA SAYMA MAKİNESİ Yazarkasa Yazma Tekniği Yazarkasa Elektrik-Elektronik Sistemi Para sayma Makinesinin Mekanik Sistemi Para sayma Makinesinin
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Güzel Sanatlar Enstitüsü](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Güzel Sanatlar Enstitüsü
+No category Güzel Sanatlar Enstitüsü
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![otomatik kalıp kesici oluklu kutu makinesi Yaratıcılığınız .](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## otomatik kalıp kesici oluklu kutu makinesi Yaratıcılığınız .
+Alibaba'da otomatik kalıp kesici oluklu kutu makinesi ile sanat projelerinize ve ticari markanıza hayat verin. İhtiyaçlarınız için otomatik kalıp kesici oluklu kutu makinesi seçeneklerini alın.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![temiz / Demo Grup](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## temiz / Demo Grup
+19. yy. da buhar makinesinin icadıyla sabun yapımı çok büyük endüstriyel bir sektör haline gelmiştir. 1907 yılında bir Alman firması "Persil" adında yeni bir ürününün marketlerde yerini almasıyla yüzyıllar boyunca kullanılan sabun, deterjan kavramına dönüşmüştür.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KUM KALIPLAMA - Bartın Üniversitesi](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## KUM KALIPLAMA - Bartın Üniversitesi
+İnce kuru kumserpilerek kalıp kumunun model ve zemine yapıması önlenir .ullanılmamı kumdan -5 cm kalınlığında kum elenerek kalıba dökülecek sıvı metale komu tabaka hazırlanır 'aha sonra dolgu kumu tabaka tabaka sıkıtırılır ve üst yüzey düzlenir az
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) KARAYOLU TEKNİK ŞARTNAMESİ | dursun dündar - .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## (PDF) KARAYOLU TEKNİK ŞARTNAMESİ | dursun dündar - .
+KARAYOLU TEKNİK ŞARTNAMESİ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![1. GİRİŞ YA KALIPLAMA KUMU, ÖZELLİKLERİ](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## 1. GİRİŞ YA KALIPLAMA KUMU, ÖZELLİKLERİ
+kumu oranı 8 olup ideal sayılabilir, buna rağmen kum hazırlama sistemine kum soğutusunun dahil edilmesi kalıplama kumu özelliklerinin daha ideal değerlere ulaşmasını sağlamaktadır. 3.1. YAŞ KALIPLAMA KUMU ÖZELLİKLERİNİN MATEMATİKİ İLİŞKİLERİ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GELECEĞİN DÜNYASINDA BİLİMSEL VE MESLEKİ .](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## GELECEĞİN DÜNYASINDA BİLİMSEL VE MESLEKİ .
+EDİTÖRLER DR. ERTUĞRUL ÇAM DR. NECAATTİN BARIŞÇI DR. MURAT LÜY DR. MUNİSE DİDEM DEMİR DR. MEHMET GÜÇYETMEZ DR. ÖZLEM TOPRAK Birinci Baskı •© Aralık 2018 / .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![tuik.gov.tr](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## tuik.gov.tr
+A TARIM, AVCILIK VE ORMANCILIK ÜRÜNLERİ AA TARIM, AVCILIK VE ORMANCILIK ÜRÜNLERİ 01 TARIM, AVCILIK VE İLGİLİ HİZMET ÜRÜNLERİ 01.1 Bitkisel ürünler ile bostan, meyve ve sebze ürünleri 01.11 Tahıl ve başka yerde sınıflandırılmamış diğer bitkisel ürünler 01.11.1 Tahıllar 01.11.11 Durum buğdayı 01.11.12 Yumuşak buğday ve meslin 01.11.13 Mısır 01.11.14 Pirinç 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bu rehber, Avrupa Birli İ İş İ ş İ ş - Gelişim OSGB| OSGB](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Bu rehber, Avrupa Birli İ İş İ ş İ ş - Gelişim OSGB| OSGB
+1. Maça kumu ve model hazırlama 2. Kalıp Kumu ve kalıp hazırlama 3. Döküm ve ateş hazırlama 4. Metal eritme ve arıtma 5. Kalıp içine metal dökme 6. Kalıptaki metal dökümü soğutma 7. Kalıptan dökümü ç ıkarma (derece bozma) 8. Temizleme, çapak
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kalıp Kumunun Kullanım Teknikleri Nelerdir? | DökümTEK](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Kalıp Kumunun Kullanım Teknikleri Nelerdir? | DökümTEK
+Döküm parça üretiminin başarısı kullanılan maddelere bağlı olmakla birlikte; Döküm teknolojisi özellikleri Kum hazırlama teknolojisi özellikleri Kalıplama metodu teknolojik özellikleri Kalıp kumu döndü sisteminin teknik özellikleri gibi kullanılan malzeme ve kum
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![terbiye | Tekstil Mühendisi](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## terbiye | Tekstil Mühendisi
+silikozis, döküm kumu hazırlama, cam ve seramik malzemesi hazırlama, taş kırma, öğütme, tünel kazma, madencilik, kumlama,  İnsan elini kalıp gibi kullanıp üzerine boya püskürttükten sonra duvarda resmin kalması, bu tekniğin kullanıldığını göstermektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) TÜRKÇE SÖZCÜK İNCELEMELERİ Karşılaştırmalı | .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## (PDF) TÜRKÇE SÖZCÜK İNCELEMELERİ Karşılaştırmalı | .
+TÜRKÇE SÖZCÜK İNCELEMELERİ Karşılaştırmalı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KANALIZASYON - KIŞISEL DENEYIMIMIZI ANLIYORUZ - .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## KANALIZASYON - KIŞISEL DENEYIMIMIZI ANLIYORUZ - .
+Sonuç.Ev haftada 2-3 kez ziyaret edilirse ve çok fazla su tüketmezse, dipsiz bir fosseptik inşa edilebilir. Aynı zamanda, yeraltı suyu oluşumu seviyesi, çukurun dibinden en az 1 m aşağıda olmalıdır, aksi takdirde toprak kirliliği ve su kaynağı önlenemez. En düşük 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

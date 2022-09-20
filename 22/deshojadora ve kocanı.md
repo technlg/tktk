@@ -1,0 +1,41 @@
+# deshojadora ve kocanı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Antalya'da dehşet ! Cani Koca Eşine Dehşeti Yaşattı .](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Antalya'da dehşet ! Cani Koca Eşine Dehşeti Yaşattı .
+3/10/2020· Sondakika haberlerini anında almak ve bize destek olmak için kanalımıza abone olup videoyu beğenip paylaşmayı unutmayın teşekkürler. Antalya'nın Alanya ilçes
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Diyarbakır'da koca dehşeti20 yıllık eşini bıçaklayarak .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Diyarbakır'da koca dehşeti20 yıllık eşini bıçaklayarak .
+2/6/2019· Diyarbakır'da koca dehşeti. ..20 yıllık eşini bıçaklayarak öldürdüEşini çocuklarının yanında öldürüp yol kenarına bıraktıktan sonra kaçtıDİYARBAKIR - Diyarbakır'da cani koca 20 yıllık eşini çocuklarının gözü önünde bıçakla öldürerek yol kenarına bırakıp kaçtı. Olay 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sarıyer'de koca dehşeti! Defalarca arabayla eve çarptı - .](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Sarıyer'de koca dehşeti! Defalarca arabayla eve çarptı - .
+18:07 - Türkiye'den İsrail, Yunanistan ve AB'ye 'Doğu Akdeniz' notası 18:01 - Babasını öldürüp okula giden genç, cinayeti arkadaşına anlatmış 17:59 - Arkadaşını bıçaklayanı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İzmir'de Koca Dehşeti; 3 Ölü, 1 Yaralı - YouTube](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## İzmir'de Koca Dehşeti; 3 Ölü, 1 Yaralı - YouTube
+3/9/2020· İzmir'in Gaziemir ilçesinde boşanma aşamasında olduğu eşinin kuaför salonuna kurşun yağdıran şahıs, eşini ve bir kişiyi öldürdü ardından intihar etti.İhlas S
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![De&Ha Dekorasyon - Home | Facebook](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## De&Ha Dekorasyon - Home | Facebook
+De&Ha Dekorasyon. 113 likes. Product/Service See more of De&Ha Dekorasyon on Facebook
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SON DAKİKA HABERLERİ! Çatalca'da dehşet! Kaçırdığı .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## SON DAKİKA HABERLERİ! Çatalca'da dehşet! Kaçırdığı .
+Onaylanmayacak ve silinecek yorumlar kategorisinde aşağılama, nefret söylemi, küfür, hakaret, kadın ve çocuk istismarı, hayvanlara yönelik şiddet söylemi içeren yorumlar da yer 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DEHA Dekorasyon - Home | Facebook](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## DEHA Dekorasyon - Home | Facebook
+DEHA Dekorasyon, Afyonkarahisar. 381 likes. ALÇI,KARTONPİYER,İÇ&DIŞ CEPHE KAPLAMA VE BOYA,DUVAR KAĞIDI, GERGİ TAVAN,IŞIK BANTI,PATLATMA MERMER VE EFEKT BOYA Facebook is showing information to help you better understand the
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sarıyer'de koca dehşeti: Eşinin sığındığı eve aracıyla .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Sarıyer'de koca dehşeti: Eşinin sığındığı eve aracıyla .
+10/10/2020· İstanbul Sarıyer'deki olay, Kilyos'ta dün saat 15.30 sıralarında meydana geldi. Edinilen bilgiye göre, A.D. (33) adlı kadın, önceki gün öğle saatlerinde jandarma karakoluna giderek, boşanma aşamasında olduğu Kenan D.'nin kendisine şiddet uyguladığını belirterek şikayetçi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İzmir'de koca dehşeti - Son Dakika Flaş Haberler](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## İzmir'de koca dehşeti - Son Dakika Flaş Haberler
+Son Dakika Flaş Haberler - İzmir'in Konak ilçesinde boşanma aşamasında olduğu eşi Hüsniye D.'yi tabancayla vurup ağır yaralayan Ramazan D., fare zehri içerek intihara teşebbüs etti. Hastanede tedaviye alınan Hüsniye D.'nin hayati tehlikesinin bulunduğu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dekoratif Obje ve Ucuz Dekoratif Objeler - Madame Coco](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Dekoratif Obje ve Ucuz Dekoratif Objeler - Madame Coco
+Dekoratif Obje Çeşitleri Dekoratif obje, dekoratif amaçlı kullanılan nesneleri ifade eder.Bu ürünleri kullanarak bulunduğunuz ortamın dekorasyonuna önemli katkılarda bulunabilirsiniz. Salon dekoratif objeler arasından herhangi birini almadan önce ilk olarak kaliteye, daha sonra tasarıma ve sonra dayanıklılık özelliklerine dikkat etmeniz yeterli olacaktır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

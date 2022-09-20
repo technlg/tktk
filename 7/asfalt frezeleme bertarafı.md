@@ -1,0 +1,145 @@
+# asfalt frezeleme bertarafı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TOFAŞ Gazete - 130. Sayı by TOFAŞ Türk Otomobil .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## TOFAŞ Gazete - 130. Sayı by TOFAŞ Türk Otomobil .
+Yaklaşık 50 kişilik bir ekip çalışmasının ürünü olan proje ile yeni bir frezeleme robot  Bu sayede "Sıfır atık bertarafı" hedefine ulaşılıyor. 2013 yılında enerji 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![T.C. Ticaret Bakanlığı](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## T.C. Ticaret Bakanlığı
+Tehlikesiz atıkların ıslahı ve bertaraf edilmesi ve bertarafı için depolama alanlarının işletilmesi 38.22.01  Metallerin makinede işlenmesi (torna tesfiye işleri, metal parçaları delme, tornalama, frezeleme, rendeleme, parlatma, oluk açma, perdahlama, birleştirme 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![tuik.gov.tr](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## tuik.gov.tr
+Bu alt kategoride ayrıca kapsananlar: - deniz suyu, tuzlu su ve diğer tuz solüsyonları. 08.99 Başka yerde sınıflandırılmamış diğer madencilik ve taşocakçılığı ürünleri 08.99.1 Bitüm ve asfalt, doğal; asfaltitler ve asfaltlı kayalar 08.99.10 Bitüm ve asfalt, doğal 08.99.2
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![tuik.gov.tr](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## tuik.gov.tr
+01.11.07 Araka yetiştirilmesi 01.11.07 Fasulye (taze ve kuru) yetiştirilmesi 01.11.07 Barbunya yetiştirilmesi 01.11.07 Bezelye yetiştirilmesi 01.11.07 Acı bakla yetiştirilmesi 01.11.07 Taze baklagil sebzelerin yetiştirilmesi 01.11.07 Baklagillerin yetiştirilmesi 01.11
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kullanılmış Asfalt frezeleme makineleri - İnşaat makineleri .](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Kullanılmış Asfalt frezeleme makineleri - İnşaat makineleri .
+Asfalt frezeleme makineleri | Vielhaben Vielhaben Kaltfräse RAB 1000 Sp, kompl. überholt / Half round sections and levelling devices 2002, 3,812 h, kullanılmış 25451 Quickborn, Almanya Vielhaben - Cold milling machine RAB 1000 SP for partial and large-scale milling of asphalt + screed coverings.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![biruni.tuik.gov.tr](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## biruni.tuik.gov.tr
+08.99.10 Bitüm ve asfalt, doğal; asfaltitler ve asfaltlı kayalar 08.99.2 Başka yerde sınıflandırılmamış değerli ve yarı değerli taşlar; sanayi tipi elmaslar, işlenmemiş veya basitçe tıraşlanmış, bölünmüş veya kaba; ponza taşı; zımpara; doğal korindon, doğal lal taşı ve diğer doğal aşındırıcılar; diğer mineraller
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![T.C. Ticaret Bakanlığı](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## T.C. Ticaret Bakanlığı
+Tehlikesiz atıkların ıslahı ve bertaraf edilmesi ve bertarafı için depolama alanlarının işletilmesi 38.22.01 Tehlikeli atıkların ıslahı ve bertaraf edilmesi (tehlikeli atıkların ıslahını yapan tesislerin işletilmesi, zararlı atıkların yok edilmesi için kullanılmış malların bertarafı vb. faaliyetler) (radyoaktif atıklar hariç)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![[PDF] EKONOMİK YÖNÜYLE DENİZLİ - Free Download PDF](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## [PDF] EKONOMİK YÖNÜYLE DENİZLİ - Free Download PDF
+2016 EKONOMİK YÖNÜYLE DENİZLİ DENİZLİ TİCARET ODASI YAYINLARI - 43 ISSN 1300 - 3658 Kendiniz için değil, bağlı bulunduğunuz ulus için elbirliği ile çalışınız. Çalışmaların en yükseği budur. Denebilir ki, hiçbir şeye muhtaç değiliz, yalnız bir tek şeye 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Asfalt Betonun Fiziksel Özelliklerin Darbeli Sıkıtırmanın Etkisi](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Asfalt Betonun Fiziksel Özelliklerin Darbeli Sıkıtırmanın Etkisi
+Asfalt Betonun Fiziksel Özelliklerinde Darbeli Sıkıştırmanın Etkisi 3 ùekil 2: Marshal sıkıtırma tokmağı ve yoğurmalı kompaktör Asfalt betonunun fiziksel özelliklerine ait úartname kriterleri Tablo 4'te gösterilmitir. Tablo 5'te KGM Yollar Fenni artnamesine göre; hafif
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![iskanunu](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## iskanunu
+Doğal asfalt, asfaltit, asfaltlı taş (doğal katı zift) ve bitüm madenciliği 08.99.03 Kıymetli ve yarı kıymetli taşların (yakut, zümrüt, safir, kalsedon vb.) ocakçılığı (kehribar, Oltu taşı, lüle taşı ve elmas hariç) 08.99.04 Grafit ocakçılığı 08.99.05 Elmas (endüstri elmasları
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![biruni.tuik.gov.tr](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## biruni.tuik.gov.tr
+. doğal asfalt ve bitüm. D İmalat İmalat faaliyetleri, materyallerin, maddelerin ye da bileşenlerin mekanik, fiziksel ye da kimyasal yollarla yeni ürünler haline dönüştürmedir. Dönüştürülen materyaller, maddeler ya da bileşenler, diğer imalat faaliyetleri ile birlikte 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İşyeri Tehlike Sınıfları Listesi (Güncel) İşyeri Tehlike Sınıfları .](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## İşyeri Tehlike Sınıfları Listesi (Güncel) İşyeri Tehlike Sınıfları .
+Doğal asfalt, asfaltit, asfaltlı taş (doğal katı zift) ve bitüm madenciliği Çok Tehlikeli 08.99.03 Kıymetli ve yarı kıymetli taşların (yakut, zümrüt, safir, kalsedon vb.) ocakçılığı (kehribar, Oltu taşı, lüle taşı ve elmas hariç) Çok Tehlikeli 08.99.04 Grafit ocakçılığı 08.99.05
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Asfalt serimi - YouTube](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Asfalt serimi - YouTube
+28/4/2013· 2013 yılı Büyükçekmece belediyesi asfalt serimi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Asfalt Freze Uçları](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Asfalt Freze Uçları
+SOOSAN / JUNJIN JD1300E Yüzey Delici. SOOSAN / JUNJIN JD1400E Yüzey Delici. SOOSAN / JUNJIN JD2000 DTH Yüzey Delici. Kazıyıcı Uçlar. Asfalt Freze Uçları. Zemin Uygulamaları İçin Uçlar. Vibrasyonlu Kırıcı Rıpper. VIBRO RIPPER DBL 150. VIBRO RIPPER DBL 200.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ARGE MUHASEBESİ](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## ARGE MUHASEBESİ
+Doğal asfalt, asfaltit, asfaltlı taş (doğal katı zift) ve bitüm madenciliği 08.99.03 Kıymetli ve yarı kıymetli taşların (yakut, zümrüt, safir, kalsedon vb.) ocakçılığı (kehribar, Oltu taşı, lüle taşı ve elmas hariç) Grafit ocakçılığı 08.99.04 Elmas (endüstri elmasları dahil
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En İyi Kalite asfalt freze teet](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## En İyi Kalite asfalt freze teet
+Şaşırtıcı derecede uygun fiyatlarla sadece Alibaba'da harika asfalt freze teet satın alın. Güvenilir tedarikçilerden ihtiyaçlarınıza uygun çok çeşitli asfalt freze teet bulun. Sevkiyata Hazır Ticaret Fuarı Kişisel Koruyucu Ekipman
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Babaeski Ticaret ve Sanayi Odası](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Babaeski Ticaret ve Sanayi Odası
+frezeleme, rendeleme, parlatma, oluk açma, perdahlama, birleştirme, kaynak yapma vb. faaliyetler)  Plastikten inşaat amaçlı tabakalar, levhalar, filmler, folyolar, şeritler ve borular ile asfalt vb. malzemeden çatı kaplama ürünlerinin toptan ticareti 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Termodinamikfo](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Termodinamikfo
+Genel merkezi Fagersta'da (İsveç) olan ve 75'ten fazla ülkede şubesi bulunan Seco Tools frezeleme, tornalama, delik açma operasyonları için metal kesme çözümlerinde dünya lideri tedarikçi şirket Seco Tools'un Sürdürülebilirlik ve Denetim Koordinatörü Ted
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MADEN, MADENİ EŞYA VE MAKİNA FAALİYETLERİNE .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## MADEN, MADENİ EŞYA VE MAKİNA FAALİYETLERİNE .
+maden madeni eşya ve makine faaliyetlerine ilişkin güncel faaliyet kodları (nace) listesidir. Akışkan gücü ile çalışan ekipmanların imalatı, bakım onarım ve ticareti 28.12.05 Akışkan gücü ile çalışan ekipmanların ve bunların parçalarının imalatı (hidrolik ve pnömatik 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ATSO](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## ATSO
+08.99.02 Doğal Asfalt, Asfaltit, Asfaltlı Taş (Doğal Katı Zift) Ve Bitüm Madenciliği 08.99.03 Kıymetli Ve Yarı Kıymetli Taşların (Yakut, Zümrüt, Safir, Kalsedon Vb.) Ocakçılığı (Kehribar, Oltu Taşı, Lüle Taşı Ve Elmas Hariç) 08.99.04 Grafit Ocakçılığı 08.99.05
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tehlike Sınıfları Listesi-isgrehberi](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Tehlike Sınıfları Listesi-isgrehberi
+Doğal asfalt, asfaltit, asfaltlı taş (doğal katı zift) ve bitüm madenciliği Çok Tehlikeli 08.99.03 Kıymetli ve yarı kıymetli taşların (yakut, zümrüt, safir, kalsedon vb.) ocakçılığı (kehribar, Oltu taşı, lüle taşı ve elmas hariç) Çok Tehlikeli 08.99.04 Grafit ocakçılığı 08.99
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kopya isyeri-tehlike-siniflari-listesi | gokhan otru - .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Kopya isyeri-tehlike-siniflari-listesi | gokhan otru - .
+Kopya isyeri-tehlike-siniflari-listesi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dörtyol Ticaret ve Sanayi Odası - Dörtyol HATAY](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Dörtyol Ticaret ve Sanayi Odası - Dörtyol HATAY
+DÖRTYOL ASFALT SANAYİ VE TİCARET ANONİM ŞİRKETİ 20/03/2014 BÜYÜKASLAN DEMİR ÇELİK İNŞAAT LOJİSTİK SANAYİ VE TİCARET LİMİTED ŞİRKETİ 26/10/2010 ŞAHİN KÖMÜR TİCARET ANONİM ŞİRKETİ 05/02/2014 ORHAN KÖMÜRCÜLÜK
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tehlikeli İşyeri Sınıfları - AKCA OSGB](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Tehlikeli İşyeri Sınıfları - AKCA OSGB
+Tehlikesiz atıkların ıslahı ve bertaraf edilmesi ve bertarafı için depolama alanlarının işletilmesi Tehlikeli 43.32.01 Hazır mutfaklar, mutfak tezgahları, gömme dolaplar, iç merdivenler ile ince tahta, lambri ve benzerlerinin montajı işleri Tehlikeli 43.32.02
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![NACE KODLARI MESLEK GRUBU 04 - TurkExim .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## NACE KODLARI MESLEK GRUBU 04 - TurkExim .
+Doğal asfalt, asfaltit, asfaltlı taş (doğal katı zift) ve bitüm madenciliği 08.99.03 Kıymetli ve yarı kıymetli taşların (yakut, zümrüt, safir, kalsedon vb.) ocakçılığı (kehribar, Oltu taşı, lüle taşı ve elmas hariç) 08.99.04 Grafit ocakçılığı 08.99.05 Elmas (endüstri elmasları
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İSFALT](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## İSFALT
+Asfalt Üretimi Asfalt Uygulama Ar-Ge Laboratuvar Geri Dönüşüm Eğitim Faaliyetleri Kış Çalışmaları Kalite Kontrol
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Asfalt Frezeleme](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Asfalt Frezeleme
+Asfalt Silindirleri Toprak Silindirleri + Tarım Kazıcı-Yükleyiciler Mini Kazıcı-Yükleyiciler Mini Ekskavatörler Mini Yükleyiciler Teletruk Teleskobik Yükleyiciler-Tarım Lastik Tekerlekli Yükleyiciler-Tarım Kompakt Teleskobik Yükleyici Fastrac + Endüstriyel
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KOSGEB Desteklenen Sektörler Mart 2021 - .](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## KOSGEB Desteklenen Sektörler Mart 2021 - .
+Doğal asfalt, asfaltit, asfaltlı taş (doğal katı zift) ve bitüm madenciliği 08.99.02 Kıymetli ve yarı kıymetli taşların (yakut, zümrüt, safir, kalsedon vb.) ocakçılığı (kehribar, Oltu taşı, lüle taşı ve elmas hariç) 08.99.03 Grafit ocakçılığı 08.99.04 Elmas (endüstri elmasları
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![NACE Kodları (2019) - OMİD](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## NACE Kodları (2019) - OMİD
+089902 Doğal Asfalt, Asfaltit, Asfaltlı Taş (Doğal Katı Zift) Ve Bitüm Madenciliği 089903 Kıymetli Ve Yarı Kıymetli Taşların (Yakut, Zümrüt, Safir, Kalsedon Vb.) Ocakçılığı (Kehribar, Oltu Taşı, Lüle Taşı Ve Elmas Hariç) 089904 Grafit Ocakçılığı 089905 Elmas
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Asfalt Freze Üreticilerinden ve Asfalt Freze .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Yüksek Kaliteli Asfalt Freze Üreticilerinden ve Asfalt Freze .
+5996 asfalt freze tedarikçisi bulunmaktadır ve bunların büyük bir kısmı Asya içindedir. En yüksek tedarik eden ülkeler veya bölgeler Çin, Tayvan, Çin ve Singapur şeklindedir ve sırasıyla asfalt freze ürününün 99%, 1% ve 1% kadarını karşılarlar.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![tuik.gov.tr](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## tuik.gov.tr
+01.11.07 Acı bakla yetiştirilmesi 01.11.07 Nohut yetiştirilmesi 01.11.07 Fasulye (taze ve kuru) yetiştirilmesi 01.11.07 Börülce yetiştirilmesi 01.11.07 Barbunya yetiştirilmesi 01.11.07 Baklagillerin yetiştirilmesi (fasulye (taze ve kuru), bakla, nohut, mercimek, acı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## 
+Belirli bir mala tahsis edilmiş mağazalarda plastikten inşaat amaçlı levhalar, folyolar, şeritler ve borular ile asfalt vb. malzemeden çatı kaplama ürünlerinin perakende ticareti (inşaat için naylon örtü, shıngle, mantolama amaçlı strafor vb. dahil) G.1.47.52.90
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![biruni.tuik.gov.tr](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## biruni.tuik.gov.tr
+08.99.02 Doğal asfalt, asfaltit, asfaltlı taş (doğal katı zift) ve bitüm madenciliği 08.99.02 Doğal asfalt, asfaltit ve asfaltlı taş ocakçılığı ile doğal katı zift madenciliği ve taş ocakçılığı 08.99.02 Bitümen çıkarımı 08.99.03 Yakut, zümrüt, safir, kalsedon
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nace Kodu Listesi](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Nace Kodu Listesi
+08.99.02 Doğal Asfalt, Asfaltit, Asfaltlı Taş (Doğal Katı Zift) Ve Bitüm Madenciliği 08.99.03 Kıymetli Ve Yarı Kıymetli Taşların (Yakut, Zümrüt, Safir, Kalsedon Vb.) Ocakçılığı (Kehribar, Oltu Taşı, Lüle Taşı Ve Elmas Hariç) 08.99.04 Grafit Ocakçıl 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Atık Asfalt Malzemesini Değerlendiriyoruz](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Atık Asfalt Malzemesini Değerlendiriyoruz
+Hizmete giren yeni tesiste bozuk yollardan kazınan asfalt kalıntıları işlemden geçirilerek atık olmaktan çıkarılarak yeniden kullanılıyor. Şimdilik yüzde 10 oranında geri dönüşüm sağlayan sistemin, daha da geliştirilerek bu oranın yüzde 20'ye çıkarılması hedefleniyor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Asfalt kazıma freze / trimer.guneyasfalt..asphalt .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Asfalt kazıma freze / trimer.guneyasfalt..asphalt .
+W1900 wirtgen
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

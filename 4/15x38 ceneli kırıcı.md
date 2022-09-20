@@ -1,0 +1,41 @@
+# 15x38 ceneli kırıcı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çeneli Kırıcı – Yaman Kırma Eleme](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Çeneli Kırıcı – Yaman Kırma Eleme
+Bant Konveyör (5) Dere Malzemesi Kırıcı (DMK) (3) Dik Milli Kırıcı (8) Helezon Yıkayıcı (1) Mekanik Stabilizasyon Plenti (1) Sekonder Darbeli Kırıcı (2) Tersiyer Kırıcı (3) Titreşimli Elek (7) Yedek Parça (32) Çekiçli Kırıcı (1) Çeneli Kırıcı (2)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sabit Çeneli Kırıcı - Terex MPS](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Sabit Çeneli Kırıcı - Terex MPS
+Terex MPS Sabit Çeneli Kırıcı, Konik Kırıcı, Yatay Milli Darbeli Kırıcı, Dikey Milli Darbeli Kırıcı ve Elek grubu Sağlam, sahada ispatlanmış tasarımlar ve neredeyse 200 yıllık çeneli kırıcı üretim tecrübesi Terex® Mineral İşleme Sistemleri çeneli kırıcı hattımızızın
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çeneli kırıcı - YouTube](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Çeneli kırıcı - YouTube
+29/11/2014· Ocakdan çıkarılan manyesit çeneli kırıcıda kırılıyor .Bu esnada kırıcının buyuk bir malzemeyle sıkışması ve işçilerin müdalesiyle kırıcının azının açılması g
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çeneli Kırıcı | Güven Taş Makina](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Çeneli Kırıcı | Güven Taş Makina
+Çeneli kırıcılar, taş kırma eleme tesisleri n de en çok kullanılan kırıcı tiplerinden birisidir.Birincil kırıcı olarak bilinen ve primer - sekonder kırıcı olarak da kullanılan çeneli kırıcılar Güven taş makina kalitesi ile yüksek kapasite de üretilmektedir. Sert ve aşındırıcı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çeneli Kırıcı - TTC Mühendislik](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Çeneli Kırıcı - TTC Mühendislik
+Çeneli kırıcı, en yumuşak başlayıp en sert olanına kadar her türlü taşa uygulanabilen eşsiz bir makinedir. Bu tip kırıcılar, kırmanın ilk aşamasında olduğu gibi işlemin ikinci aşamasında da kullanılabilmektedir. Sadece birincil kırıcılar kullanarak, ana amacı beton ve yol 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çeneli Kırıcı | GENERAL MAKİNA](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Çeneli Kırıcı | GENERAL MAKİNA
+En sert malzemeler bile bir çeneli kırıcı ile kolayca kırılabilir. En sert malzemeleri bile rahatlıkla kırabilen çeneli kırıcılar,hidrolik sistem yardımıyla da makineden almak istediğiniz ürünü, ürün kapasitesine göre çene açıklığının kolay ve hızlı bir şekilde ayarlanmasına olanak vermektedir. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çeneli Kırıcı - Pi Makina](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Çeneli Kırıcı - Pi Makina
+Çeneli Kırıcı, her türlü aşındırıcılığı ve sertliği olan malzemeleri kırmak üzere tasarlanmıştır. Malzemeyi sabit ve hareketli çene arasında hareketli çenenin eliptik hareketiyle sıkıştırıp kıran Çeneli Kırıcılar Yaygın olarak daha çok granit bazalt ve dere malzemesi .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BB 100 : Fonksiyon & Özellikler - RETSCH - Öğütücü & .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## BB 100 : Fonksiyon & Özellikler - RETSCH - Öğütücü & .
+BB100 Çeneli kırıcı,çabuk ve kolay kırma yöntemiyle,orta-sert,kırılgan ve sert malzemelerin parçalanmasında kullanılır. Endüstriyel tesislerde ve laboratuvarlarda numune hazırlamak için BB100 oldukça idealdir. Çene malzemesi farklı seçeneklerde olabilir,ağır metal
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çeneli Kırıcılar-MEKA Kırma Eleme Teknolojileri](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Çeneli Kırıcılar-MEKA Kırma Eleme Teknolojileri
+Gerginlik indirgemesi için ısıl işlemden geçirilmiş, düşük karbonlu çelikten imal edilmiş, kaynaklı tasarım kırıcı gövdesi. Mil & Rulmanlar MEKA Çeneli Kırıcılarda hassas işlemeli, sıcak dövmeli, ısıl işlemden geçirilmiş Cr-Si-Mn- Mo SAE 4140 (42Cr, Mo4) çelik .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çeneli Kırıcılar](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Çeneli Kırıcılar
+ÇENELİ KIRICILAR Ağır işler için, yüksek teknoloji ile tasarlanmış kırıcılar; primer kırma aşamasında her tipten malzemenin, en düşük aşınma maliyetleriyle işlenmesini sağlar. Tercihinize bağlı olarak, sabit veya mobil olarak üretim yapılmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

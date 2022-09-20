@@ -1,0 +1,69 @@
+# kil kırıcı polysius
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BC Katalog 11 - Bursa Çimento Fabrikası A.Ş.](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## BC Katalog 11 - Bursa Çimento Fabrikası A.Ş.
+04 Ürünlerimiz CEM I 42,5 R CEM I çimento klinkeri, minör bileşen kalker ve priz düzenleyici olarak bir miktar alçı taşının birlikte öğütülmesiyle elde edilen hidrolik bağlayıcıdır. CEM II / A-M (P-L) 42,5 R CEM I çimento klinkeri, % 6-20 doğal puzolan tras ve kalker ile
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![OGUTME_TEKNOLOJILERI_2016.pdf.pdf - Scribd](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## OGUTME_TEKNOLOJILERI_2016.pdf.pdf - Scribd
+Bu kırıcı, barmac kırıcı adıyla bilinen Dik Milli Kırıcıdır. Yumuşak ve orta sertlikteki (feldispat, siyenit,kalker,kömür vb) malzemeleri kırabileceği gibi, sert ve aşındırıcı malzemelerin kırılmasında kullanım ömürleri uzundur. Sert taneler birbirine (rock to rock
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Polimer Kil/Evde Silikon Kalıp Yapımı 1 (Nişastalı) / .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Polimer Kil/Evde Silikon Kalıp Yapımı 1 (Nişastalı) / .
+Homemade silicone mold making (Corn Starch)Polimer kil ile şekiller, figürler oluşturmak için yaptığım kalıplar. Epoksi için kalıplar:https://
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HER TÜRLÜ SORUNU ÇÖZMEK İÇİN HARİKA POLİMER KİL .](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## HER TÜRLÜ SORUNU ÇÖZMEK İÇİN HARİKA POLİMER KİL .
+9/7/2020· RENKLİ SONUÇLAR ELDE EDİLEN DAHİCE POLİMER KİL VE REÇİNE UYGULAMALARI Eğer klavyenizdeki bir tuş bozulmuşsa endişe etmenize gerek yok. Bu videoda size, polim
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Puhu Sanat - Sanatın Adresi](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Puhu Sanat - Sanatın Adresi
+Staedtler Fimo Modelleme Kil Seti 12 Soft Renk Natural C12-4 109,00 KDV Dahil Favorilere Ekle Ürünü İncele 1 E-Bültenimize Kayıt Olun! Fırsat ve İndirimlerden Haberdar Ol! SOSYAL MEDYADA BİZ PUHU SANAT Av. Süreyya Ağaoğlu sk. 3/A Teşvikiye inf 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kirma Ve Ogutme Islemleri Kiricilar Degi](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Kirma Ve Ogutme Islemleri Kiricilar Degi
+Scribd is the world's largest social reading and publishing site. Open navigation menu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Aksesuarlar | Kale Kilit](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Aksesuarlar | Kale Kilit
+Vadistanbul Ayazağa Mahallesi Azerbaycan Caddesi No 3F/1-E Blok 34396 Sarıyer/İstanbul
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Polysius rotary kiln. Centre piece of the pyroprocessing system.](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Polysius rotary kiln. Centre piece of the pyroprocessing system.
+Polysius kiln technology. Since the introduction of the rotary kiln, Polysius has con-structed more than 1,500 production lines worldwide. Polysius kiln lines are used in the cement and refractories industry, in the chemical indus-try, in the iron and steel pro
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Proto Polimer Kil 50Gr. - Yeşil | hobi24](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Proto Polimer Kil 50Gr. - Yeşil | hobi24
+Kil Hamurları kategorisinde bulunan Proto Polimer Kil 50Gr. - Yeşil ürününü detaylı olarak incelemek ve satın almak için tıklayınız! Dil Seçeneklerimiz Sitemizin Ana Dili Türkçe'dir. Lütfen çevirmek istediðiniz dil seçeneðine týklayýnýz.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Polimer Kil - Hepsiburada](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Polimer Kil - Hepsiburada
+Polimer Kil fiyatları, polimer kil çeşitleri ve polimer kil modelleri uygun fiyatlar ile burada. Tıkla, en ucuz polimer kil seçenekleri ayağına gelsin. Staedtler Fimo Professional Polimer
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Polimer Kil Çeşitleri, Polimer Kil Fiyatları](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Polimer Kil Çeşitleri, Polimer Kil Fiyatları
+Polimer Kil Çeşitleri ankasanat adresinde uygun fiyatlı olarak satılmaktadır. Uygarlık doruğunun merdiveni sanattır." Sanat insanoğlunun gelişmesi, evrilmesi, bugünkü medeniyeti inşa etmenin temelidir. Mağara duvarlarına yapılan resimlerden bugünlere uzun bir 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Polimer Kil - Hobisanatavm](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Polimer Kil - Hobisanatavm
+Polimer Kil malzemelerine uygun fiyatlarda erişim için hobisanatavm SOSYAL MEDYADA BİZİ TAKİP EDİN Sosyal medyaya özel indirim ve kampanyalardan ilk sen haberdar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bir çimento fabrikası farin değirmeni enerji optimizasyonu .](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Bir çimento fabrikası farin değirmeni enerji optimizasyonu .
+Bu çalışmanın amacı, bir çimento fabrikası farin değirmeninde sabit boyut ( incelik ) hedefinde değirmen kapasitesinin artırılarak spesifik enerji tüketiminin azaltılmasıdır. Bu amaç doğrultusunda, ? numune alımından ve analizinden kaynaklanabilecek enerji 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇİMSA ÇİMENTO SANAYİ VE TİCARET ANONİM ŞİRKETİ 01 .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## ÇİMSA ÇİMENTO SANAYİ VE TİCARET ANONİM ŞİRKETİ 01 .
+hammadde kırıcısı, kil ve kalker ön homojenizasyon tesisleri, 160 ton/saat kapasiteli farin  ön ısıtıcı polysius dört kademeli prekalsinasyonlu ön ısıtıcı ile yenilenmiş ve diğer ünitelerinde gerekli düzenlemeler yapılarak yıllık 440 bin ton kapasiteye çıkartılmıştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çimentonun Tarihi - MEKA Concrete Plants](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Çimentonun Tarihi - MEKA Concrete Plants
+1928 yılında Polysius tarafından Lepol sistemi, 1930 yılında dik rulolu değirmen, 1932 fırın öncesi ön ısıtma siklonları, 1937 yılında Fuller ızgara soğutucu, 1950 yılında mekanik sınıflandırıcılar, 1960 yılında fırında ilk yan geçiş sistemi, 1966 yılında ön
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vahap KORKMAZ - assistant professor - Afyon Kocatepe .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Vahap KORKMAZ - assistant professor - Afyon Kocatepe .
+• Kil madenine alternatif olarak metaşist malzemesi bulunarak bu malzemenin kullanılması ile ocakta harmanlama (karışım ) maliyetleri ortadan kaldırılmıştır. • Alemünyum içeriği yüksek kil kullanılmasının teşvik edilmesi sayesinde % 2 kullanılan boksit madeni kullanımına gerek kalmamış olup Aleminyum içeriği bu hammaddeden sağlanmıştır.Boksit cevheri maliyeti 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) MİNERAL ENDÜSTRİSİNDE KULLANILAN .](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## (PDF) MİNERAL ENDÜSTRİSİNDE KULLANILAN .
+O tojen (Şekil 6), çubuklu (Şekil 7) ve bilyalı (Şe kil 8) değirmenlerden öğütme sonrası malzeme boşaltma sistemlerine göre de değirmen yapıları değişmekted ir. Şekil 6.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,97 @@
+# beton kiriş ve döşemelerin tasarımı icin ucretsiz bir programdır
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ideCAD Statik | ideYAPI / ideCAD | Her şey planladığınız .](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## ideCAD Statik | ideYAPI / ideCAD | Her şey planladığınız .
+Her şey planladığınız gibi! ideCAD Statik, yapı sistemlerinin modellenmesi, sonlu elemanlar analizi, yönetmelik uyumlu tasarımı, performans değerlendirmesi ve güçlendirilmesi için özel olarak geliştirilmiş çok kapsamlı bir çözüm paketidir. Betonarme çelik ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BETONARME KİRİŞLERİN KESMEYE KARŞI GÜÇLENDİRİLMESİNDE .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## BETONARME KİRİŞLERİN KESMEYE KARŞI GÜÇLENDİRİLMESİNDE .
+Kiriş-2 ve Kiriş-3 deney elemanlarının etriye donatısı oranı, referans elemanının etriye donatısına oranları sırasıyla 0.34 ve 0.25'dir. Kiriş-4 deney elemanı deney programında uç bir örnek olup içinde etriye bulunmamaktadır. Kiriş-5 deney elemanı önceden
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İşletme Mühendisi](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## İşletme Mühendisi
+Hatta iyi bir ortalama ve yurtdisi icin gereken bazi sinavlardan alacagin yuksek puanlarla Amerika veya Avrupa ulkelerinde burslu master bile yapabilirsin. Son 2 sene ile ilgili benim de bir fikrim yok ancak bir .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![tasarım beton kiriş Ticari Kullanımlar İçin](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## tasarım beton kiriş Ticari Kullanımlar İçin
+Alibaba'da olağanüstü tasarım beton kiriş harcayın ve üretkenliğinizi artırın. tasarım beton kiriş, pano üretiminde performansı artırdı. Sevkiyata Hazır Ticaret Fuarı .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BETONARMEDE KİRİŞ DİZAYNI - Ahmet Celikkollu](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## BETONARMEDE KİRİŞ DİZAYNI - Ahmet Celikkollu
+Bir elemanın eksenel basınç kuvveti 0.10 x fck x Ac den daha küçükse bu eleman kiriş olarak adlandırılır(fck=beton karakteristik basınç dayanımı ve Ac= eleman kesit alani). Yani kolon ile kirişi ayiran bu kıstasdir, normal kuvvet derecesidir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Beton Kiriş Üreticilerinden ve Beton Kiriş .](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Yüksek Kaliteli Beton Kiriş Üreticilerinden ve Beton Kiriş .
+Yüksek Kaliteli Beton Kiriş Üreticilerini Beton Kiriş Tedarikçilerini ve Beton Kiriş Ürünleri en iyi fiyatta Alibaba'da bulun. Sevkiyata Hazır Ticaret Fuarı Kişisel Koruyucu Ekipman Hizmetler Alibaba üzerinden satın Yardım
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kağıt Fabrikalarında Elektrik Mühendisliği ve Verimlilik](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Kağıt Fabrikalarında Elektrik Mühendisliği ve Verimlilik
+İyi bir topraklama tasarımı arıza ve iş güvenliğini olumlu yönde etkiler. Çok iyi hazırlanmış fabrika standartları ve teknik şartnamelerle işin gereğine göre alımın .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BETONARME YAPILAR PROJE MÜHENDİSLİĞİ KURSU | .](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## BETONARME YAPILAR PROJE MÜHENDİSLİĞİ KURSU | .
+Betonarme yapılar proje mühendisliği kursu herhangi bir betonarme yapının tasarım, analiz ve boyutlama süreçleri ile çizim standartları ve detayları üzerine yoğunlaşan paket programdır. Kurs kapsamında betonarme yapıların TBDY-2018 ve TS-500 uyarınca
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) SAFE Yazarlar | Project Muhendislik](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## (PDF) SAFE Yazarlar | Project Muhendislik
+SAFE Yazarlar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İSG Sözlük - K Harfi ile Başlayan Teknik Terimler | İSG .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## İSG Sözlük - K Harfi ile Başlayan Teknik Terimler | İSG .
+1) Çalışanı, yürütülen işten kaynaklanan, sağlık ve güvenliği etkileyen bir veya birden fazla riske karşı koruyan, çalışan tarafından giyilen, takılan veya tutulan, bu amaca uygun olarak tasarımı yapılmış tüm alet, araç, gereç ve cihazlardır, 2) Kişiyi bir veya birden
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Beton Tasarımı Üreticilerinden ve Beton .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Yüksek Kaliteli Beton Tasarımı Üreticilerinden ve Beton .
+Yüksek Kaliteli Beton Tasarımı Üreticilerini Beton Tasarımı Tedarikçilerini ve Beton Tasarımı Ürünleri en iyi fiyatta Alibaba'da bulun. Sevkiyata Hazır Ticaret Fuarı Kişisel Koruyucu Ekipman Hizmetler Alibaba üzerinden satın Yardım
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![RAF 06 by Arkitera - Issuu](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## RAF 06 by Arkitera - Issuu
+Ekipmanların kullanımında ve beton döküm süresinde optimizasyon sağlanması ile projenin tamamlanması için  bir Hartmut S. Engel tasarımı olan Vaero ile ışığı insan ve mekan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İnşaat Mühendisliği büro staj defteri örneği pdf - .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## İnşaat Mühendisliği büro staj defteri örneği pdf - .
+Açılan kiriş bilgisi kutusunda ilk önce kiriş genişliği olan B daha sonra kiriş derinliği olan D değeri girilir ve kiriş boyutları belirlenmiş olur. Kiriş boyutları belirlendikten sonra kirişin üstüne gelecek duvar yüküne ve gelen zati yüke göre bir yük türü seçilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(BETON - BETON BİRLEŞİMLERİ) TASARIM ESASLARI](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## (BETON - BETON BİRLEŞİMLERİ) TASARIM ESASLARI
+Beton kiriş kesitinde oluşan «Çekme» ve «Basınç» etkileri basitleştirilmiştir. «Basınç» vektörleri; yükün mesnetlere doğru aktığı yönlerde, «Çekme» vektörleri donatı ihtiyacı duyulan yönlerde,
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Betonarme Tasarım Proje Örnekleri | İnşaat .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Betonarme Tasarım Proje Örnekleri | İnşaat .
+2) Kiriş ve kolonlar için mesnetler ve açıklıkta en elverişsiz kombinasyon değerleri gözönüne alınacaktır. 3) Kiriş mesnet momentlerinde düzeltme yapılacaktır. 4) Verilen aksta çerçeve kirişlerinde kayma hesabı yapılacak ve kayma donatıları hesaplanacaktır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![K | Marmara Grup OSGB](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## K | Marmara Grup OSGB
+Primary Navigation Menu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TÜRKİYE BETON BİRLİĞİ VE HAZIR BETON SEKTÖRÜ](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## TÜRKİYE BETON BİRLİĞİ VE HAZIR BETON SEKTÖRÜ
+kolon, kiriş ve döşemelerin kullanıldığı ilk yapıyı tasarladı. 1903 İlk betonarme yüksek bina Cincinnati, ABD'de yapıldı.  Türkiye 'de hazır beton sektörü yeni kurulan bir sektör olmasına rağmen gelişmekte olan bir sektör-dür. Fakat son yıllardaki krizlerle birlikte 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÖRNEK PROBLEMLERLE BETONARME](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## ÖRNEK PROBLEMLERLE BETONARME
+ÖRNEK PROBLEMLERLE BETONARME Prof. Dr. Cengiz Dündar Arş. Gör. Serkan Tokgöz Prof. Dr. A. Kamil Tanrıkulu ÇUKUROVA ÜNİVERSİTESİ MÜHENDİSLİK MİMARLIK FAKÜLTESİ İNŞAAT MÜHENDİSLİĞİ BÖLÜMÜ ADANA, 2006 18.3 m 9.15 m 9
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Beton Beton Kirişi Üreticilerinden ve Beton .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Yüksek Kaliteli Beton Beton Kirişi Üreticilerinden ve Beton .
+Yüksek Kaliteli Beton Beton Kirişi Üreticilerini Beton Beton Kirişi Tedarikçilerini ve Beton Beton Kirişi Ürünleri en iyi fiyatta Alibaba'da bulun. 24 saat içinde birçok fiyat teklifi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Örneklerle SAFE R8 - SlideShare](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Örneklerle SAFE R8 - SlideShare
+betonarme döşeme ve temel sistemlerinin çözümü ve boyutlandırılması amacıyla geliştirilmiş bir programdır.  kiriş ve kolonlar için yerel eksenler, sistem için tanımlanmış genel eksenler ile birlikte gösterilmektedir. Şekilde görüldüğü gibi, tüm çubuk 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) İnşaat Projelerinde Süresel Planlamayı Etkileyen .](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## (PDF) İnşaat Projelerinde Süresel Planlamayı Etkileyen .
+İnşaat Projelerinde Süresel Planlamayı Etkileyen Faktörler ve Etki Derecelerinin Türkiye Koşullarında Belirlenmesi Ümit Işıkda ğ Murat Kuruoglu Volkan Ezcan Ümit Işıkdağ Murat Kuruoglu Volkan Ezcan Download PDF Download Full PDF Package This paper 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Örneklerle SAFE R8 - SlideShare](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Örneklerle SAFE R8 - SlideShare
+SAFE yazılımı, Computers and Structures, Inc. (CSI) firması tarafından betonarme döşeme ve temel sistemlerinin çözümü ve boyutlandırılması amacıyla geliştirilm. Örneklerle SAFE R8 1. ÖRNEKLERLE Günay ÖZMEN Engin ORAKDÖĞEN Kutlu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Betonarme Bir Yapının Ön Boyutunu Öğrenir - Haber](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Betonarme Bir Yapının Ön Boyutunu Öğrenir - Haber
+Kullanılan beton (muhtemel ve muhtemel flekso-kompresyon dikkate alınmaksızın). Sadece ön-boyutlandırma amacıyla, emniyetin lehine 10 mpa veya 100 kgf / m2'lik bir güvenlik faktörü göz önünde bulundurularak, izin verilebilir hesaplama gerilimi ile dayanağın 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sert ve Özel beton formu kiriş Kalitesi](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Sert ve Özel beton formu kiriş Kalitesi
+Alibaba, çeşitli kullanımlar için özelleştirilmiş beton formu kiriş geniş bir birinci sınıf, üstün kalite yelpazesi sunar. Rekabetçi fiyatlarla verimli, en iyi beton formu kiriş satın alın.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

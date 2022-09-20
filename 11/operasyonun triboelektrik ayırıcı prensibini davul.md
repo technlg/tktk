@@ -1,0 +1,93 @@
+# operasyonun triboelektrik ayırıcı prensibini davul
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Doğruyol Gazetesi](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Doğruyol Gazetesi
+Anlayana sivrisinek saz anlamayana davul zurna az.. Çok konuşma, boş konuşma, kem konuşma (Şeyh Edebali) CHP Grup Başkanvekili Özgür Özel, katıldığı televizyon programında Cumhurbaşkanı Erdoğan'ın İstanbul Sözleşmesi'nden çıkma yetkisi olmadığını, bu yüzden İstanbul Sözleşmesinin halen geçerli olduğunu öne sürdü.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MEKANİK LABORATUVARI](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## MEKANİK LABORATUVARI
+2 İKİNCİ BASKIYA ÖNSÖZ 2010 yılında Arş. Görİlker ÖZŞ HİN, . Gönül KÇ A, Ali ÇETİNKAY Şevket ŞİMŞEK, Ayşe AKYOL, Deniz TAKCI, Birsen KESİK ve Gülay ALTINDEMİR tarafından hazırlanan Mekanik Laboratuarı deney föyü tekrar gözden geçirilerek
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ergenekon - Calaméo](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## ergenekon - Calaméo
+Publishing platform for digital magazines, interactive publications and online catalogs. Convert documents to beautiful publications and share them worldwide. Title: ergenekon, Author: Ergenekon Terör Örgütü İddianamesi deliler, Length: 2391 pages, Published: 2009
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Murat Gökalp - Kadı Iyaz Ve Şifâ Adlı Eserinde Peygamber .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Murat Gökalp - Kadı Iyaz Ve Şifâ Adlı Eserinde Peygamber .
+Trepanasyona tabi tutulmuş kafataslarının incelenmesi sonucunda operasyonun 4 metotla yapıldığı tespit edilmiştir: 1. Kazıma: Kafatasının bir bölgesi, keskin bir aletle beyin zarına (duramater) ka-dar kazınır. (Rönesans devrinde İtalya'da, ortaçağda Romanya'da 2.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Snowball](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Snowball
+a a'da a'daki a'dan a'nın a'ya aa aa'nın aa'ya aaa aacakları aacağı aacağız aarayış aaron aasset ab ab' ab'ci ab'cilikte ab'de ab'den ab'li ab'ne ab'nin ab'nın ab'ye ab'
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Normal Basınçlı Hidrosefali ve Atrofik Ventrikülomegali Ayırıcı .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Normal Basınçlı Hidrosefali ve Atrofik Ventrikülomegali Ayırıcı .
+ayırıcı tanıda MRG'nin katkısı incelenmiştir. Gereç ve Yöntem Ventriküler dilatasyonu olan 14 hasta çalışmaya alındı. Olguların 7'si erkek, 7'si kadın, yaş ortalamaları 58.5 (4 ay ile 86 yaş arası, median 66 yaş) idi. Hastaların 6'sında NBH ile uyumlu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ÇİFTLİK FAALİYETLERİNİN ÇEŞİTLENDİRİLMESİ VE İŞ GELİŞTİRME](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## ÇİFTLİK FAALİYETLERİNİN ÇEŞİTLENDİRİLMESİ VE İŞ GELİŞTİRME
+IPARD-2 10/06/2020 Dal Öğütme Makinesi Telli Terbiye Sistemi Çizel Ot/Çayır Biçme Makinesi Ot Toplama Tırmığı Su Tankeri Ön yükleyici Arka Yükleme Kepçesi Konveyör Yükleme Bandı Rototiller Ağırlık Bıçak Sayısı Ebat Güç İş Genişliği Tip Elevatör Kapasite
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sürtünme Yoluyla Elektriklenmenin Perde Arkası | .](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Sürtünme Yoluyla Elektriklenmenin Perde Arkası | .
+Yüzyıllar boyunca bilimciler statik elektrik olarak da bilinen "triboelektrik yüklenme"yi (sürtünme yoluyla elektriklenme) anlamaya çalıştılar.Triboelektrik yüklenme, fotokopi makinesindeki veya lazer yazıcıdaki mürekkebin kağıda yapışmasını sağlar ve muhtemelen uzaydaki tozdan gezegenlerin oluşumunu sağlamış ve dünya üzerindeki yaşamın da filizlenmesinde rol 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HİDROKARBON PROSES ÖZETLERİ VE AKIM ŞEMALARI](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## HİDROKARBON PROSES ÖZETLERİ VE AKIM ŞEMALARI
+1 HİDROKARBON PROSES ÖZETLERİ VE AKIM ŞEMALARI Ref. e-makaleleri AKR İ LON İ TR İ L (SOHIO PROSES İ, THE BADGER COMPANY, INC.) Ürün Kolonu Hafifler Kolonu Asetonitril Geri Kazanma Kolonu Akrilonitril Geri Kazanma Kolonu Absorber
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![2. Temel Bilgiler - Erciyes University](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## 2. Temel Bilgiler - Erciyes University
+devrenin çalışma prensibini anlayabilmeniz için geliştirilmiştir. Pratikte bir yükselteç devresinde iki adet dc besleme kaynağı kullanılmaz. Şekil 10 Tipik bir ortak emiter bağlantılı yükselteç devresi Yükseltilecek veya kuvvetlendirilecek giriş işareti yükseltecin beyz
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) NAHÇIVAN'DA ESKİ TÜRK İNANÇLARININ İZLERİ .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## (PDF) NAHÇIVAN'DA ESKİ TÜRK İNANÇLARININ İZLERİ .
+NAHÇIVAN'DA ESKİ TÜRK İNANÇLARININ İZLERİ (AĞAÇ KÜLTÜ)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Orta Gerilim teknik kılavuzu - Schneider Electric](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Orta Gerilim teknik kılavuzu - Schneider Electric
+Ayırıcı, bir güvenlik cihazı değildir. Topraklama anahtarları, iletkenleri toprağa bağlamak için kullanılan özel cihazlardır. Böylece, iletkenlere güvenli bir şekilde erişilebilir. Yüklü iletkenlerin kapanması gibi çalışmadaki bir hataya dayanabilmelerini
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SAĞLIK BİLİMLERİ DERGİSİ](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## SAĞLIK BİLİMLERİ DERGİSİ
+SAĞLIK BİLİMLERİ DERGİSİ ISSN X Cilt 9 | Sayı 2 | Nisan 2018 | Supplement 2 ACIBADEM KALP GÜNLERİ - 1 Bildiri Kitabı Uluslararası SempozyumISSN: XCilt 9 | Sayı 2 | Nisan 2018 | Supplement 2 Yayın Türü Hakemli Süreli Yayın (Dergi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ahmet Akgül- Başörtüsü inkarı ve istismarı by SELÇUK .](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Ahmet Akgül- Başörtüsü inkarı ve istismarı by SELÇUK .
+Kitabın Adı- Başörtüsü İnkin ve İstisınan & Yazan- Ahmet Akgül & Bilge Kannca'dan ilk yayın tarihi- 2008 & Halkla İlişl9ler AhmetSunar & İçTasanm Re(n)klam Ajans & Kapak Grafik 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Başörtüsü İnkarı ve İstismarı | Ahmet Akgül - .](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## (PDF) Başörtüsü İnkarı ve İstismarı | Ahmet Akgül - .
+Bu kitapta; Başörtüsünün dini, tabii ve tarihi gerçeklerini ve İslam'ın şekil değiş şuur dini olduğu gerçeğini Başörtüsüyle "tesettür'ün" aynı zannedildiğini; ama farklı anlam ve amaçlar içerdiğini Başörtüsü karşıtlarıyla, türban istismarcılarınınn;
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![T.C.](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## T.C.
+Demansın ayırıcı tanısında bulunan diğer psikiyatrik hastalıkları sıralar. Demanslar da görülen ruhsal ve davranışsal semptomları anlar ve ayırıcı tanısını yapar. Kognitif bozukluklarda ruhsal sorunların tedavilerini anlatır. Amnestik bozukluk ile demansların, demans
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sürtünme ile elektriklenme - Vikipedi](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Sürtünme ile elektriklenme - Vikipedi
+Sürtünme ile elektriklenme belli maddelerin başka maddeler ile sürtünme teması sonrası elektriksel olarak yüklü hale geldiği dokunma ile elektriklenmenin bir türüdür. Camın kürkle sürtünmesi ya da saçın taranması sürtünme ile elektriklenmeyi sağlar. Günlük 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ahmet Akgül- Başörtüsü inkarı ve istismarı by SELÇUK .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Ahmet Akgül- Başörtüsü inkarı ve istismarı by SELÇUK .
+"duyarlıl ıklardan" politik ve "ayırıcı kibri" akılcı laştıran söyleın iere kadar bir dizi hissi ve retoriği dolaşıma sokabi l mektedir. Geniş bir skalada yer alan bu söylem ve 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![/usr/share/onboard/models/tr_TR.lm - APT Browse - .](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## /usr/share/onboard/models/tr_TR.lm - APT Browse - .
+/usr/share/onboard/models/tr_TR.lm is in onboard-data 1.0.0-0ubuntu4. This file is owned by root:root, with mode 0o644. The actual contents of the file can be
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![[PDF] TIP TARİHİ PROF. DR. ALİ HAYDAR BAYAT .](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## [PDF] TIP TARİHİ PROF. DR. ALİ HAYDAR BAYAT .
+TIP TARİHİ PROF. DR. ALİ HAYDAR BAYAT İSTANBUL 2010 Zeytinburnu Belediyesi'ne teşekkür ederiz. TIP TARİHİ Prof. Dr. Ali Haydar Bayat Yayınlayan Merkezefendi Geleneksel Tıp Derneği Zeytinburnu Tıbbi Bitkiler Bahçesi Merkezefendi Yeniçiftlik yolu 1 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Namus, Biyopolitika ve Şiddet | Safiye Ateş Burç - .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## (PDF) Namus, Biyopolitika ve Şiddet | Safiye Ateş Burç - .
+Namus, Biyopolitika ve Şiddet
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tıp Tarihi by Zeytinburnu Tıbbi Bitkiler Bahçesi - Issuu](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Tıp Tarihi by Zeytinburnu Tıbbi Bitkiler Bahçesi - Issuu
+TIP TARİHİ Yazar Ali Haydar Bayat Yayın Danışmanı Murat D. Çekin ISBN Kapak Resmi Kanûn'un Roma'daki Arapça baskısı Genişletilmiş 3. Baskı İstanbul, Mayıs 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) ÖZNE NESNE İLİŞKİSİ BAĞLAMINDA KÜBİZM, .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## (PDF) ÖZNE NESNE İLİŞKİSİ BAĞLAMINDA KÜBİZM, .
+ÖZNE NESNE İLİŞKİSİ BAĞLAMINDA KÜBİZM, FÜTÜRİZM VE DADA-Lütfü Kaplanoğlu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

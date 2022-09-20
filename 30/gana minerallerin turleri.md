@@ -1,0 +1,53 @@
+# gana minerallerin turleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MİNERALLER VE OLUŞUMLARI KONU ANLATIM - YouTube](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## MİNERALLER VE OLUŞUMLARI KONU ANLATIM - YouTube
+Please subs and like :) THX
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mineral Tozların Analiz Yöntemleri](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Mineral Tozların Analiz Yöntemleri
+Mineral Tozların Analiz Yöntemleri, X-Işınlarının Difraksiyon Analizi, Kristalokimyasal Analiz, Mikroskop Analizi, Spektral Analiz gibi yöntemler kullanılır. Son yıllara kadar mineral tozlarının neden olduğu hastalıklar sadece mesleki hastalıklar olarak biliniyordu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mineraller Nedir: Çeşitleri Nelerdir ? | Bilimsel Supplement .](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Mineraller Nedir: Çeşitleri Nelerdir ? | Bilimsel Supplement .
+Kayaçlardaki mineraller: Çoğu kayalar minerallerin biriktirilmesidir. Bu kaya, bir granit pegmatit, mineral tanelerin bir karışımıdır. Pembe ortoklas, süt beyazı kuvarsı, siyah hornblend ve siyah biyotit içerir. Mineral hubit, küçük parçalara ezildiğinde, yiyeceklerin tatlandırılması için mükemmel bir şekilde uygundur. Çoğu insanın hoşnut ettiği tuzlu bir tada 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Metabolic Balance | - Un Türleri ve Mineral İçerikleri](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Metabolic Balance | - Un Türleri ve Mineral İçerikleri
+Vitaminlerin, minerallerin ve liflerin çoğu tahılın dış kabuğunda bulunur. Tip sayısı ne kadar yüksek olursa, kabuk bileşenleri o kadar fazladır ve unda daha fazla vitamin, mineral ve lif vardır. Bu nedenle, tip 1700 buğday unu veya tip 1800 çavdar unu çeşitleri daha 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İstanbul Atıktan Enerji Üretimi, Bonn İklim Değişikliği .](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## İstanbul Atıktan Enerji Üretimi, Bonn İklim Değişikliği .
+Bu minerallerin bir bolumu de oluşan bakteri hucreleri yapısında yerlerini alırlar. Dolayısıyla atıksularda bulunan ve cevre kirliliğine neden olan cozunmuş organik maddeler kısmen mikroorganizma lar tarafından oksitlenerek ve kısmen de oluşan mikroorganizma yapısına girerek, daha sonra da bu mikroorganizmaların sudan ayrılması ile arıtılmış olurlar.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mineraller | Akademik Coğrafya](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Mineraller | Akademik Coğrafya
+Minerallerin büyük bir kısmı bu şekilde meydana gelmektedir ancak elmas, altın, gümüş, kömür gibi bazı mineraller tek bir elementten müteşekkildir. Minerallerin bir araya gelmesiyle kayaçlar, kayaçların bir araya gelmesiyle de dağlar ve kıtalar oluşmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Minerallerin Görevleri Nelerdir?.tr](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Minerallerin Görevleri Nelerdir?.tr
+Minerallerin alınması kadar kaybedilmemesi de önemlidir. Sigara-alkol kullanma, fazla terleme, ishal, idrar söktürücü ilaçlar sıvı ve mineral kaybetmeye yol açar. Özellikle hamilelik dönemlerinde anne adaylarında, bebeklerde, çocuklarda ve sporcularda mineral ihtiyacı normal bireylere göre .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Full text of "ismailhakkialtuntas da yayinlanan .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Full text of "ismailhakkialtuntas da yayinlanan .
+An icon used to represent a menu that can be toggled by interacting with this icon.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Vitamin ve Minerallerin Özellikleri | Değerli Taşlar](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Vitamin ve Minerallerin Özellikleri | Değerli Taşlar
+5 Minerallerin Faydaları: 6 A VİTAMİNİ – RETİNOL 7 B1 VİTAMİNİ – TİAMİN 8 B2 VİTAMİNİ – RİBOFLAVİN 9 B3 VİTAMİNİ – NİASİN 10 B5 VİTAMİNİ – PANTOTENİK ASİT 11 B6 VİTAMİNİ – PİRİDOKSİN 12 B8 VİTAMİNİ 13 B9 VİTAMİNİ – FOLİK ASİT 14 15
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mineraller](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Mineraller
+MİNERALLER Yetişkin insan vücudunun ortalama % 6'sı minerallerden oluşmuştur. Başta kalsiyum ve fosfor olmak üzere minerallerin büyük bir bölümü iskelet ve dişlerin yapı taşıdır. Sodyum ve potasyum gibi mineraller vücut sıvılarının dengesini sağlar.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Full text of "ismailhakkialtuntas sitesinde yayinlanan .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Full text of "ismailhakkialtuntas sitesinde yayinlanan .
+An icon used to represent a menu that can be toggled by interacting with this icon.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mineraller.Doç.Dr.Ali AYYILDIZ](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Mineraller.Doç.Dr.Ali AYYILDIZ
+Mineraller, insan ve hayvan metabolizması için yararlı ve gereklidirler. Bu iki sözcük minerallerin özelliklerini anlatmaya yeterlidir. Toplam vücut ağırlığının % 3 – 6 arası mineraller ve iz elementlerden oluşur. Minerallerin başlıcaları Kalsiyum – Ca ve Flordur – F.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Toprak Mineralleri – Gürkan Yeniçeri](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## Toprak Mineralleri – Gürkan Yeniçeri
+Zamanı geçmiş vitamin ve mineral hapları suda eritilerek azar azar toprağa verilebilir. Tabii her zaman olduğu gibi toprağın asiditesi eğer bu minerallerin bitkiler tarafından alınmasına müsait değilse bir işe yaramaz. Asidite pH 6,8 ile 7,5 arasında ayarlanmalıdır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

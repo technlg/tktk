@@ -1,0 +1,41 @@
+# turleri ingles kırıcılar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Turizm İngilizcesi Konuşma Kalıpları! | Otelde Kullanılan .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Turizm İngilizcesi Konuşma Kalıpları! | Otelde Kullanılan .
+28/6/2020· Bu videomda sizlere turizm İngilizcesi günlük konuşma kalıpları ve önemli kelime ve terimleri anlatmaya çalıştım umarım beğenirsiniz ve İngilizce bilginizin 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İngilizce Kıyafetler: Giysiler ve Elbiseler - Konuşarak Öğren](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## İngilizce Kıyafetler: Giysiler ve Elbiseler - Konuşarak Öğren
+İngilizce kıyafetler, giysiler ve elbiseler Türkçe anlamları ile burada. İngilizce kıyafet isimleri, giyim ve elbise isimleri ile Türkçe anlamları Konusarakogren'da. İngilizce kadın erkek elbiselerini mevsimlere ve kategorilerine göre sıraladığımız yazımızda örnek 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İngilizce'de En Yaygın Kullanılan Kelime Türleri - YouTube](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## İngilizce'de En Yaygın Kullanılan Kelime Türleri - YouTube
+İngilizce kelime türleri videosu sizlere İngilizce okuma yazma dinleme ve konuşma becerileri için kullandığınız kelimelerin en yaygın türlerini göstermek içi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İngilizce Temel İfadeler: Keyifle Kullanacağın 30 Kalıp](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## İngilizce Temel İfadeler: Keyifle Kullanacağın 30 Kalıp
+İngilizce temel ifadeler ile kolayca İngilizce konuş. İşte, defalarca kullanabileceğin İngilizce 30 temel kalıp! Kaç tanesini biliyorsun, hemen tıkla ve gör! "Hi" ve "How are you?"dan daha fazlasını konuşmak ister misin? (İleri düzeye ulaşana dek beklemek yerine) artık ana dili .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Türkler neden ingilizce konuşamaz ? - YouTube](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Türkler neden ingilizce konuşamaz ? - YouTube
+Türkler neden ingilizce konuşamaz, türklerin ingilizce konuşamamasının 4 büyük nedenini bulduk ve sizler için derledik . İzlediğiniz için teşekkürler
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TÜRKÇE İNGİLİZCE BİLGİLER KÜLTÜRÜ](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## TÜRKÇE İNGİLİZCE BİLGİLER KÜLTÜRÜ
+1-B 11-B 1-C 1-C 1-B 2-C 12-C 2-D 2-D 2-A 3-D 13-C 3-B 3-A 3-C 4-B 14-A 4-B 4-C 4-D 5-A 15-B 5-C 5-A 5-A 6-C 6-D 6-B 6-A 7-A 7-D 7-C 7-B 8-A 8-C 8-A 8-D 9-B 9-A 9-D 9 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Türkler ve İngilizler Arasındaki Farklar - Haberler](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Türkler ve İngilizler Arasındaki Farklar - Haberler
+İngiltere'de yaşayan Türk asıllı Yusuf adlı genç, Türkler ve İngilizler arasındaki kültür farkını eğlenceli bir video haline getirmiş. Adres tarif etmekten, meclisteki 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tureng - kurallar - Türkçe İngilizce Sözlük](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Tureng - kurallar - Türkçe İngilizce Sözlük
+Tureng Dictionary and Translation Ltd. İngilizce Türkçe online sözlük Tureng. Kategorilere ayrılmış 2 milyondan fazla sözcük ve sözcükleri farklı aksanlarda dinleme seçeneği. Türkçe İngilizce Sözlük Almanca İngilizce Sözlük İspanyolca İngilizce Sözlük
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Türkçeye İngilizceden Geçen Kelimeler - Cambly](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Türkçeye İngilizceden Geçen Kelimeler - Cambly
+İş görüşmenizden olumlu cevap aldınız ve çalışacağınız plazanın 30. katındaki ofisinizde ilk gününüz. Yan masada oturan arkadaşınız şu cümleyi kuruyor; "Saat 11'e toplantı set ettim. Teknik şedülleri revize ettikten sonra yeniden miiting yapalım." Nedir şimdi bu?
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İngitere'deki Türkler - Posts | Facebook](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## İngitere'deki Türkler - Posts | Facebook
+İngitere'deki Türkler, Londra. 1.3K likes. İngilteredeki turklerin sayfası Europe's best TV 4 K Ultra HD broadcast quality (very clear) more than 18.000 channel options sports channels, children's channels, documentary channels, cinema channels turkey and European 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

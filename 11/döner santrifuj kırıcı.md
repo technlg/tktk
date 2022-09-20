@@ -1,0 +1,141 @@
+# döner santrifuj kırıcı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cırcır Kollar - PROXXON/INDUSTRIAL - PROXXON 23082 .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Cırcır Kollar - PROXXON/INDUSTRIAL - PROXXON 23082 .
+Elektrikli Delici Kırıcı Matkaplar Elektropnömatik Kırıcı ve Deliciler Kırıcı Matkaplar Köşe Matkaplar  1/4" döner saplı cırcır kolu, 52 diş cırcır kafası. 2 Taksit 3 Taksit 4 Taksit 6 Taksit 8 Taksit 9 Taksit 12 Taksit 225,14 x 2 Toplam : 450,28 TL 151,51 x 3 114,47 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sumak SM100 Santrifuj Su Pompası - Santrifüj Pompalar - .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Sumak SM100 Santrifuj Su Pompası - Santrifüj Pompalar - .
+Sumak SM100 Santrifuj Su Pompası Nedir? Sıvıyı düşük basınçtan yüksek basınca hareket ettirerek çalışan, fiziksel kaldırma ve sıkıştırma gücünden doğan itiş kuvveti ile sıvı taşıma, sıvı tahliye, su çekme, geniş alan sulama gibi işlemler için kullanılan mekanik bir
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Santrifüj Ekstraktör - JEOTEST](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Santrifüj Ekstraktör - JEOTEST
+Döner Tip Yorma Test Makinesi (Rotary Bending Fatique Testing Machine). Charpy Etki Test Cihazı (Charpy Impact Testing Mahine). Tel Bükülmesi Test Aleti (Wire-Twist Testing Mahine). Brinel Sertlik Test Cihazı (Brinell Hardness Tester). Rockwell Sertlik Test
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![4. National Machining Symposium Book 2 by SMB .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## 4. National Machining Symposium Book 2 by SMB .
+4. Ulusal Talaşlı İmalat Sempozyumu (UTİS 2013), 07-09 Kasım 2013, Kuşadası Tablo-1'deki değerler formül (1.10) 'de yerine konularak hesaplanan esas işleme süreleri Tablo-2'de 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mengeneler - KANCA - KANCA DRILLO .](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Mengeneler - KANCA - KANCA DRILLO .
+Mengeneler - KANCA - KANCA DRILLO DÖNER MATKAP MENGENESİ 100 mm
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sektörün Güvenilir santrifüj döner çıkarıcı](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Sektörün Güvenilir santrifüj döner çıkarıcı
+Sağlam yapılı uzun ömürlü santrifüj döner çıkarıcı. Alibaba'da santrifüj döner çıkarıcı ile ilgili harika fırsatlar ile çamaşır yıkama deneyimini yükseltin. 24 saat içinde birçok fiyat
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Etimaden - B Harfi ile Başlayanlar](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Etimaden - B Harfi ile Başlayanlar
+B Harfi ile Başlayanlar BACA, 1) Kömür ocaklarında kömürün kazılarak çıkarıldığı yer veya kara tumba metodu ile çalışılan panolarda sürülen kılavuz ve başyukarılar.2) Cevher içinde açılan boşluk. 3) Kazanlarda, fırınlarda, sobalarda ve ocaklarda zararlı gazların 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Duffmart Jet 100 Santrifüj Pompa](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Duffmart Jet 100 Santrifüj Pompa
+Duffmart Jet-100 pompa temiz ve kimyasal olmayan sıvıların kullanımı için uygundur. Duffmart Jet-100 pompa
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Su Motorları ve Pompalar](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Su Motorları ve Pompalar
+Kırıcı Delici Uçlar ve Setler Mandren Çeşitleri Matkap Köşe Adaptörleri Optimum Aksesuarlar Pançlar ve Delik Testereler Taşlamalar  RAINPUMP QB80 Santrifuj Su Pompası 0,75 kW-1Hp 984,66 TL 738,49 TL %25 Rainpump JET 250G1 Paslanmaz Çelik 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GENEL TEKSTİLELYAF](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## GENEL TEKSTİLELYAF
+Cilt - Sayfa Cilt - Sayfa 1: Genel Tekstil Tanıtımı (Renkli) 1 - 0001 47. Yuvarlak Örme Makineleri 6 - 1726 2: Elyaf Çeşitleri ve Özellikleri (Renkli) 1 - 0017
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![oreksmadencilik](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## oreksmadencilik
+BENZOL, Aromat birleşiklerinin temel maddesi (C6H6), su berraklığında, ışık kırıcı, yoğunluğu 0,88, kaynama noktası 80,5½C, eter kokulu, kolay yanan bir akaryakıt. İyot, kükürt, fosfor, reçine ve yağları eritir. Taşkömürü katranından yan ürün olarak elde edilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Evde Hobi Yemek](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Evde Hobi Yemek
+Kediler karanlıkta insanlardan 6 kat daha iyi görürler. Bir yavru kedinin sağlıklı bir yetişkin olabilmesi için en azından 3 ay boyunca annesi ile birlikte kalması gerekir. Kuş sesleri; Bütün kuşların seslerini, hatta ormana giren balta, dozer, grayder seslerini taklit eden 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Soğutmalı Santrifüj - Artmer](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Soğutmalı Santrifüj - Artmer
+Döner Buharlaştırıc ı Hava Partikül Örnekleme Cihazı Soğutmalı Santrifüj Ultra Saf Su Cihazı Ultrasonik Banyo Vorteks Akma, Donma ve Bulutlanma Noktası tayin .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SESİNOKS | Santrifuj Pompalar](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## SESİNOKS | Santrifuj Pompalar
+Santrifuj Pompa Paslanmaz bir gövde ve bu gövde içinde yer alan kanatlı bir pervaneden oluşan bu pompalarda, sıvı pompa gövdesinin ön kısmınan girip çark ile buluşur. Bu çark 1000, 1500 veya 3000 rpm gibi bir devir sayısı ile döner .Hızla dönen bu çark sayesinde pompanın içine giren sıvı basınçlanmış bir şekilde hatta ulaşır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cn Döner Santrifüj, Alibaba üzerinde Cn Fabrikaları .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Cn Döner Santrifüj, Alibaba üzerinde Cn Fabrikaları .
+Alibaba üzerinde Cn Fabrikaları yönlendirilen iyi Döner Santrifüj satın al Ayrıca Kolayca dünya geneli Döner Santrifüj kaynağı olabilir. 24 saat içinde birçok fiyat teklifi alın!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Deney Tüpü PP Santrifüj Vida Kapaklı 50 ml -- Infinity .](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Deney Tüpü PP Santrifüj Vida Kapaklı 50 ml -- Infinity .
+Deney Tüpü PP Santrifüj Vida Kapaklı 50 ml -- Infinity Adet Fiyati 1.5 TL ile İpsizcambaz'da. Polipropilenden imal edilmiş santrifüj tüpleri (Falcon Tüpleri), 50 ml hacmindedir ve vida kapaklıdır. Genel amaçlı kullanımlar için
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![2020 İzmir Yatırım Teşvikleri|Denge Müşavirlik-Ankara](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## 2020 İzmir Yatırım Teşvikleri|Denge Müşavirlik-Ankara
+Muhtelif Ebatlarda Döner Tabla Dişlisi ve Rulmanları 3.111.000 KG 38.621.816 5.025.083 10 268 13/08/2020 - 513610 EMRE AVCU İZMİR Yerli Sermaye İMALAT - DİĞER ÖZEL AMAÇLI MAKİNELERİN İMALATI TEVSİ BÖLGESEL Sigorta Primi İşveren Hissesi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SESİNOKS | Yüksek Kapasiteli Santrifuj Pompalar](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## SESİNOKS | Yüksek Kapasiteli Santrifuj Pompalar
+DIN – Food Santrifüj Pompalar Yüksek kapasiteli, santrifüj pompa olarak tasarlanmıştır. Gıda ve içecek sektörlerinde yüksek debiler için ideal pompalardır. FDA ve EHED6 sertifikalarına sahiptirler. Max Debi: 1000 m³/h Max. Basınç: 15 bar Max. Çalışma Sıcaklığı: 120˚C
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DEFİNE TUTKUNLARININ YERİ: MADENCİLİK TRİMLERİ](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## DEFİNE TUTKUNLARININ YERİ: MADENCİLİK TRİMLERİ
+BENZOL, Aromat birleşiklerinin temel maddesi (C6H6), su berraklığında, ışık kırıcı, yoğunluğu 0,88, kaynama noktası 80,5½C, eter kokulu, kolay yanan bir akaryakıt. İyot, kükürt, fosfor, reçine ve yağları eritir. Taşkömürü katranından yan ürün olarak elde edilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SANTRİFÜJ ÇEKİÇLİ DEĞİRMEN-CHM](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## SANTRİFÜJ ÇEKİÇLİ DEĞİRMEN-CHM
+ÇALIŞMA PRENSİBİ: CHM merkezkaç tip öğütücü değirmenin gövdesi, öğütülecek malzemeye bağlı olarak seçilen nitelikli çelik veya döküm malzemeden yapılmıştır. Değirmende ayrıca bir üst gövde sacı ve besleme tarafında açılır kapanır bir kapak bulunmaktadır. Masuralı veya bilyalı yataklara oturan sert çelikten yapılmış yatay bir mil gövde içinde yüksek 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Santrifüj İhracat Şirketleri ve Üreticileri Rehberi](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Santrifüj İhracat Şirketleri ve Üreticileri Rehberi
+Santrifüj İhracat Şirketleri ve Üreticileri Rehber Sitesi Abkant Ağda Akaryakıt Aks Aksam Aksamları Aksesuar Akü Alarm Alçı Alet Aleti Aletleri Alez Alım 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SANTRİFÜJ DEKANTÖR](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## SANTRİFÜJ DEKANTÖR
+1- 2 MAKİNEDEN FAZLASI: DEKANTÖR Santrifüj dekantör, yüksek hızda dönen tambur ve tamburla aynı eksende farklı hızda dönen helezon ile hız farkını ayarlayan, tahrik grubuyla dönen elemanları taşıyan gövdeden meydana gelir. Santrifüj dekantörler; sıvı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![tanjuyildon - Q Bank.](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## tanjuyildon - Q Bank.
+A. Zincir kırıcı B. Hasarlı molekülün ortadan kaldırılması C. Radikal detoksifikasyonu D. Radikal tutucu E. Radikal oluşumu sınırlayıcı etki Cevap: a - E vitamini yağda eriyen en kuvvetli antioksidandır. - Radikal reaksiyonları sırasında zincirleme giden reaksiyonları
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Özgeçmiş - Kocagül Mühendislik](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Özgeçmiş - Kocagül Mühendislik
+Pusher Santrifuj Makinaları,Çekiçli Kırıcı,Mixer,Hidrosiklon,Santrifüj Pomp. Ekipman Montajlarının Yapılması, Boru Köprüsü İmalatı,  döner kapı montajlarını yaptım.(daldırma sıcak galvaniz ve paslanmaz çelik platformlar) Tesisin giriş yapısında by-pass birçok 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Döner Tüplü Bölücü](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Döner Tüplü Bölücü
+Hidrolik Çeneli Çelik Çekme Cihazı : Hızlı Nem Tayin Seti : Hava Ölçer (B Tipi) Hava Ölçer (A Tipi) Düktilite Test Cihazı : Direkt Kesme Test Cihazı : Dijital Su Bany
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Güvenli ve verimli çimento üretimi](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Güvenli ve verimli çimento üretimi
+Kırıcı ana yatakları Klüberlub BE – -10 C ile 150 C arasında çalışma sıcakl  Döner eklemler PETAMO GHY 133 N – -40 C ile 160 C arasında çalışma sıcakl ığı – Poliüre kalınlaştırıcı, mineral yağ, sentetik hidrokarbon ya ve katkılar 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Boru](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Boru
+Scribd is the world's largest social reading and publishing site. Sesinoks Metal ve Endüstriyel Ürünler A.Ş. Gıda, İlaç, Kimya, Kozmetik ve paslanmaz SESİNOKS provides service to Food, Phar-işçiliğin kullanıldığı tüm sektörlere hizmet ver- maceutical, Chemical, Cosmetic and related mektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![İTÜ Laboratuvarları](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## İTÜ Laboratuvarları
+Minyatür Kırıcı Ünitesi (Çeneli Kırıcı+Merdaneli Kırıcı) Mixed Signal Oscilloscope  Rotary Evaporator / Döner Buharlaştırıcı (2 adet) Rotary Evaporator / Döner Buharlaştırıcı (2 adet) Rotary Evaporator / Döner Buharlaştırıcı (3 adet) Rotasyonel Reometre (2 adet) 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) ÖĞÜTME TEKNOLOJİLERİ 2016.pdf | Prof. Dr. .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## (PDF) ÖĞÜTME TEKNOLOJİLERİ 2016.pdf | Prof. Dr. .
+bir eksen etrafında tıpkı gezegenlerin güneş etrafındaki dönüşü gibi döner.•Bu hareketi sayesinde merkez ekseni  ÇEKİÇLİ, DARBELİ, 10 cm -0.5 cm (fındık,mercimek) 0.1-2.0 0.3 TL İri Öğütme ÇUBUKLU DEĞİRMEN (Darbeli Kırıcı) 50 mm -0.5 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Engin Muhendislik](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Engin Muhendislik
+Havuzlarda kullanılan pompalar, yapıları itibari ile büyük debili ve düşük basınçlı tek kademeli santrifuj pompalardır. Pompanın havuz suyundaki kimyasalların etkisinden veya deniz suyu ile doldurulacak havuz ise, tuzlu suyun korozif etkisinden zarar görmemesi için termoplastik gövdeli pompalar, ön koruyucu sepetleri (halk dilinde kıl tutucu) ile iliştirilmiş olarak tercih 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Santrifüj Çeşitleri Nelerdir? | Lab724](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Santrifüj Çeşitleri Nelerdir? | Lab724
+Ayrıca santrifüj cihazı öyle yüksek devirlerde döner ki; bir sıvının içindeki süspansiyon ve emülsiyon halindeki parçacıkları bile kolayca ayrıştırabilir. Bu ayırma işlemleri santrifüj cihazının yüksek devir hızında dönmesine bağlıdır ve bir santrifüj cihazı dakikada 10 ile 15 bin devir dönüş gücüne sahiptir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Prof. Dr. HASAN HACIFAZLIOĞLU | Istanbul University - .](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Prof. Dr. HASAN HACIFAZLIOĞLU | Istanbul University - .
+Prof. Dr. HASAN HACIFAZLIOĞLU, Istanbul University, Mining Engineering Department, Faculty Member. Prof.Dr.Hasan HACIFAZLIOĞLU, Lisans: ITÜ Yüksek Lisans: BEÜ 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Soğutmalı Santrifüj - Artmer](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Soğutmalı Santrifüj - Artmer
+Çeneli Kırıcı Yarı Otomatik Pres Makinası Otomatik Öğütücü Kaplama Cihazı İnkübatör Steril Kabin Derin Dondurucu Reaksiyon Fırını Mikrodalga Fırın Asit Saflaştırma Sistemi Akma, Donma ve Bulutlanma Noktası tayin cihazı Vorteks Ultrasonik Banyo Ultra Saf
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Santrifüj Pompalar](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Santrifüj Pompalar
+Akülü Kırıcı Delici Matkaplar Akülü Fayans Kesme Makinalar Akülü Zımba Çivi Makinas  Sumak SM100 Santrifuj Su Pompas ı 1.264,72 TL Sumak SM5 Preferikal Santrifüj Su Pompası 537,37 TL Rtr Max RTM874 Su Pompası 750W / 1 HP 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TÜRKDÖKÜM Sayı 55 by Türkiye Döküm Sanayicileri .](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## TÜRKDÖKÜM Sayı 55 by Türkiye Döküm Sanayicileri .
+TÜRKDÖKÜM SAYI 55 NİSAN-MAYIS-HAZİRAN 2020 TÜRKİYE DÖKÜM SANAYİCİLERİ DERNEĞİ YAYIN ORGANIDIR A DOSY COVİD - 19 RK Ü T N İ N İ S İ M E PAND ÜNE R Ö T K E S M Ü DÖK 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

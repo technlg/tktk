@@ -1,0 +1,41 @@
+# endonezya kömur işleme muhendisi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ENDONEZYA CUMHURİYETİ | Ülkeler - Tarihi Olaylar](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## ENDONEZYA CUMHURİYETİ | Ülkeler - Tarihi Olaylar
+II.Dünya Savaşının bitmesiyle birlikte Endonezya bağımsızlığını ilan etmiştir. 1949 Hollanda, Endonezya'nın bağımsızlığını tanımıştır. 1950 Suharto, Endonezya devlet başkanı olmuştur. 1950 Ülke, Birleşmiş Milletlere üye olmuştur. 1975 Endonezya, Doğu Timor'u 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ENDONEZYA'DA YAŞAM - home](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## ENDONEZYA'DA YAŞAM - home
+Endonezya Japonya'nın İkinci Dünya Savaşı'nda yenilgisini takiben 17 Ağustos 1945 tarihinde bağımsızlığını ilan etmiş, ancak bağımsızlık ilanı müttefik ülkeler tarafından kabul edilmemiştir. Müttefik Birlikleri 1 Temmuz 1946 tarihinde Endonezya'yı Hollanda
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![17 binden fazla adasıyla Endonezya Mutfağı ve .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## 17 binden fazla adasıyla Endonezya Mutfağı ve .
+Endonezya Mutfağı ve Endonezya Yemekleri de üzerinde yaşayan binlerce kültürün çeşitliliğinden meydana gelir. Bu nedenle tek bir çeşit Endonezya Mutfağı yoktur fakat bölgesel yemek çeşitleri vardır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ENDONEZYA - TDV İslâm Ansiklopedisi](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## ENDONEZYA - TDV İslâm Ansiklopedisi
+XX. yüzyılın başlarında Endonezya'da "ahlâkî politika" adı verilen ve daha ziyade paternalizmi yansıtan yeni bir sömürge ekolü geliştirildi. 1901 yılında resmen ilân edilen bu politika, sadece idarî yeterlilik ve ekonomik kalkınmayı değil aynı zamanda Endonezya
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya - Vikipedi](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Endonezya - Vikipedi
+Endonezya mutfağındaki bazı yemekler: Soto Ayam (tavuk çorbası), sate kerang ( kabuklu deniz hayvanı kebapları ), telor pindang ( korunmuş yumurta, perkedel (börek) ve es teh manis (tatlı buzlu çay) BM'nin Küresel Barış Gücü Operasyon Girişimi'ne katılan bir Endonezya Ordusu piyade eri.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya'da Makine Mühendisliği - Eurostar Yurtdışı .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Endonezya'da Makine Mühendisliği - Eurostar Yurtdışı .
+Endonezya'da Makine Mühendisliği Endonezya'da üniversite okumak sanılandan çok daha kolay. Eurostar yurt dışı akademik danışmanlık hizmetlerinden yararlanarak sınavsız eğitim alın.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya Ülke Raporu 2015 - konya ticaret odası](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Endonezya Ülke Raporu 2015 - konya ticaret odası
+kaplanları arasında sayılan Endonezya, 1997 yılı ortalarında baş gösteren Asya Krizi ile mali çevrelerin dikkatlerini üzerinde toplamıştır. Bugün Endonezya ekonomisinin dengeleri oldukça iyi olarak kabul görmekte ve bu ana sektörlerin önemli rol oynaması
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Türkiye - Endonezya İlişkileri / T.C. Dışişleri Bakanlığı](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Türkiye - Endonezya İlişkileri / T.C. Dışişleri Bakanlığı
+Sayın Cumhurbaşkanımız son olarak 30 Temmuz-1 Ağustos 2015 tarihlerinde Endonezya'ya resmi ziyaret gerçekleştirmişlerdir. Endonezya Cumhurbaşkanı Joko Widodo 15-16 Kasım 2015 tarihlerinde Antalya'da düzenlenen G20 Zirvesi'ne katılmıştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya - Türkçe Bilgi](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Endonezya - Türkçe Bilgi
+El sanatları, özellikle kumaş dokuma ve işleme yönünde çok yaygındır. Batik denilen egzotik renk ve desenli kumaşlar en fazla işlenen el sanatı ürünleridir. Siyasi Hayat Endonezya'da başkanlık sistemine dayalı, cumhuriyet rejimi vardır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Endonezya isimleri - Indonesian names](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Endonezya isimleri - Indonesian names
+Endonezya'nın her yerinde yerel törenler kullanılmaya devam ediyor. Sıradan bir durumda, Kakak bir kişiye abla veya erkek kardeş olarak hitap etmek için kullanılır. In Cava Mbak "Büyük kardeş" için kullanılır ve Mas "ağabeyi" için kullanılır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

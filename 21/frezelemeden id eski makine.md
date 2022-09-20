@@ -1,0 +1,57 @@
+# frezelemeden id eski makine
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![| FİDE DİKİM ARTIK MAKİNELERE EMANET](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## | FİDE DİKİM ARTIK MAKİNELERE EMANET
+Manuel dikim makinelerinde işgücü yine belli bir paya sahipken, otomatik modeller ise insan emeğine ihtiyaç duymadan amaca ulaşabiliyor. Bu makinelerin toprakla buluşturduğu fideler arasında tütün, domates, biber, marul, lahana, çeltik başta olmak üzere pek çok ürün sıralanıyor. Bir saat içinde 7 .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![E90 FREZE BİLEME MAKİNESİ](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## E90 FREZE BİLEME MAKİNESİ
+Makine Ağırlığı : 33 kg Bileme şekli : Hem frezenin ağız bölümündeki 2 farklı açı, hem de frezenin sırt bölümündeki 2 farklı açıdaki kesme kanalı bilenebilir. Makine Ölçüleri : 66 cm x 56 cm x 30.5 cm 2, 3, 4, ve 6 ağızlı HSS, kobalt ve karbür düz frezeleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Selçuk İlhan BİLGİN Makine Mühendisi - Frezeleme](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Selçuk İlhan BİLGİN Makine Mühendisi - Frezeleme
+Selçuk İlhan BİLGİN Makine Mühendisi Navigasyon Ana Sayfa İletişim Talas Kaldirma Yontemleri Frezeleme Motor Yaglari Dikişli Boru İmalat ı Pnömatik Transport Kuru Tip Transfornatörler Kuru Tip Transformatör İmalatı ve Kompozit Malzeme Kullanımı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sinumerik 802Dsl Freze TR - Scribd](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Sinumerik 802Dsl Freze TR - Scribd
+Ilem sras MDA modunu semek iin makine zerindeki makine kumanda paneli zerindeki MDA anahtarn kullann. ekil 4-6 "MDA balatma ekran Klavyeyi kullanarak bir ya da daha fazla blou girin. lemeyi balatmak iin NC STARTa basn. leme esnasnda bloklarn dzenlenmesi artk mmkn deildir. leme sonrasnda ierik NC STARTa bir kez daha basldnda ilemenin tekrarlanabilecei ekilde muhafaza edilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sahibinden - Makinaalsat Seri İlanlar | makinaemlak - .](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Sahibinden - Makinaalsat Seri İlanlar | makinaemlak - .
+İkinci El Makina Alım Satım, 2.El ve Yeni Satılık Makina İlanları | makinaemlak Kayıt Olurken Kullandığınız Eposta Adresini Girin ve Gönder Tuşuna Basın, Yönlendirileceğiniz
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Freze ve Makina Mengeneleri Fiyatları](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Freze ve Makina Mengeneleri Fiyatları
+Her türlü ihtiyacınızı karşılayacak Freze ve Makina Mengeneleri kategorisinde bulunan markaların ürünleri en ucuz fiyatları online hirdavat satış web sitemizde Alırken Kazanın Serka Ticaret Makina Hırdavat (Sevgi ÇAKIR) Yenikö Bağlar Mevkii Fatih Sok No: Sarıyer
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Diğer Eski Makineler](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Diğer Eski Makineler
+Diğer Eski Makineler. . Son Eklenen Ürünler. Cam & Kristal Ürünler. Bardaklar. Kadehler. Su Bardakları. Vitray Bardaklar. Diğer Antika & Vintage Bardaklar.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kesici takım ve tutucular ekim 2016 by AjansMik .](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Kesici takım ve tutucular ekim 2016 by AjansMik .
+Birincisi 90-derecelik dik frezelemesi, tam planyalama, 3D cep frezeleme, dairesel dış hat frezeleme ID ve OD helisel enterpolasyonu ve tüm malzeme rampalama işlemlerini gerçekleştirebilmesidir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Metal Makina Magazine March-April 2017 by AjansMik .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Metal Makina Magazine March-April 2017 by AjansMik .
+Metal Makina Magazine March-April 2017 HABER dırılması anlamına geliyor. Kadınların katılımı, makine sektörünün atılımı olacak." Projede hedef iller belirlendi ve Birliğin konuyla 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Micro milling of NiTi shape memory alloy and .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## (PDF) Micro milling of NiTi shape memory alloy and .
+In this study, micro-milling of Inconel 718 was investigated. For this purpose, cutting tests were conducted by using uncoated tools and taking four different feed rates (1.25, 2.5, 3 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![El Freze Makinaları](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## El Freze Makinaları
+Kredi kartına taksit, güvenli alışveriş, cazip, ucuz ve uygun fiyat avantajı ile en iyi marka El Freze Makinaları 'da.  Dewalt D26203 Profesyonel Değişken Hız Ayarlı Dalma Freze 900Watt 8mm
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![4 Eksen CNC Freze Fason İşleme | DMR Makina](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## 4 Eksen CNC Freze Fason İşleme | DMR Makina
+Arayın 0532 441 76 28 . Sizde Talaşlı İmalat yaptırmak isterseniz DMR Makina ile iletişime geçebilirsiniz. DMR MAKİNA CNC Torna Freze Fason İşleme DMR Makine Teknoloji Sistemleri Firması Olarak, Endüstriyel Sanayi Makineleri,Ağır sanayi, Otomotiv Yedek 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ESMAK ESKİN MAKİNA'dan FM180YK Katlama Makinası | .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## ESMAK ESKİN MAKİNA'dan FM180YK Katlama Makinası | .
+Makine uzunluğu: 2250 mm Makine genişliği: 1880 mm Makine yüksekliği: 2000 mm
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Freze tezgahında kullanılan kesici takımlar | Makine Eğitimi](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Freze tezgahında kullanılan kesici takımlar | Makine Eğitimi
+Makine imalâtında kullanılan "T" kanalı ölçülerine göre hız çeliklerinden imâl edilir. Küçük çaplı olduklarından sap kısımları, kendisinden yapılarak Pens Mandrenlerine bağlanırlar. Frezeleme sırasında, frezenin üç yüzü birden keseceğinden, malzeme içinde
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

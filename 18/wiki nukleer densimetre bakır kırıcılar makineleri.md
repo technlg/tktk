@@ -1,0 +1,45 @@
+# wiki nukleer densimetre bakır kırıcılar makineleri
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nükleer & Yenilenebilir | Nükleer Akademi](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Nükleer & Yenilenebilir | Nükleer Akademi
+PV panelleri 10-15 yıllık periyotlarla değiştirilmek zorunda olup, üretiminde kullanılan silikon, kadmiyum-tellür, bakır-indiyum-selenid gibi zararlı kimyasal atıklar ortaya çıkmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nükleer Kazalar | Nükleer Akademi](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Nükleer Kazalar | Nükleer Akademi
+Nükleer Kazalar; Fukuşima ve Çernobil, kazalar ülkelerin radyasyondan korunma ve nükleer acil durumlar için kendi planlarını gözden geçirmelerini sağlamıştır. Bunun sonucunda birçok ülkede ulusal düzeyde nükleer acil durum planlarının yapılması sağlanmıştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nükleer Kazalar ve Radyasyon Güvenliği](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Nükleer Kazalar ve Radyasyon Güvenliği
+Radyoaktivite –Radyoaktif elementler (Doğal, yapay): • Radyonüklit –Nükleer reaktörlerin yakıt çubukları, –Fizyon sonucu oluşan ürünler (Radyoaktif iyot-131, radyoaktif sezyum-137 gibi). –Tıpta da tanısal veya tedavi amaçlı »Kobalt-60 eksternal radyoterapide,
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nükleer Tıp by Anil Gül](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Nükleer Tıp by Anil Gül
+Nükleer Tıp Tarihçesi Nükleer tıp tarihçesi; 1800'lü yılların başında İngiliz kimyager John Dalton'un atom teorisini ortaya atmasına, 1895'de Alman Wilheim Konrad Roentgen'in X ışınlarını bulmasına, 1928'de Amerika'da Ernest Lawrence'ın siklotronu yapmasına kadar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Türkiye Dergisi Sayı 27 by Madencilik .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Madencilik Türkiye Dergisi Sayı 27 by Madencilik .
+Mayeb yayınlarının ilk ve ana yayını olan Madencilik Türkiye dergisinin 27. sayısıdır. Dergide madencilik sektörü ile ilgili güncel bilgiler yer almaktadır. Gelecek sayılarımızdaki 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nükleer Tıp Seminerleri](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Nükleer Tıp Seminerleri
+Nükleer ve radyasyon kazaları Uluslararası Atom Enerjisi Ajansı tarafından "insanlar, çevre veya tesis üzerinde ciddi sonuçlara yol açmış bir olay" olarak tanımlanır. Kazanın ölümlere neden olması, çevreye büyük miktarlarda radyoaktivite salınımının olması veya 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nükleer Tıp Seminerleri](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Nükleer Tıp Seminerleri
+1. Mountford P.J, O'Doherty MJ. Exposure of critical groups to nuclear medicine patients. Appl Radiat Isot 1999;50:89-111. 2. Sudbrock F, Boldt F, Kobe C, Eschner W, Schicha H. Radiation exposure in the environment of patients after application of
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![NÜKLEER KAZALAR NÜKLEER ENERJİ, TOPLUM VE ÇEVRE](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## NÜKLEER KAZALAR NÜKLEER ENERJİ, TOPLUM VE ÇEVRE
+TMI-2 NÜKLEER REAKTÖR KAZASIDünyada ilk ticari nükleer reaktör kazası ABD-Pensilvanya eyaletindeki TMI Nükleer Santrali'nin 2. Ünitesinde 28 Mart 1979 tarihinde meydana gelmiştir. OLAY SIRALAMASI Geri besleme pompasında mekanik bir arıza meydana
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nükleer Fizik: Atom Altı Parçacıkların Dünyası - Evrim Ağacı](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Nükleer Fizik: Atom Altı Parçacıkların Dünyası - Evrim Ağacı
+Nükleer fiziğin en yaygın kullanım alanlarından biri ise sağlık alanıdır. Hastanelerde kanser tedavisinde kullanılan radyoterapi makineleri ve hastalıkların teşhisi için elzem olan X-ışını (Röntgen ışını), PET, CT, MRI, NMR ve SPECT gibi vücut içi görüntüleme
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![NÜKLEER FİZİK II](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## NÜKLEER FİZİK II
+FIZ 512 İLERİ NÜKLEER FİZİK II Doç. Dr. Harun Re şit YAZAR DERS İN HEDEF İ: Çekirdek büyüklükleri ve şekilleri ile ilgili alt yapı olu şturmak, çekirdek modelleri hakkındaİÇİNDEKİLER BÖLÜM 1: TEMEL KAVRAMLAR VE TARİHÇE 1.1. GENEL
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nükleer Tıp Seminerleri](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Nükleer Tıp Seminerleri
+Geçmişi yaklaşık 2000 yıl öncesine dayanan nanoteknoloji, şimdilerde ''moleküler nanoteknoloji'' olarak adlandırılmakta olup, organik kimya, moleküler biyoloji, endüstri, elektronik ve tıp gibi birçok bilim alanında araştırma ve kullanım konusu olmuştur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

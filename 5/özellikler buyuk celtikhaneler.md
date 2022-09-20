@@ -1,0 +1,41 @@
+# özellikler buyuk celtikhaneler
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çelik Teknik Özellikler - Rutan Prefabrik Yapı - Ucuz, .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Çelik Teknik Özellikler - Rutan Prefabrik Yapı - Ucuz, .
+Çelik Teknik Özellikler, UCUZ KABİN,UCUZ KONTEYNER, UCUZ PREFABRİK, UCUZ ÇELİK EVLER, UCUZ METROPOL KABİN, ZIRHLI KABİN, kabin, kulübe, bekçi kulübesi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kimyasal Özellikler - MMZ](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Kimyasal Özellikler - MMZ
+Kimyasal Özellikler Üretimlerimizde düzenli olarak kullanılan EN 10149 – 2 standartına göre sıcak haddelenmiş çelik ruloların mekanik özellikleri. Farklı çelik kaliteleri ile üretim hakkında bilgi isteyiniz. Kimyasal Özellikler (Boyut : 65KB)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Öz Çelikler Yapı | Akbük Villaları](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Öz Çelikler Yapı | Akbük Villaları
+Öz Çelikler Yapı olarak tüm işimizi müşteri deneyimine göre tasarladık - mümkün olduğunca kapsamlı, kolay ve stressiz hale getirdik. Egenin yükselen değeri Didim Akbük'te bir "Yaşam Adası" yükseliyor. Deniz ve doğa manzarası ile Akbük'teki en büyük
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GÜNEŞ ÇELİK HASIR | RESMİ WEB SİTESİ - Teknik Özellikler](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## GÜNEŞ ÇELİK HASIR | RESMİ WEB SİTESİ - Teknik Özellikler
+Üretimlerimiz; beton çelik hasır, özel çelik hasır, soğuk çekme çubuk, kangal demir, inşaat demiri ürünlerini son teknolojiyi kullanarak üretimlerine devam etmektedir. Güneş Çelik Hasır Yönetim Kurulu Başkanı: Veysel Karani ORUÇ
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çelik 09g2s - özellikleri ve özellikleri - Sanayi 2021](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Çelik 09g2s - özellikleri ve özellikleri - Sanayi 2021
+Çelik endüstrisindeki çeşitlilik çoğu zaman belirli ihtiyaçlar için herhangi bir çelik elde etmesi gereken insanları korkutuyor. Bu problem, konunun uzun ve metodik bir çalışması, özünü anlaması ile çözülür. Ancak, biraz kesmek için bir yol var. Bu makale 09G2S çeliği 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Islah Çelikleri](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Islah Çelikleri
+Teknik Özellikler SAE DIN AFNOR BS JIS Metal No. 1015 CK15 XC15 080M15 S15CM 1.1141 1020 CK20 XC25, XC18 080M20 S20CM 1030 CK30 XC30 080M30 S30CM 1.1178 1035 CK35 XC32 080A35 S35CM 1.1181 1040 CK40 XC42H1 S55CM 1.1203 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Çelik Yapılar - Ozok Steel](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Çelik Yapılar - Ozok Steel
+Ankara'da çelik villa prefabrik ev konteyner tek katlı villa iki katlı villa ve çelik yapılar üreten Özok Steel 17 yılı aşkın süredir yüksek teknoloji makineleri ile sektörde faaliyetlerine
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Total Materia - Çelik Özellikleri](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Total Materia - Çelik Özellikleri
+Total Materia veritabanları dünyanın en kapsamlı metal veritabanlarıdır: çelik, demir, demir alaşımları, alüminyum, bakır, titanyum, magnezyum, kalay, çinko, kurşun, nikel. Total Materia dünya çapında 69 ülke/standarttan 10 milyonun üzerinde metal özelliği kaydı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dikişsiz Çelik Kimyasal Özellikler Fiziksel Özellikler Çek.](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Dikişsiz Çelik Kimyasal Özellikler Fiziksel Özellikler Çek.
+Dikişsiz Çelik Çek. Kimyasal Özellikler Fiziksel Özellikler Standar t Kalite / Grade Wr STF No. C Si Mn Pmax Smax Cr Ni Mo Cu Others And. Re Min Mp a Re Min Ksi Min Mp a Re Max MPa Min Ksi Min % ASTM A 53 A 0,25 0,95 0,050 0,045 30
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Prefabrik Çelik Evler Teknik Özellikler](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Prefabrik Çelik Evler Teknik Özellikler
+Prefabrik Çelik Evler Teknik Özellikler Karmod çelik yapılar kaynaksız vidalı teknoloji ile tüm detaylarında yüksek kalitede malzeme kullanımıyla üretim yapılmaktadır. Karmod çelik yapıların kalite standartından sizin de memnun kalacağınızdan hiç kuşkumuz
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

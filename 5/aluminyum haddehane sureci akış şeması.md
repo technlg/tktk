@@ -1,0 +1,105 @@
+# aluminyum haddehane sureci akış şeması
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Werkstoffechnik Full - Scribd](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Werkstoffechnik Full - Scribd
+Sıcak haddehane, haddeleme malzemesinin birinden diğerine geçtiği birçok bölümü kap-sar: İtme - boşaltma fırınında ısıtma, tufal temizleme, haddehane dizisi ve daha sonraki soğutma ve hazırlama (Resim 25/1). Hazır-lama Dekape Resim 25.1: Uzun ve yassı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Alüminyum Alaşımları](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Alüminyum Alaşımları
+Ana metali alüminyum olan alaşımlara "Alüminyum Alaşımları" denir. Hafif alaşımlar olarak da adlandırılır. Alüminyum alaşımları demir, çinko 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![.: İşe Alım İş Akış Şeması](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## .: İşe Alım İş Akış Şeması
+İş Akış Şeması, akış diyagramı, insan kaynakları iş akış şeması, İş akış şeması örnek form, İşe Alım, İşe Alım İş Akış Şeması, İşe Alma Yönetimi, örnek iş akış şeması, Merhaba. İş akış şemaları bir diğer adıyla akış diyagramları benim çok sevdiğim ve yararlı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Metal Sektörü Risk Değerlendirme Örneği (1)Baktu](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Metal Sektörü Risk Değerlendirme Örneği (1)Baktu
+T.C. Ulusal İş Sağlığı ve Güvenliği Konseyinin Politika Belgesine göre periyodunda İSG hedefleri arasında, çalışma ortamlarında meydana gelen iş kazası sıklığının % 20 oranında azaltılması bulunmaktadır. (2) Bu amacın gerçekleşebilmesi için, tehlikelerin önlenmesinin yanında risklerin öngörülmesi, değerlendirilmesi ve bu riskleri tamamen ortadan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ETİL FORMAT - (GRUP-7)](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## ETİL FORMAT - (GRUP-7)
+Şekil 11: Ürkmez Barajı Şekil 12: Çamlı barajının yapılacağı Çamlıdere vadisi Şekil 13: Deprem Bölgesi Haritası Şekil 14: İş Akış Şeması Şekil 15: Türkiye Fiziki Haritası Şekil 16: Türkiye Beşeri Haritası Şekil 17: Dünya Üzerinde Türkiye Şekil 18: Türkiye Haritası Üzerinde Adana Şekil 19: İşgücüne Katılım Oranı, İstihdam ve Nüfus Artışı Şekil 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ISO 9001 İş Akış Şemaları - TÜRCERT](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## ISO 9001 İş Akış Şemaları - TÜRCERT
+ISO 9001 Proje Tasarım Süreci İş Akış Şeması Bir projenin amacı, hedef grupları, yönetim sorumlulukları, bir zaman çizelgesi, kaynakları ve bütçesi olmalıdır. Bu noktaların atlanmadan gerçekleşmesi açısından, proje tasarım süreci iş akış şemasının faydası
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ETİL FORMAT - (GRUP-7)](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## ETİL FORMAT - (GRUP-7)
+22: Aliağa Organize Sanayi Bölgesi Şekil 23: Aliağa Organize Sanayi Bölgesi Şekil 24: Etil Format Üretimi Akış Şeması 30 34 44 49 63 64 65 65 75 75 108 108 108 118 6 Şekil 25: CHAMCED ŞEMASI 118 Şekil 26: Paketleme: 180kg lık bidon, 14,4 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Profil İmalatı – Has Aluminyum](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Profil İmalatı – Has Aluminyum
+Aluminyum Profilleri & Aluminyum Ürünleri Üretim, Kurtköy ve Gebze'de bulunan toplam 13.500 metrekarelik kapalı alanda yapılmaktadır. Alüminyum profil imalatı modern kontrol ünitelerinin kullanıldığı, 1250 ton ve 2000 tonluk ekstrüzyon pres hatlarında 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SAN-EL MÜHENDĠSLĠK ELEKTRĠK TAAHHÜT .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## SAN-EL MÜHENDĠSLĠK ELEKTRĠK TAAHHÜT .
+SAN-EL Mühendislik A.Ş Sayfa 3 1. BAŞKANIN MESAJI Şirketimiz SAN-EL MÜHENDİSLİK A.Ş. ticari hayatına başladığı t r r w yılından itibaren ciro ve karlılıklarını her yıl artırarak t r s t yılında v z Milyon TL ciro ve u, x Milyon TL karlılık rakamına ulaşmıştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Projeler 2018 | Endüstri Mühendisliği Bahar Konferansları](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Projeler 2018 | Endüstri Mühendisliği Bahar Konferansları
+Elektrod üretimi; değer akış göz önüne alınarak MTM analizleri ile incelenmiş ve darboğaz olarak paketleme hattı ortaya çıkmıştır. Paketleme hattında yer alan "Çınar" hattının 2016 yılı ortalama OEE değeri %30.35'dir. Burada ekip DMAIC döngüsünde Sarı kuşak projesi yaparak, darboğazdan kaçışa gerekli %60 hedefine ulaşmıştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Metal Sektörü Risk Değerlendirme Örneği (1)Baktu](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Metal Sektörü Risk Değerlendirme Örneği (1)Baktu
+Sürekli Döküm Makinası Genel Proses Şeması Şekil-14 Sıvı Çeliğin Tandişten Bakır Kalıplara Aktarılmas  Haddehane İş Akış Prosesi-2 IV TABLOLAR LİSTES İ Tablo-1 Şiddet Değeri Tablosu Tablo-2 Frekans Değeri Tablosu Tablo-3 Olasılık Değeri Tablosu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Alse Metal Alüminyum - Tüm Alüminyum Ürün ve .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Alse Metal Alüminyum - Tüm Alüminyum Ürün ve .
+Alse Metal Alüminyum. Alüminyum doğrama, dış cephe, korkuluk ve otomatik sistemler. Dekoratif cephe, cam balkon, kış bahçesi ve ofis bölme. HAKKIMIZDA ALSE Metal Alüminyum Sektöre yeni bir soluk getirmek, 14 yıllık tecrübeyle ve bu birikimden doğan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cevre_DenetimiSanayiTesis_SektorelRehber.pdf](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Cevre_DenetimiSanayiTesis_SektorelRehber.pdf
+havuzlarında sınıflandırm a akış şekli esas alınarak yapılabilir. Buna göre, çökeltim havuzları üç grupta toplanabilir. Bunlar; 1) Yatay ve paralel akım lı 2) Yatay ve radyal akımlı 3) Düşey ve radyal akım lı çökeltm e havuzlarıdır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Seydişehir Alüminyum Tesisi – Eti Aluminyum](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Seydişehir Alüminyum Tesisi – Eti Aluminyum
+Müşteri Şikayet Süreci Şeması Kalite ve Müşteri Memnuniyeti Politikası İş Sağlığı, Güvenliği ve Çevre Politikası Şirket Profili Enerji Politikası Sürdürülebilirlik Raporu OYMAPINAR HES İŞLETMESİ 27001 BGYS GENEL POLİTİKA Kişisel Verilerin Korunması
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![[PDF] DEMİR ÇELİK METALURJİSİ - Free Download PDF](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## [PDF] DEMİR ÇELİK METALURJİSİ - Free Download PDF
+İlk olarak teller, çubuklar ve yassı ürünlerde kullanılmaya başlandı. Sürekli bir şekilde sıcak levha üreten ilk haddehane Almanya'da 1937 de üretime başlarken, ilk soğuk şerit çeken haddehane ise 1953 de işletmeye açılmıştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Akış Şeması Sunumu | Akış Diyagramı | Özgür ŞEREMET](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Akış Şeması Sunumu | Akış Diyagramı | Özgür ŞEREMET
+Sınıf Bilişim Sunumları 8. Merhaba Arkadaşlar, Akış Şeması Sunumu Bilişim Teknolojileri ve Yazılım Dersi 5. Sınıf yeni müfredatında bulunan Akışı Değiştiriyorum konusu için hazırlanmıştır. Sunum ile; 5.5.1.14. Akış şeması bileşenlerini ve işlevlerini açıklar. kazanımları verilmeye çalışılmıştır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Duyurular | Kocaeli Sanayi Odası - Part 3](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Duyurular | Kocaeli Sanayi Odası - Part 3
+KSO 2.500'ü aşkın sanayi kuruluşuna uzman çalışanları ile İzmit Merkez, Çayırova, Dilovası, Gebze ve İMES OSB'deki ofisleri ile hizmet vermektedir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TMO](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## TMO
+Akış borularının eğimi yatayla minimum 45 derece açı yapacak şekilde ayarlanacaktır. Uzun dikey borular, toz geçirmez ve kolayca değiştirilebilir şekildeki akış frenleriyle (hız kesiciler) teçhiz edilecektir. 6.1- Malzeme Boşaltma Düzeni (Tahıl Akış Boruları) Teknik
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kitap - Uluslararası Sanat, Tasarım ve Manipülasyon .](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Kitap - Uluslararası Sanat, Tasarım ve Manipülasyon .
+Fakültemiz tarafından 21-23 Kasım 2013 tarihleri arasında düzenlenen Uluslararası Sanat, Tasarım ve Manipülasyon Sempozyumu -- International Symposium on Art, Design and Manipulation 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ALÜMİNYUM ÜRETİMİ AKIŞ ŞEMASI Alüminyum Akış .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## ALÜMİNYUM ÜRETİMİ AKIŞ ŞEMASI Alüminyum Akış .
+Alüminyum Akış Şeması. Yayınlanma tarihi 29 Mart 2012 566 × 738 ALÜMİNYUM ÜRETİMİ AKIŞ ŞEMASI. Alüminyum Akış Şeması.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dijital Teknik Nisan'12 by dijital teknik - Issuu](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Dijital Teknik Nisan'12 by dijital teknik - Issuu
+Esko'nun ambalaj, etiket, açık hava reklamcılığı sektörleri için iş akış yazılımının önemli bir güncellemesi olan Suite 12'yi piyasaya sürmesiyle, yeni üretkenlik ve verimlilik 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Alüminyum Alaşımları – Serdar Korkut](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Alüminyum Alaşımları – Serdar Korkut
+Alüminyum alaşımlarının mekanik, fiziksel ve kimyasal özellikleri alaşım elementlerine ve mikro yapısına bağlı olarak değişir. Alüminyuma katılan en önemli alaşım elementleri bakır, mangan, silisyum, magnezyum ve çinkodur. Alüminyum alaşımları dövme ve döküm 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Moment Expo Dergisi 86. Sayı by origamimedya - Issuu](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Moment Expo Dergisi 86. Sayı by origamimedya - Issuu
+Üçüncü nesil kalp pompası, kardiovasküler sistemde akış modellemeleriyle kalp kapakçığı, stent, graft dizaynları ve imalatı sürdürülen çalışmalardan bazılarıdır." 63 kampüs
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) METAL SEKTORUNDE RISK ANALIZI .](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## (PDF) METAL SEKTORUNDE RISK ANALIZI .
+METAL SEKTORUNDE RISK ANALIZI UYGULAMASI
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Eng Tr metal Sozlugu | Kutay Kırmızı](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## (PDF) Eng Tr metal Sozlugu | Kutay Kırmızı
+Eng Tr metal Sozlugu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Total Materia - Alüminyum Sınıfları](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Total Materia - Alüminyum Sınıfları
+Total Materia veritabanları dünyanın en kapsamlı metal veritabanlarıdır: çelik, demir, demir alaşımları, alüminyum, bakır, titanyum, magnezyum, kalay, çinko, kurşun, nikel. Total Materia dünya çapında 69 ülke/standarttan 10 milyonun üzerinde metal özelliği kaydı 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

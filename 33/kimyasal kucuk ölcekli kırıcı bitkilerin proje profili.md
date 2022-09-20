@@ -1,0 +1,77 @@
+# kimyasal kucuk ölcekli kırıcı bitkilerin proje profili
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bitkilerde Moleküler Konukçu-Patojen İlişkilerindeki Son Gelişmeler](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Bitkilerde Moleküler Konukçu-Patojen İlişkilerindeki Son Gelişmeler
+pılacak olan moleküler çalışmalar, bitkilerin patojenleri nasıl tanıdıklarını, bulundukları or-tamdaki canlıların zararlı mı yoksa zararsız mı olduğuna nasıl karar verdiklerini anlamada büyük faydalar sağlayacaktır. Bu makalenin amacı, konukçu-patojen ilişkilerinin
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BİTKİ KORUMA NEDİR? - Ankara](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## BİTKİ KORUMA NEDİR? - Ankara
+kolaylaştırır. Kimyasal (ilaçlı) mücadelede insan, hayvan ve çevre için çeşitli koruyucu tedbirler almak gerekiyor. Kimyasal mücadele ilaçlarına "PESTİSİT 'de denir. Pestisit, bitkilere zarar veren hastalık etmenleri, zararlılar ile yabancı otları öldüren kimyasal
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hugging Face](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Hugging Face
+2, " bir ve و ' l ? C nın - bu 4 için veya 4 gün i içinde çünkü daki A benim jE hizmet v birçok diye A beni l lerini I sı R — T & Va aynı vb dedi ^ t kişi Z ma Pavlus e ta Eğer 0 gerçekten > ona rH ". j bize + devam ' Peki .1 te G Şimdi 2 Mesih = üzerinde insan Ancak = küçük Z> olacak > hem LT yerine q kötü 1 hangi P Her Nx Ayrıca } lere sa _ vardı s önemli 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bitkilerde Bulunan Kimyasallar ve Etkileri Nelerdir ? | .](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Bitkilerde Bulunan Kimyasallar ve Etkileri Nelerdir ? | .
+Bitkisel besinler biyolojik etki gösteren fenolik asitler, flavonoidler ve diğer fitokimyasal içerirler. Oksidasyona karşı en yüksek etkilere sahip olan yeşil yapraklı bitkileri buğday ve pirinç takip eder. Pişirme antioksidan etkiyi azaltmaktadır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tıp Öğrencileri Nasıl Fişleniyor? Özel Dosya [Arşiv] - .](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Tıp Öğrencileri Nasıl Fişleniyor? Özel Dosya [Arşiv] - .
+Türkiye'nin de yer alacağı ve bu ay gerçekleşecek görüşmelerde proje benimsenirse, anlaşma imzalanacak. Böylece yolcuların, uçuş öncesi özel hazırlanan sorulara vereceği cevaplarla kişisel bilgileri anlaşmaya imza atan ülkelere gönderilecek.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) MESLEK YÜKSEKOKULU ÖĞRENCİLERİNİN SOSYAL .](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## (PDF) MESLEK YÜKSEKOKULU ÖĞRENCİLERİNİN SOSYAL .
+Sosyal girişimcilik, toplumsal yapı içerisinde sosyal bir değişimi başlatma ve gerçekleştirme için sosyal değerler oluşturma veya toplumsal ihtiyaçları karşılama amacıyla kaynakların yenilikçi biçimde kullanımını içeren bir süreçtir. Bireysel
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KENT ORMANCILIĞI](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## KENT ORMANCILIĞI
+• Bitkilerin şekilselgörünümleri proje çalışmalarındaönemli olup taç,boy ve dallanma gibi form özelliklerininmaksimum seviyeleri iyi bilinmeli ve buna göre uygun yerlerde kullanılmaları gereklidir. Örnek olarak; piramidal formlulara Picea, Abies, Cedrus, Araucaria
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dermokozmetikte Kullanılan Bitkiler / Festival / 2012](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Dermokozmetikte Kullanılan Bitkiler / Festival / 2012
+Panax, Yunanca "her şeyi iyileştiren" anlamına gelen "panacea" kelimesinden türetilmiştir. 2000 yıldan beri kullanılan bir tıbbi bitkidir. Cildi nemlendirir ve yumuşatır, kırışıklıkları azaltır. Kan dolaşımını ve hücre proliferasyonunu arttırarak cilt metabolizmasını hızlandırır, böylece anti-aging etki gösterir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![RAF 08 by Arkitera - Issuu](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## RAF 08 by Arkitera - Issuu
+Mimari Proje Dosyası 1 43 . . . . . . . . . . Levent Kanyon raf 08 1 MAYIS 2007 3 UPM  ile HI Yüksek l zolasyon ve hatta SI olarak bilinen Süper l zolasyon özelliği sunabiliyor. Çeşitli 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Arıtmada Doğal Bitkilerin Kullanımı, Modeller ve Pilot Çalışma .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Arıtmada Doğal Bitkilerin Kullanımı, Modeller ve Pilot Çalışma .
+ise (özellikle metaller) kimyasal reaksiyonlarla çözünemeyen bileşiklere dönüşür ve çökeltilerek giderilir (Tırıs ve ark., 2003). AKM: Bitkiler su akımını bloke edip hızlarını düşürürken askıdaki maddelerin çoğu çökelme ve filtrasyonla giderilir. Daha iri boyutlu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![vocab.txt · enelpi/bert-question-answering-uncased .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## vocab.txt · enelpi/bert-question-answering-uncased .
+from transformers import AutoTokenizer, AutoModelForQuestionAnswering tokenizer = AutoTokenizer.from_pretrained("enelpi/bert-question-answering-uncased-squadv2_tr 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ORAN Kalkınma Ajansı](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## ORAN Kalkınma Ajansı
+ORAN Kalkınma Ajansı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![YTÜ Fen Bilimleri Enstitüsü](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## YTÜ Fen Bilimleri Enstitüsü
+1 2 7 8 9 10 11 12 17 18 19 20 21 22 23 24 25 26 27 28 29 30 31 32 33 34 35 36 37 38 39 40 41 42 43 44 45 46 47 48 49 3 4 5 6 13 14 15 16 50 1 2 3 4 5 6 7 8 9 10 11 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![YTÜ Fen Bilimleri Enstitüsü](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## YTÜ Fen Bilimleri Enstitüsü
+Kimyasal termodinamik, kimyasal reaksiyonlar, kimyasal denge, yanma fiziği, kinetik ve difüzyon olarak kontrol edilen yanma, difüzyon alevi, ön karışımlı gazlarda yanma ve alev, laminer alev hızı
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ziraat Mühendisliğinde Bitki Koruma](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Ziraat Mühendisliğinde Bitki Koruma
+10. Bölüm Kültürel Önlemler, Biyolojik ve Kimyasal Mücadele Doç. Dr. Ali Kemal BİRGÜCÜ 11. Bölüm Mekaniksel, Fiziksel ve Biyoteknik Mücadele Prof. Dr. Bülent YAŞAR Bitki Hastalıkları Bölümleri10 12. Bölüm Paraziter Olmayan Bitki 13.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![AHMET KARAKAS - Gazete](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## AHMET KARAKAS - Gazete
+eglence kaynak içerik ve tasarım için biz hep sizin yanınızdayız sanal alemin yeni boyutu Son dakika haberleri Hürriyet son dakika Milliyet son dakika 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PEYZAJ MİMARLIĞINDA TIBBİ VE AROMATİK BİTKİLERİN .](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## PEYZAJ MİMARLIĞINDA TIBBİ VE AROMATİK BİTKİLERİN .
+Kültür üretimi en sık yapılan tıbbı ve aromatik bitkiler arasında C. cyminum (kimyon), P.anisum (anason), F. Vulgare (rezene), C.sativum (kişniş), T. Foenum-graceum (çemen), O. onties (kekik), C. sinensis (çay), H. Uluslararası Sosyal Araştırmalar Dergisi Cilt: 10 Sayı: 54. The Journal of International Social Research Volume: 10 Issue: 54.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Eodev - Ödevlerin yeni boyutu](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Eodev - Ödevlerin yeni boyutu
+Brainly, en zorlu ödevleri çözmek için bir araya gelmiş 350 milyondan fazla öğrenci ve uzmanın yer aldığı bir bilgi paylaşım platformudur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yaygın Kullanıma Sahip Tıbbi Aromatik Bitkilerdeki Bazı .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Yaygın Kullanıma Sahip Tıbbi Aromatik Bitkilerdeki Bazı .
+mekanizmasıdır. Zira, zincir kırıcı antioksidanlar arasında fenoller, aromatik aminler ve α- tokoferoller yer almaktadır 4. ANTİOKSİDAN FİTOKİMYASALLAR Ana temamız olan fitokimyasallar, bitkilerin kendilerine özgü renk, koku ve tatlarının olumasında biyolojik
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,61 @@
+# kömur madenciliğinde freze dezavantajları
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Moment Expo Dergisi Sayı:79 by Orta Anadolu İhracatçı .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Moment Expo Dergisi Sayı:79 by Orta Anadolu İhracatçı .
+Dünya kömür madenciliğinde önemli bir yeri bulunan Almanya'da ise madenlerin tamamına  döküm, torna, tesviye, freze, taşlama, planya, matkap, soğuk-sıcak demir, kaynak, su 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![cin yuzey taşlama](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## cin yuzey taşlama
+Yüzey Taşlama Tezgahları – Uğur-Mak Merkez: 1. Sanayi Sitesi 2837 Sokak No:8 Mersinli – İzmir Tel: +90 232 433 75 44 – 457 24 64 – 459 55 29 – Faks: 459 55 52 E-mail: [email protected] Şube: 129/11 Sokak No:21 4. Sanayi Sitesi Bornova – İzmir Tel&Faks
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KÖMÜR MADENCİLİĞİ FİRMALARI](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## KÖMÜR MADENCİLİĞİ FİRMALARI
+MATKAP UÇLARI,KLAVUZ,FREZE ÇAKILARI,RAYBA,TORNA KALEMİ,KESİCİLER,ZIMBA FİRMALARI MAYA, KABARTMA TOZU, KARBONAT, LİMON TUZU FİRMALARI MAYALI ÜRÜN (POAÇA,AÇMA,SANDVİÇ) FİRMALARI
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![YER ALTI KÖMÜR MADENCİLİĞİNDE İŞ SAĞLIĞI ve GÜVENLİĞİ](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## YER ALTI KÖMÜR MADENCİLİĞİNDE İŞ SAĞLIĞI ve GÜVENLİĞİ
+YER ALTI KÖMÜR MADENCİLİĞİNDE İŞ SAĞLIĞI ve GÜVENLİĞİ enisbagdadioglu@gmail Gelimi ülkeler, insana ve çalıana değer vererek ekonomik büyümesini sağlamaktadır. Öncelikli amaç, insana yakıır çalıma ve yaúama artlarını oluturmaktır.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür ve Kömür Madenciliği Nedir?](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Kömür ve Kömür Madenciliği Nedir?
+İşçilerin güvenliği kömür madenciliğinde en önemli ve öncelikli olarak düşünülen kısım olmalıdır. Maden patlamaları yeraltı madenciliğinde en yaygın olan güvenlik riskidir. Metan gazı kömür damarından yayılır ve madencilik sürecinde kaya tabakalarını kaplayan %5-15 hava konsantrasyonlarında yüksek patlama riski oluşabilir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![IĞDIR Yatırım Ortamı ve Yapılabilecek Yatırımlar Araştırması](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## IĞDIR Yatırım Ortamı ve Yapılabilecek Yatırımlar Araştırması
+Iğdır'da yatırım yapmayı plânlayan yatırımcıları bekleyen yatırım ortamının özellikleri, avantaj ve dezavantajları başlıklar halinde bu bölümde ele alınmıştır. Yatırım ortamı irdelenirken, coğrafi ve demografik yapıdan tarım ve sanayiye, 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Radyasyon koruyucu donanımlar | AHMET FATIH .](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## (PDF) Radyasyon koruyucu donanımlar | AHMET FATIH .
+Nükleer Tıp, Radyoloji veya diş hekimliği gibi Tıbbi görüntülemede iyonize radyasyon kullanan departmanlarda kişisel dozimetrenin yanı sıra radyasyon koruyucu ekipmanların kullanımı gerekmektedir. 23999 sayılı Resmi Gazetede yayınlanan RADYASYON
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KÖMÜR MADENCİLİĞİNDE METAN DRENAJININ .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## KÖMÜR MADENCİLİĞİNDE METAN DRENAJININ .
+kömür madenciliğinde daha derinlere inme ve daha fazla ilerleme hızıyla, fazla üretim yapma (mekanize sistemle) zorunluluğunu ortaya çıkarmıştır. Bu nedenle de metan emisyon oranında artışlar meydan gelmiştir. Hazırlık ve üretim çalışmaları esnasında
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KOMUR MADENCİLİĞİNDE İŞ KAZALARININ İSTATİSTİKSEL VE .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## KOMUR MADENCİLİĞİNDE İŞ KAZALARININ İSTATİSTİKSEL VE .
+KOMUR MADENCİLİĞİNDE İŞ KAZALARININ İSTATİSTİKSEL VE EKONOMİK ANALİZİ STATISTICAL AND ECONOMICAL ANALYSIS OF ACCIDENTS IN COAL MINES Tevfik GÜYAGÜLER » Rıdvan BOZKURT»» Ümit Yaşar ÖNDER »»» Anahtar Sözcükler,
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Turkiyede Ozellestirmeler ve Komur Madenciligi .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## (PDF) Turkiyede Ozellestirmeler ve Komur Madenciligi .
+Academia.edu is a platform for academics to share research papers.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Madencilik Türkiye Dergisi Sayı 45 by Madencilik .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Madencilik Türkiye Dergisi Sayı 45 by Madencilik .
+son zamanlarda yer altı madenciliğinde oluşan iş kazalarının ve bu çerçevede getirilen yeni  9 adet CNC torna, 2 adet üniversal freze, 5 adet üniversal torna, 1 adet indüksiyon ile 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür - B.Ü. Soma Araştırma Grubu](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Kömür - B.Ü. Soma Araştırma Grubu
+gelmektedir. Özellikle yeraltı madenciliğinde metan patlamalarını önlemek önem taşımaktadır. Yüzey madenciliğinde yeryüzüne çıkan metan havayla karışıp çok seyreldiği için, patlama riskleri zaten asgari düzeyde olmaktadır. Son yıllarda birçok ülkede metanın
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KÖMÜR MADENCİLİĞİNDE MADEN MAKİNALARI İMALAT .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## KÖMÜR MADENCİLİĞİNDE MADEN MAKİNALARI İMALAT .
+madenciliği, kömür madenciliğinde daha yeni olmasına rağmen yeraltı işletme ciliğine nazaran çok daha hızlı gelişmektedir. 2. DÜNYA KÖMÜR MADEN CİLİĞİYLE İLGİLİ ÖRNEKLER Kömür madenciliğinde, maden makinaları sanayinin önemini anlatmak üzere
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kömür Madenciliğinde İş Güvenliği ve İşçi Sağlığına İlişkin .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Kömür Madenciliğinde İş Güvenliği ve İşçi Sağlığına İlişkin .
+Özellikle, kömür madenciliğinde, yeraltı ocaklarında meydana gelen göçükler, ocak içinde oluşan gazlar, ocak yangınları, ocak tozlan ve patlamalar günümüzde .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Frezeleme - Sandvik Coromant](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Frezeleme - Sandvik Coromant
+Kesme derinliği – ap (mm) Kesme derinliği ( ap) eksenel yöndeki kesilmemiş ve kesilmiş yüzey arasındaki farktır. Maksimum ap birincil olarak kesici uç boyutu ve tezgah gücüyle sınırlıdır. Diğer bir kritik faktör ise, kaba talaş işlemede tork ve ince talaş işlemede titreşimdir.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>

@@ -1,0 +1,97 @@
+# jow kırıcı batu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Batu Kırtasiye Çeşitleri](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Batu Kırtasiye Çeşitleri
+Batu 24 Kırmızı Tükenmez Kalem 40 pkt. 144 adet İLETİŞİM İkitelli İstoç Toptancılar Sitesi 17. Ada No:111/113 Bağcılar – İstanbul Telefon: 0212 527 97 32 E-posta: info@ozsoyithalat ÜRÜNLERİMİZ Derby Eldiven Çeşitleri 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BATU - YouTube](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## BATU - YouTube
+Selamlar Ben Batuhan Hergün düzenli video atmaya çalışıyorum.Sizlere elimden geldiğince eğlenceli içerikler üretmeye çalışıyorum. Kanalımı beğendiysen 2 saniyeni ayırarak abone 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Full text of "Aktarma Sözlüğü" - Internet Archive](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Full text of "Aktarma Sözlüğü" - Internet Archive
+An icon used to represent a menu that can be toggled by interacting with this icon.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![apps.panlex](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## apps.panlex
+English: eng-000: hit: Təsu: aab-000: mímí: Ari: aac-000: oba yaɸudawa: Ambrak: aag-000: nambaʔ: Qafár af: aar-000: gar: Qafár af: aar-000: kaːħ: Qafár af 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kuarsit bahasa Indonesia, ensiklopedia bebas](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Kuarsit bahasa Indonesia, ensiklopedia bebas
+Kuarsit (Bahasa Jerman: Quarzit[1]) adalah batuan metamorf non-foliasi yang keras, yang merupakan hasil perubahan (metamorfisme) dari batupasir kuarsa.[2][3] Batupasir berubah menjadi kuarsit melalui pemanasan dan tekanan yang biasanya terkait dengan kompresi tektonik dalam sabuk orogenik. Kuarsit murni biasanya berwarna putih hingga abu-abu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Yıl Kırıcı Üreticilerinden ve Yıl Kırıcı .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Yüksek Kaliteli Yıl Kırıcı Üreticilerinden ve Yıl Kırıcı .
+Yüksek Kaliteli Yıl Kırıcı Üreticilerini Yıl Kırıcı Tedarikçilerini ve Yıl Kırıcı Ürünleri en iyi fiyatta Alibaba'da bulun. 24 saat içinde birçok fiyat teklifi alın!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Taş Jow Kazasında Üreticilerinden ve Taş .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Yüksek Kaliteli Taş Jow Kazasında Üreticilerinden ve Taş .
+Yüksek Kaliteli Taş Jow Kazasında Üreticilerini Taş Jow Kazasında Tedarikçilerini ve Taş Jow Kazasında Ürünleri en iyi fiyatta Alibaba'da bulun. Sevkiyata Hazır Ticaret Fuarı Kişisel Koruyucu Ekipman Alibaba'dan alın. Alibaba üzerinden satın Yardım
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![concasseur des agrega](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## concasseur des agrega
+grande menggali batu concasseur l'impact concasseur à mâchoires avec le système de tamisage Karachi prix de concasseur mâchoire concasseur à mâchoires or toutes tailles en pouces inde Rock arabie or haut concasseur jeep la valeur d'acquisition d'un
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ürünler – Batu Grup – Yapı Malz. San. Tic. Ltd. Şti.](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Ürünler – Batu Grup – Yapı Malz. San. Tic. Ltd. Şti.
+Sanayi Mah. Uran Sk. No:6 İç Kapı No: 2 Pendik/İstanbul T:+90 216 595 3368 Fax:+90 216 595 2746
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Finlay sàng lọc và nghiền burpengary | Granite nhà máy .](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Finlay sàng lọc và nghiền burpengary | Granite nhà máy .
+finlay sàng lọc và nghiền burpengary – máy nghiền bột trục lăn, đến từ:trang chủ >xuanshi3 > > finlay sàng lọc và nghiền burpengaryvào mắt cậu để xem xét Finlay sàng lọc và nghiền burpengaryvà nhận ra mắt cậu phát sáng. viên trong một chiếcxe nôi và luôn ôm 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![fábrica de cerâmica bamm mfg em gujarat](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## fábrica de cerâmica bamm mfg em gujarat
+kroop jow triturador de pedra dupla alternar fábrica de cerâmica bamm mfg em gujarat máquina de mistura de fosfato de rocha kroop jow triturador de pedra dupla alternar. trituradora. jow trituradora de piedra. jow triturador batu rodinnaterapie. cono 900 jow 400600 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![concasseur nitro jual](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## concasseur nitro jual
+concasseur de pierre pemecah batu used crusher for sale in uk . bengkel crusher pemecah batu di jogja. jual mesin bubut mini di . KLEEMANN MOBIREX 110Z EVO IMPACT CRUSHER · Lamborghini Nitro 130 VRT . rock and mud, leaving a massive crater.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![concasseur a cone indonesie - MC World](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## concasseur a cone indonesie - MC World
+concasseur mobile a cone - alamat crusher di indonesia_mesin pemecahbatu XZM221 Mill Ultrafine di Mes CGM batu Crusher di Angol CGM micro mineraux grind karachieh concasseur à cone Jakarta Indonésie; meulage magasin de l"ordinateur dans lesPhilippines processus; Béton Cube presse Concasseur Afrique du Sud
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![digunakan crusher gator 16x24](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## digunakan crusher gator 16x24
+jow crusher digunakan digunakan portable jaw crushers on sale. Digunakan Jaw Crusher Portaable. jaw crusher is an electrically powered crushing unit for primary crushing it has the biggest capacity of the nw series portable jaw crushers the nw150 is ideal for operations that require high capacity primary crushing for aggregate production recycling or.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Aktarma Sözlüğü - Yeni Versiyon 2. Cilt (A-Ş) | .](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## (PDF) Aktarma Sözlüğü - Yeni Versiyon 2. Cilt (A-Ş) | .
+Aktarma Sözlüğü Abide-mezar: Anıtkurgan Afiyet olsun!: Aşolsun! Artezyen: Yuşuk Atıf: Atav Balina: Alabuğa Beste: Sarın Bisiklet: Tuguy Cin: Yelpin 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KALİTE YOLCULUĞU - Batusan - Batu Vana](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## KALİTE YOLCULUĞU - Batusan - Batu Vana
+KALİTE YOLCULUĞU - Batu Vana 1978 Yılından Türk Sanayisine kalitesiyle hizmet için yola çıkan "BATU Vana ve Armatürleri" Her zaman sanayinin ihtiyaçlarını ön planda tutarak; bu ihtiyaçlara en iyi cevap verecek ürünleri üretmek düşüncesinde olmuştur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Batu Ukir dan Batu Tempel Murah Berkualitas - Batu Ukir .](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Batu Ukir dan Batu Tempel Murah Berkualitas - Batu Ukir .
+Batuukir adalah situs resmi produsen batu ukir yang sudah dipercaya kualitasnya selama ini, anda akan mendapatkan hasil terbaik dengan harga bersaing BERPENGALAMAN DALAM BIDANGNYA Sanggar Seni Ukir Batu Alam Yogyakarta telah berpengalaman menangani berbagai macam pesanan kerajinan, untu dalam dan luar kota, kami adalah pilihan tepat untuk detail keindahan ornament yang .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Batu bahasa Indonesia, ensiklopedia bebas](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Batu bahasa Indonesia, ensiklopedia bebas
+Batu adalah benda alam yang tersusun atas kumpulan mineral penyusun kerak bumi yang menyatu secara padat maupun yang berserakan. Pembentukan batu merupakan hasil proses alam. Di dalam batu dapat terkandung satu atau beberapa jenis mineral.[1] Batu dapat terbentuk melalui proses kristalisasi magma, sedimentasi, maupun metamorfisme. Dari proses 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Mini Özetle Kırıcı Üreticilerinden ve Mini .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Yüksek Kaliteli Mini Özetle Kırıcı Üreticilerinden ve Mini .
+Yüksek Kaliteli Mini Özetle Kırıcı Üreticilerini Mini Özetle Kırıcı Tedarikçilerini ve Mini Özetle Kırıcı Ürünleri en iyi fiyatta Alibaba'da bulun. 24 saat içinde birçok fiyat teklifi alın!
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![HAKKIMIZDA - Batusan - Batu Vana](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## HAKKIMIZDA - Batusan - Batu Vana
+"BATU Vana" Amerikan standartlarına ( API 6D, ASME B 16.34, ASME B 16.5, ASME B 16.10 vs.) uygun olarak bu ürünleri üreterek müşterilerinin kullanımına sunmuştur Standartlara uygunluğunu bir belge ile müşterilerine göstermeye özen gösteren 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![concasseur des agrega](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## concasseur des agrega
+Kırıcı Agrega Ekipmanları,  Concasseur pierre tonnes par,  le producteur des broyeurs à boulets; Obtenir le prix process de fabrication des agregats – Les . Les ventes de concasseur de calcaire,broyeur de minerai. Nous fournissons aux clients une gamme
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![En İyi Kalite dk kırıcı](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## En İyi Kalite dk kırıcı
+Alibaba'da en iyi fiyatlarla verimli dk kırıcı satın alın. Bunların dk kırıcı birden çok sektörde uygulamaları vardır. Sevkiyata Hazır Ticaret Fuarı Kişisel Koruyucu Ekipman Alibaba'dan alın. .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yüksek Kaliteli Kral Kırıcı Üreticilerinden ve Kral Kırıcı .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Yüksek Kaliteli Kral Kırıcı Üreticilerinden ve Kral Kırıcı .
+Yüksek Kaliteli Kral Kırıcı Üreticilerini Kral Kırıcı Tedarikçilerini ve Kral Kırıcı Ürünleri en iyi fiyatta Alibaba'da bulun. Sevkiyata Hazır Ticaret Fuarı Kişisel Koruyucu Ekipman Hizmetler Alibaba üzerinden satın Yardım
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Full text of "AKTARMA SOZLUGU 2"](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Full text of "AKTARMA SOZLUGU 2"
+An icon used to represent a menu that can be toggled by interacting with this icon.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
